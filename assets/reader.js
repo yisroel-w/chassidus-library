@@ -12,6 +12,7 @@
     dark: localStorage.getItem('cl:dark') === '1',
     fs: localStorage.getItem('cl:fs') || 'md',
     mode: localStorage.getItem('cl:mode') || 'both',  // he | en | both
+    side: localStorage.getItem('cl:side') === '1',
   };
   root.dataset.dark = PREFS.dark ? '1' : '0';
   root.dataset.fs = PREFS.fs;
@@ -70,16 +71,22 @@
     return s.split(/\n{2,}/).map(p => `<p>${mdInline(p).replace(/\n/g, '<br>')}</p>`).join('');
   }
 
+  const TOC = [];   // {level, he, en, pairIdx}
+
   function render(sections) {
     const root = document.createElement('div');
     let pairIdx = 0;
+    let nextPair = 0;
     for (const sec of sections) {
       if (sec.level > 0) {
         const h = document.createElement('div');
         h.className = `ch-head h${sec.level}`;
+        h.dataset.tocIdx = TOC.length;
         h.innerHTML = `<div class="ch-he-lbl">${mdInline(sec.he)}</div>${sec.en ? `<div class="ch-en-lbl">${mdInline(sec.en)}</div>` : ''}`;
         root.appendChild(h);
+        TOC.push({ level: sec.level, he: sec.he, en: sec.en, pairIdx: nextPair });
       } else {
+        nextPair = pairIdx + 1;
         const p = document.createElement('div');
         p.className = 'pair';
         p.dataset.idx = pairIdx;
@@ -87,6 +94,7 @@
           `<div class="he-p">${mdBlock(sec.he)}</div>` +
           `<div class="psep"></div>` +
           `<div class="en-p">${mdBlock(sec.en)}</div>` +
+          `<button class="lk-btn" aria-label="Copy link" data-lk><svg viewBox="0 0 24 24"><path d="M10 13a5 5 0 0 0 7.54.54l3-3a5 5 0 0 0-7.07-7.07l-1.72 1.71"/><path d="M14 11a5 5 0 0 0-7.54-.54l-3 3a5 5 0 0 0 7.07 7.07l1.71-1.71"/></svg></button>` +
           `<button class="bm-btn" aria-label="Bookmark" data-bm><svg viewBox="0 0 24 24"><path d="M19 21l-7-5-7 5V5a2 2 0 0 1 2-2h10a2 2 0 0 1 2 2z"/></svg></button>`;
         root.appendChild(p);
         pairIdx++;
@@ -142,14 +150,16 @@
     wirePairs(sections);
     setupScrollTracking(sections);
     buildSearchIndex(sections);
+    buildTOC();
     restoreLast();
   }
 
   function applyMode() {
     const c = $('#content');
-    c.classList.remove('m-he', 'm-en');
+    c.classList.remove('m-he', 'm-en', 'm-side');
     if (PREFS.mode === 'he') c.classList.add('m-he');
     else if (PREFS.mode === 'en') c.classList.add('m-en');
+    if (PREFS.side) c.classList.add('m-side');
     $$('.seg-btn').forEach(b => b.classList.toggle('on', b.dataset.m === PREFS.mode));
   }
 
@@ -161,13 +171,29 @@
   }
 
   function wirePairs(sections) {
-    $('#content').addEventListener('click', e => {
+    $('#content').addEventListener('click', async e => {
       const bm = e.target.closest('.bm-btn');
       if (bm) {
         const pair = bm.closest('.pair');
         const idx = +pair.dataset.idx;
         toggleBm(idx);
         bm.classList.toggle('on', bookmarks.has(idx));
+        return;
+      }
+      const lk = e.target.closest('.lk-btn');
+      if (lk) {
+        const pair = lk.closest('.pair');
+        const idx = +pair.dataset.idx;
+        const url = `${location.origin}${location.pathname}?book=${encodeURIComponent(bookId)}&p=${idx}`;
+        try {
+          if (navigator.share && /Mobi|Android/.test(navigator.userAgent)) {
+            await navigator.share({ title: book.title_en, url });
+          } else {
+            await navigator.clipboard.writeText(url);
+            toast('Link to this paragraph copied');
+          }
+        } catch {}
+        return;
       }
       const hit = e.target.closest('.rs-hit');
       if (hit) scrollToPair(+hit.dataset.idx);
@@ -185,6 +211,7 @@
           const idx = +en.target.dataset.idx;
           $('#pfill').style.width = `${Math.min(100, ((idx + 1) / total) * 100)}%`;
           saveLast(idx, total);
+          updateCurrentTOC(idx);
         }
       });
     }, { rootMargin: '-30% 0px -60% 0px', threshold: 0 });
@@ -199,11 +226,62 @@
     setTimeout(() => p.style.outline = '', 1600);
   }
 
+  function flashPair(idx) {
+    const p = $(`.pair[data-idx="${idx}"]`);
+    if (!p) return;
+    p.classList.add('flash');
+    setTimeout(() => p.classList.remove('flash'), 1800);
+  }
+
   function restoreLast() {
+    // ?p= overrides last-position
+    const pParam = params.get('p');
+    if (pParam !== null && !isNaN(+pParam)) {
+      setTimeout(() => { scrollToPair(+pParam); flashPair(+pParam); }, 120);
+      return;
+    }
+    if (params.get('r') === '1') {
+      // random paragraph
+      const n = $$('.pair').length;
+      if (n > 0) {
+        const r = Math.floor(Math.random() * n);
+        setTimeout(() => { scrollToPair(r); flashPair(r); }, 120);
+        return;
+      }
+    }
     const last = JSON.parse(localStorage.getItem(lastKey) || 'null');
     if (last && last.pairIdx > 1) {
       setTimeout(() => scrollToPair(last.pairIdx), 100);
     }
+  }
+
+  // ─── TOC ───
+  function buildTOC() {
+    const list = $('#toc-list');
+    if (!TOC.length) { $('#toc-btn').hidden = true; return; }
+    $('#toc-btn').hidden = false;
+    list.innerHTML = TOC.map((t, i) => `
+      <a class="toc-item lvl-${t.level}" data-toc="${i}" data-pi="${t.pairIdx}">
+        ${t.he ? `<div class="he">${escapeHtml(t.he)}</div>` : ''}
+        ${t.en ? `<div class="en">${escapeHtml(t.en)}</div>` : ''}
+      </a>`).join('');
+    list.addEventListener('click', e => {
+      const it = e.target.closest('.toc-item');
+      if (!it) return;
+      $('#tocsheet').classList.remove('open');
+      const pi = +it.dataset.pi;
+      setTimeout(() => scrollToPair(pi), 280);
+    });
+  }
+  function escapeHtml(s) {
+    return String(s).replace(/[&<>"']/g, c => ({ '&':'&amp;','<':'&lt;','>':'&gt;','"':'&quot;',"'":'&#39;' })[c]);
+  }
+  function updateCurrentTOC(pairIdx) {
+    let cur = -1;
+    for (let i = 0; i < TOC.length; i++) {
+      if (TOC[i].pairIdx <= pairIdx) cur = i; else break;
+    }
+    $$('.toc-item').forEach((el, i) => el.classList.toggle('current', i === cur));
   }
 
   // ─── in-book search ───
@@ -273,6 +351,20 @@
     $('#dark-tog').classList.toggle('on', PREFS.dark);
   });
   $('#dark-tog').classList.toggle('on', PREFS.dark);
+
+  $('#side-tog').addEventListener('click', () => {
+    PREFS.side = !PREFS.side;
+    localStorage.setItem('cl:side', PREFS.side ? '1' : '0');
+    $('#side-tog').classList.toggle('on', PREFS.side);
+    applyMode();
+  });
+  $('#side-tog').classList.toggle('on', PREFS.side);
+
+  $('#toc-btn').addEventListener('click', () => $('#tocsheet').classList.add('open'));
+  $('#toc-close').addEventListener('click', () => $('#tocsheet').classList.remove('open'));
+  $('#tocsheet').addEventListener('click', e => {
+    if (e.target.classList.contains('sbdrop')) $('#tocsheet').classList.remove('open');
+  });
 
   $$('.fsbtn').forEach(b => b.addEventListener('click', () => {
     PREFS.fs = b.dataset.fs;

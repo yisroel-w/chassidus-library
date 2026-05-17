@@ -72,6 +72,13 @@
     return String(s).replace(/[&<>"']/g, c => ({ '&':'&amp;','<':'&lt;','>':'&gt;','"':'&quot;',"'":'&#39;' })[c]);
   }
 
+  // random
+  $('#rand-btn').addEventListener('click', () => {
+    if (!manifest || !manifest.books.length) return;
+    const b = manifest.books[Math.floor(Math.random() * manifest.books.length)];
+    location.href = `./reader.html?book=${encodeURIComponent(b.id)}&r=1`;
+  });
+
   // search
   let sTimer;
   $('#lsearch').addEventListener('input', e => {

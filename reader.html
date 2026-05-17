@@ -57,6 +57,10 @@
       <button class="tswitch" id="dark-tog" aria-label="Dark mode"></button>
     </div>
     <div class="srow">
+      <div class="slbl">Side-by-side layout<small>Hebrew and English in two columns (wider screens)</small></div>
+      <button class="tswitch" id="side-tog" aria-label="Side-by-side"></button>
+    </div>
+    <div class="srow">
       <div class="slbl">Text size</div>
       <div class="fsctrl">
         <button class="fsbtn" data-fs="sm">A</button>
@@ -64,6 +68,23 @@
         <button class="fsbtn" data-fs="lg">A</button>
       </div>
     </div>
+  </div>
+</div>
+
+<!-- TOC drawer -->
+<button id="toc-btn" aria-label="Table of contents" hidden>
+  <svg viewBox="0 0 24 24"><line x1="8" y1="6" x2="21" y2="6"/><line x1="8" y1="12" x2="21" y2="12"/><line x1="8" y1="18" x2="21" y2="18"/><circle cx="4" cy="6" r="1"/><circle cx="4" cy="12" r="1"/><circle cx="4" cy="18" r="1"/></svg>
+</button>
+<div id="tocsheet">
+  <div class="sbdrop"></div>
+  <div class="toc-panel">
+    <div class="toc-hd">
+      <div class="ttl">Contents</div>
+      <button class="ab-btn" id="toc-close" aria-label="Close">
+        <svg viewBox="0 0 24 24"><line x1="18" y1="6" x2="6" y2="18"/><line x1="6" y1="6" x2="18" y2="18"/></svg>
+      </button>
+    </div>
+    <div class="toc-list" id="toc-list"></div>
   </div>
 </div>
 
