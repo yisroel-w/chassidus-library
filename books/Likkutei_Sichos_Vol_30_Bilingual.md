@@ -1,0 +1,5703 @@
+**Hebrew:**
+
+# לקוטי שיחות
+
+**English:**
+
+# Likkutei Sichos
+
+---
+
+
+## בראשית
+
+_Section: בראשית_
+
+**Hebrew:**
+
+## שיחה א
+
+## 2
+
+רשעים, להענישם "בדרך נקמה להשמיד להרוג ולאבד", כ"א) "להאריך אפי' ולגבות דילי'[ftnref\_10\_9] — בדרך פרעון"; כי "אלו הי' נברא העולם במאמר אחד לבד אז הרשעים המאבדים את העולם ברשעתם. . הם פוגמים אותו המאמר שבו נברא העולם. . ולא נשאר דבר בלתי פגום כי הכל נברא במאמר אחד ואין מקום להאריך אפו עליהם. . כי כבר פגמו את הכל. אמנם עתה נברא בעשרה מאמרות. . כדי להפרע מן הרשעים בדרך פרעון ולא בדרך נקמה".
+אמנם, פירוש זה מסביר רק שגם הענין ד"להפרע מן הרשעים" הוא תוצאת טובו וחסדו של הקב"ה (שרוצה להאריך אף גם לרשעים[ftnref\_11\_10]), אבל עדיין אינו מתרץ כלל מה שהתנא מקדים פרעון הרשעים לשכר הצדיקים. שהרי הענין ד"להפרע מן הרשעים" הוא סו"ס טעם נוסף בכוונת בריאת העולם בעשרה מאמרות (כדי שתבוא תועלת גם לרשעים), אבל עיקרו, לכאורה, הוא בשביל נתינת שכר לצדיקים, שכר גדול יותר כי מקיימין את העולם שנברא בעשרה מאמרות.
+ג. ויובן בהקדם קושיא כללית:
+בהמשך הפרק מובאים כמה דברים שמספרם עשרה — וצריך ביאור: מדוע לא הובא דבר הכי עיקרי — שהתורה ניתנה בעשרת הדברות?
+[ואין לומר שזהו משום שבדבר זה אין חידוש, כי מפורש בתורה שהם "עשרת הדברים"[ftnref\_12\_11] — כי גם בין הדברים המפורטים ישנם כאלה שידוע ומפורש שהם במספר עשרה, ולדוגמא: "עשרה[ftnref\_13\_12] נסיונות נסו אבותינו כו' שנאמר[ftnref\_14\_13] וינסו אותי זה עשר פעמים"[ftnref\_15\_14]].
+ובפרט ע"פ מאמר חז"ל[ftnref\_16\_15] עה"פ[ftnref\_17\_16] "עשרה עשרה הכף בשקל הקודש", שהעשרה מאמרות מכוונים כנגד עשרת הדברות[ftnref\_18\_17], דמזה מוכח שהמספר דעשרה מאמרות (שבו פתח התנא) שייך להמספר דעשרת הדברות.
+ד. וי"ל נקודת הביאור בכל זה:
+הטעם שהתנא מפרט את אלה הדברים הקבועים במספר עשרה, הוא להדגיש בזה את גודל חשיבותם של דברים אלו — כי עשר הוא "מספר השלם". וכפי שאנו מוצאים שלימות מספר זה בנוגע לכמה ענינים, וכמובא בספרים[ftnref\_19\_18]; לדוגמא: א) כל דבר הוא בעל שלש קוטרים, אורך רוחב ועומק, וכל אחד מהם כלול מג', ראש תוך סוף (סת"ר), וביחד עם המקום ה"סובלם" הרי זה מספר עשר. ובלשון הרמב"ם[ftnref\_20\_19]: העצם וט' המקרים. ב) בחיי האדם, שכל עשר שנים הן תקופה בפ"ע, כסיום הפרק "בן עשרים כו' בן שלשים כו'"; ג) בנפש האדם — שיש לה עשר כחות[ftnref\_21\_20];
+
+## 6
+
+שבאה מבחי' יחידה שבנפש הנקראת "אחת" (כדאיתא בתוס'[ftnref\_46\_45]).
+ח. ומעתה יבוארו דברי המשנה "בעשרה מאמרות כו' להפרע מן הרשעים כו'":
+נזכר לעיל דיוק המפרשים בלשון המשנה "להפרע מן הרשעים" (ולא — "להעניש"), שהכוונה בזה היא — "לגבות דילי' בדרך פרעון". כלומר, אין הכוונה (לענוש את החוטא לשם) נקמה, אלא עונש המביא את החוטא "לפרוע" את ה"חוב" שמחוייב "לשלם" עבור מעשהו הרע.
+דהנה כל נשמה ירדה למטה בשליחותו של הקב"ה לעשות לו ית' דירה בתחתונים[ftnref\_47\_46], והוא — על ידי קיום התומ"צ. אמנם מי שחטא ופגם ועבר את הדרך ר"ל, הרי נעשה עי"ז "בעל חוב" להקב"ה, כי צריך הוא להשלים את השליחות המוטלת עליו.
+ותשלום חוב זה הוא ענין התשובה, שבה ועל ידה הוא מתקן כל החסרונות שפעל על ידי חטאיו. וזהו תוכן הענין ד"להפרע מן הרשעים", שהקב"ה תובע מן הרשעים שישלמו לו כביכול החוב — על ידי עשיית תשובה [וזהו ג"כ ענין העונשים כפשוטו, שתכליתם אינה בשביל העונש עצמו, אלא כדי להביא את האדם לידי תשובה[ftnref\_48\_47]].
+ועפ"ז יש לפרש בעומק יותר המשך דברי התנא "(להפרע מן הרשעים) שמאבדין את העולם שנברא בעשרה מאמרות" — שגם זה (שהרשעים "מאבדין את העולם שנברא בעשרה מאמרות") יש בזה גם ענין למעליותא, בהתאם להעילוי שבעבודת התשובה, שע"י התשובה בונים "עולם חדש"[ftnref\_49\_48] — הנהגה יום יומית בחילא יתיר דוקא, ועד שצמאה נפשם ביתר עוז מצמאון נפשות הצדיקים[ftnref\_50\_49].
+וזהו "להפרע מן הרשעים שמאבדין את העולם שנברא בעשרה מאמרות" — ש"פרעון" הרשעים הוא בזה, שהם מאבדין ומבטלים את המדידה וההגבלה שבעולם (מצד זה שנברא ב"עשרה מאמרות"), כי על ידי התשובה מתגלה בעולם יכלתו ית' שלמעלה מן העשרה מאמרות (ועשר ספירות), שאינה מוגדרת בגדר הבריאה והיא המנהגת את העולם — ע"ד שיהי' גם בגשמיות העולם לעת"ל שארץ ישראל תוציא גלוסקאות וכלי מילת[ftnref\_51\_50] וכיו"ב.
+ט. ועפ"ז יבואר המשך דברי המשנה:
+בתחילת המשנה אומר התנא "בעשרה מאמרות נברא העולם ומה ת"ל והלא במאמר אחד יכול להבראות" — שבזה מבאר (כנ"ל) שני הענינים שבאופן הבריאה: (א) ההגבלה שישנה בהבריאה מצד זה שנברא בעשרה מאמרות, (ב) ביחד עם זה ישנו ה"מאמר אחד (שבו)
+
+**English:**
+
+## Sicha 1
+
+## 2
+
+The wicked, to punish them "by way of vengeance to destroy, to kill, and to annihilate," is actually "to be patient and to collect what is Mine — by way of repayment." For, "if the world had been created with only one utterance, then the wicked who destroy the world with their wickedness... would blemish that very utterance with which the world was created... and nothing would remain unblemished, for everything was created with one utterance, and there would be no room to be patient with them... for they would have already blemished everything. However, now it was created with ten utterances... in order to exact payment from the wicked by way of repayment and not by way of vengeance."
+
+However, this explanation only clarifies that even the matter of "exact payment from the wicked" is a result of the goodness and kindness of Hashem (who wishes to be patient even with the wicked). Yet, it still does not resolve at all why the Tanna prioritizes the repayment of the wicked over the reward of the righteous. After all, the matter of "exact payment from the wicked" is, at the end of the day, an additional reason for the intent behind the creation of the world with ten utterances (so that there is benefit for the wicked as well), but its primary purpose, seemingly, is for the giving of reward to the righteous—a greater reward because they sustain the world that was created with ten utterances.
+
+## 3
+
+And this will be understood by first addressing a general question:
+Further on in the chapter, several things are brought that are ten in number—and this requires explanation: Why was the most fundamental thing not brought—that the Torah was given via the Ten Commandments?
+
+[And one cannot say that this is because there is no novelty in this, as it is explicitly stated in the Torah that they are "the ten utterances" —for even among the things detailed there are those that are known and explicitly stated to be ten in number, for example: "Ten trials did our ancestors test... as it is said, 'And they have tested Me these ten times'"].
+
+Especially according to the statement of Chazal on the verse, "Ten, ten, the shekel of the sanctuary," that the ten utterances correspond to the Ten Commandments, which proves that the number of ten utterances (with which the Tanna opens) is related to the number of the Ten Commandments.
+
+## 4
+
+And the core explanation for all this is:
+The reason the Tanna details these things that are fixed at the number ten is to emphasize the great importance of these things—for ten is the "number of perfection." And as we find the perfection of this number regarding several matters, as brought in the sefarim ; for example: a) Every object has three dimensions: length, width, and depth, and each of them is comprised of three: beginning, middle, and end (the *satar*), and together with the space that "contains" them, this is the number ten. In the language of the Rambam : the substance and the nine categories. b) In the life of a person, where every ten years is a period in its own right, as the conclusion of the chapter, "At twenty... at thirty..." c) In the soul of a person—that it has ten *kochot*.
+
+## 6
+
+...which comes from the level of *yechidah* in the soul, which is called "one" (as it is in Tosafos).
+
+## 8
+
+And from here, the words of the Mishnah, "with ten utterances... to exact payment from the wicked..." will be explained:
+Mentioned above was the precision of the commentators regarding the language of the Mishnah, "to exact payment from the wicked" (and not "to punish"), that the intent here is "to collect what is Mine by way of repayment." That is to say, the intent is not (to punish the sinner for the sake of) vengeance, but a punishment that brings the sinner to "repay" the "debt" that he is obligated to "pay" for his evil deed.
+
+For every soul descended below on the mission of Hashem to make for Him, may He be blessed, a dwelling place in the lower worlds, and this is through the fulfillment of *Torah* and *mitzvos*. However, one who has sinned and blemished and strayed from the path, *r'l*, thereby becomes a "debtor" to Hashem, for he must complete the mission incumbent upon him.
+
+And the payment of this debt is the matter of *teshuvah*, through which and by means of which he repairs all the deficiencies he caused through his sins. And this is the content of the matter of "exact payment from the wicked," that Hashem demands from the wicked that they pay Him, so to speak, the debt—through doing *teshuvah* [and this is also the matter of punishments in their literal sense, whose purpose is not for the punishment itself, but to bring the person to *teshuvah*].
+
+And according to this, one can explain with greater depth the continuation of the Tanna's words, "(to exact payment from the wicked) who destroy the world that was created with ten utterances"—that even in this (that the wicked "destroy the world that was created with ten utterances") there is also a positive aspect, in accordance with the elevation in the *avodah* of *teshuvah*, for through *teshuvah* they build a "new world" —a daily conduct with even greater strength, to the point that their souls thirst with greater intensity than the thirst of the souls of the righteous.
+
+And this is "to exact payment from the wicked who destroy the world that was created with ten utterances"—that the "repayment" of the wicked is in this, that they destroy and nullify the measurement and limitation that is in the world (from the aspect that it was created with "ten utterances"), for through *teshuvah* there is revealed in the world His, may He be blessed, ability that is above the ten utterances (and the ten *Sefiros*), which is not defined by the boundaries of creation and which governs the world—similar to how it will be in the physicality of the world in the time to come, that the Land of Israel will produce cakes and silk garments and the like.
+
+## 9
+
+And according to this, the continuation of the words of the Mishnah will be explained:
+At the beginning of the Mishnah, the Tanna says, "With ten utterances the world was created, and what does the Torah teach us? Could it not have been created with one utterance?"—by which he explains (as above) the two matters in the manner of creation: (a) the limitation that exists in creation from the fact that it was created with ten utterances, (b) together with this, there exists the "one utterance (with which)..."
+
+---
+
+_Section: בראשית_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 8
+
+### שיחה ב
+
+א. עה"פ[ftnref\_56\_1] "ויעש אלקים את שני המאורות הגדולים את המאור הגדול גו' ואת המאור הקטן גו'" אי' בגמרא[ftnref\_57\_2]: "ר"ש בן פזי רמי כתיב ויעש אלקים את שני המאורות הגדולים וכתיב את המאור הגדול ואת המאור הקטן (דמשמע שניהם גדולים וכתיב הקטן — רש"י), אמרה ירח לפני הקב"ה רבש"ע אפשר לשני מלכים שישתמשו בכתר אחד (בתמי') אמר לה לכי ומעטי את עצמך"[ftnref\_58\_3].
+וממשיך, שע"ז טענה הלבנה "רבש"ע הואיל ואמרתי לפניך דבר הגון אמעיט את עצמי (בתמי') כו'"[ftnref\_59\_4], וע"ז פייס הקב"ה את הלבנה בכמה אופנים, כדלקמן סעיף ג.
+והנה לכאורה לא ברור אם טענת הלבנה ("אפשר לשני מלכים שישתמשו בכתר אחד") היתה טענה צודקת:
+מזה שטענת הלבנה נקראת בכמה מקומות בשם "קטרוג"[ftnref\_60\_5] כלפי מעלה (כביכול), המורה על דבר בלתי רצוי, נראה לכאורה שלא היתה טענה צודקת. וכן משמע לכאורה מזה שהלבנה הוצרכה למעט את עצמה (שזהו "עונש" על טענתה, בלשון רש"י[ftnref\_61\_6] "נתמעטה הלבנה על שקטרגה ואמרה אי אפשר כו'"), ולא שינוי אחר מהשמש שאין בהשינוי עונש (דאת"ל שצדקה בטענתה, אמאי נענשה?).
+אבל מהמשך דברי הגמ', שהקב"ה פייס את הלבנה לאחר שטענה "הואיל ואמרתי לפניך דבר הגון אמעיט את עצמי", משמע, שתוכן טענתה הוא "דבר הגון" (לא רק בעיני הלבנה, אלא) לפי אמיתית הענין[ftnref\_62\_7].
+ב. גם בתוכן הענין צריך ביאור:
+את"ל שטענה זו נכונה היא — תמוה ביותר: איך אפ"ל שמלכתחילה ברא הקב"ה את שני המאורות באופן שיש מקום לטענה (בצדק) שבריאתם אינה כראוי (שיהיו שני מלכים משתמשים בכתר אחד)? ובפרט שמפורש בחז"ל[ftnref\_63\_8] ש"עולם על מליאתו נברא", ואילו לפי דברי הלבנה נמצא, שתיכף בעת שנבראו הי' דבר בלתי מושלם בבריאת העולם ע"י הקב"ה.
+[ואף שאיתא במדרש[ftnref\_64\_9] ש"כל מה שנברא בששת ימי בראשית צריכים עשי' כגון החרדל צריך למתוק התורמוסים צריך למתוק החיטין צריכין להטחן אפילו אדם צריך תיקון" — "הדא הוא דכתיב[ftnref\_65\_10] אשר ברא אלקים לעשות אשר ברא ועשה אין כתיב כאן אלא לעשות
+
+## 9
+
+לומר שהכל צריך תיקון"[ftnref\_66\_11] — הרי פשוט שיש חילוק גדול בין הנבראים שנבראו לכתחילה באופן בלתי מתוקן בכוונה ועל מנת שהאדם יוסיף בתיקונם בכדי שיהיו מוכנים עבורו (כמו בדוגמא הנ"ל שהחרדל צריך למיתוק וחיטים לטחינה) — ובין בריאת דבר שהקב"ה עצמו הוצרך כביכול מיד לשנותו ולתקנו].
+ועכצ"ל שבריאת המאורות באופן ד"שני המאורות הגדולים" ("שני מלכים משתמשים בכתר אחד") אין בה שום חסרון (ואדרבה, כן צריך להיות, שלכן לעת"ל שוב יהי' "אור הלבנה כאור החמה"[ftnref\_67\_12]). וקשה, כנ"ל — איך אפ"ל שטענת הלבנה היא "דבר הגון"?
+ג. ולאידך גיסא — יש להבין טענת הלבנה "אפשר לשני מלכים שישתמשו בכתר אחד" — שמשמעה שרצתה לעצמה כתר מלוכה גדול יותר:
+החמה והלבנה נבראו במאמר השם "יהי מאורות ברקיע השמים להבדיל[ftnref\_68\_13] בין היום ובין הלילה גו' להאיר על הארץ"[ftnref\_69\_14] — ופשיטא שנשלם רצון הבורא בבריאתם, וכמש"נ[ftnref\_70\_15] "וירא אלקים את כל אשר עשה והנה טוב מאוד", שכל דבר שהקב"ה בראו נעשה בהתאם למטרתו שבשבילה נברא[ftnref\_71\_16]; וגם פשוט וברור שכל הברואים אין ענינם ומטרתם אלא להשלים רצון הבורא, וא"כ איך יתכן, כפי שמשמע בפשטות, שהלבנה קינאה לכבודה ותבעה לעצמה כתר גדול יותר?
+וביותר תמוה: לאחרי שהקב"ה אמר ללבנה "לכי ומעטי את עצמך", הוצרך לפייסה, כהמשך דברי הגמרא שאמר לה "לכי ומשול ביום ובלילה"; ולא עוד אלא שלא נתפייסה בזה וטענה "שרגא בטיהרא מאי אהני", והקב"ה הוסיף לרצותה עוד: "זיל לימנו בך ישראל ימים ושנים"; וגם זה לא הספיק לה בטענה "יומא נמי אי אפשר דלא מנו בי' תקופותא (תקופות נמנין לחמה ועל התקופה מעברין את השנה כו' — רש"י) כו'"! — דלכאורה טענה זו היא ממדת הקנאה הגרועה, דמאי איכפת לה שימנו התקופות בשמש, כיון שמשלה לא יוגרע כלום, ואדרבה, דוקא בה תלוי רובו ועיקרו של מנין הימים[ftnref\_72\_17] — ועד כ"כ, שלאחרי שאמר הקב"ה "זיל ליקרו צדיקי בשמיך כו'" ו"חזי' דלא קא מיתבא דעתה אמר הקב"ה הביאו כפרה עלי שמיעטתי את הירח כו'"!
+ועכצ"ל שמיעוט הלבנה הוא חלק
+
+## 10
+
+מסדר ואופן[ftnref\_73\_18] בריאת המאורות שבששת ימי בראשית[ftnref\_74\_19], כלומר: גם בתחילה היתה כוונת הבורא שיהיו באופן דמאור הגדול ומאור הקטן [וכלשון הכתוב "ויעש אלקים את שני המאורות גו' את המאור הגדול גו' ואת המאור הקטן גו'", שפשטות משמעות הכתוב היא[ftnref\_75\_20], שמלכתחילה נבראו שני המאורות בכוונה שיהי' אחד מהם גדול ואחד מהם קטן], אלא שסדר בריאתם הי' צ"ל (כאילו נאמר) בשני שלבים, שמלכתחילה עשה אלקים "שני המאורות הגדולים", ואח"כ ע"י מיעוט הלבנה נתחלקו להיות מאור הגדול ומאור הקטן[ftnref\_76\_\*20]; אלא שהיות שהסיבה והצורך בשינוי זה הם מצד מציאות הלבנה (כדלקמן), לכן בא המיעוט ע"י "טענת" הלבנה[ftnref\_77\_21].
+ד. ויש לבאר זה בהקדם הידוע ד"אסתכל בה באורייתא וברא עלמא"[ftnref\_78\_22], שכל דבר ודבר שבעולם, מקורו בתורה (שהיא הדיפתראות[ftnref\_79\_23] שמהן נברא העולם), שכן הוא גם במאורות הגדולים (השמש והלבנה), שישנם תחילה בתורה, ועל פי תוכנם כפי שהם בתורה, נמשך ונשתלשל ענינם בשמש ולבנה בגשמיות כפשוטם.
+ולפ"ז י"ל, שאופן בריאת המאורות — שבתחילה נבראו בשווה, "שני המאורות הגדולים", ואח"כ על ידי "טענת" הלבנה "אי אפשר לשני מלכים שישתמשו בכתר אחד" מיעטה הלבנה את עצמה — יובן ע"פ ביאור תוכן ענין שמש ולבנה כפי שהם בתורה:
+מבואר בשל"ה[ftnref\_80\_24], ששני המאורות (כפי שהם בתורה) הן תושב"כ ותושבע"פ, וכמרומז גם במדרש[ftnref\_81\_25] עה"פ[ftnref\_82\_26] ויהי שם עם ה' מ' יום ומ' לילה, "מנין הי' יודע משה אימתי יום אלא כשהקב"ה הי' מלמדו תורה בכתב הי' יודע שהוא יום וכשהי' מלמדו על פה משנה ותלמוד הי' יודע שהוא לילה".
+וטעם הדבר שתושבע"פ נקראת "המאור הקטן", כי "תורה שבע"פ היא המקבלת מתושב"כ וכמו שאמר בגמ' מנלן
+
+## 11
+
+דכתיב כו' או מנה"מ דאמר קרא כו'"[ftnref\_83\_27], כמו הלבנה המקבלת אור מהשמש [וגם ה"דברים שגזרו חכמים ונביאים שבכל דור ודור"[ftnref\_84\_28] וכיו"ב, הרי גם הם יסודם בכתוב[ftnref\_85\_29] "ושמרתם את משמרתי — עשו משמרת למשמרתי" — "לעשות סייג לתורה כמו ששמעו ממשה בפירוש"[ftnref\_86\_30], היינו קיום הוראת משה בתושב"כ לעשות סייג לתורה[ftnref\_87\_31]].
+ולפי זה יש לבאר הא שבתחילה נבראו "שני המאורות הגדולים" ואח"כ נתמעטה הלבנה: זה שתושבע"פ היא "מקבל" מתושב"כ, הוא רק מצד בני ישראל, מקבלי התורה, שההלכות והציוויים שבתושבע"פ ניתנו להם ללמוד מתושב"כ ע"י י"ג מדות שהתורה נדרשת בהן וכיו"ב [ומה גם "הגזירות והתקנות והמנהגות"[ftnref\_88\_32] שעשאום חכמים סייג לתורה כו', שבודאי תלויים בבנ"י, מקבלי התורה[ftnref\_89\_33]];
+משא"כ מצד הקב"ה, נותן התורה, אין תושבע"פ בגדר "מקבל" מתושב"כ, ושתיהן הן בגדר "מאורות הגדולים", ד"כולם ניתנו מרועה אחד"[ftnref\_90\_34], ובלשון הרמב"ם[ftnref\_91\_35] "כל המצות כו' בפירושן ניתנו" (מלמעלה), "הי'[ftnref\_92\_36] אומר לו המצוה [תושב"כ[ftnref\_93\_37]] ואח"כ אומר לו השם פירושה וענינה"[ftnref\_94\_38].
+ה. בעומק יותר:
+זה שתושב"כ ותושבע"פ נקראות בשם "שמש" ו"לבנה" הוא לא רק מצד יחסם זל"ז (שתושבע"פ מקבלת מתושב"כ), אלא (גם) מפני שבתושב"כ מודגש גדר נותן התורה (שמש, משפיע), ובתושבע"פ מודגש גדר מקבלי התורה (לבנה, מקבל).
+וכהחילוק בפשטות בין תושב"כ ותושבע"פ, שתושב"כ ה"ה כפי שנמסרה מסיני, בדיוק באותיותי' לא חסר ולא יתיר — שבזה מודגש שהיא תורת ה' (ואין בה תפיסת ידי אדם); משא"כ תושבע"פ גדרה הוא — הבנת האדם (דכשאינו מבין מה שלומד אינו נחשב לימוד כלל[ftnref\_95\_39]),
+
+## 12
+
+ועד שבנ"י מחדשים בתורה, היינו שעניני תושבע"פ באים ומתגלים על ידי בנ"י.
+ובזה יש לבאר דיוק לשון הרמב"ם[ftnref\_96\_40] (בנוגע לסדר המסורה דתורה): "כל התורה כתבה משה רבינו כו' ונתן ספר לכל שבט ושבט כו' והמצוה שהיא פירוש התורה לא כתבה אלא צוה בה לזקנים וליהושע ולשאר כל ישראל כו' ומפני זה נק' תורה שבעל פה. אף על פי שלא נכתבה תורה שבעל פה למדה משה רבינו כולה בבית דינו לשבעים זקנים. ואלעזר ופינחס ויהושע שלשתן קבלו ממשה כו' וזקנים רבים קבלו מיהושע וקבל עלי מן הזקנים ומפינחס", והולך ומונה פרטי מסורת התורה מדור דור, כל חכם ממי קבל, עד רבינו הקדוש שחיבר המשנה, ועד רב אשי שחיבר תלמוד בבלי כו'.
+ולכאורה יש לדייק אמאי נקט הרמב"ם בשלשלת המסורה דתושבע"פ לא כמ"ש גבי יהושע ד"ליהושע שהוא תלמידו של משה רבינו מסר תורה שבע"פ וצוהו עלי'"[ftnref\_97\_41], אלא ע"ד קבלת פלוני מפלוני, שלא כתב שפלוני מסר לפלוני אלא שפלוני קבל מפלוני. ומשמע מזה, שהחילוק בין תושב"כ ותושבע"פ הוא לא רק בזה שתושב"כ "כתבה משה רבינו" ו"המצוה שהיא פירוש התורה לא כתבה אלא צוה בה לזקנים כו'", אלא גם בענין זה, שהמסורה דתושב"כ היא באופן שמשה רבינו נתנה לכל שבט ושבט, ובתושבע"פ ה"ז בדרך קבלה, שכל החכמים שבכל דור מקבלים מהחכמים שבדור שלפנ"ז.
+ויש לומר, שזהו בהתאם לחילוק הנ"ל בין תושב"כ ותושבע"פ — שבתושב"כ מודגש גדר הנותן, ובתושבע"פ מודגש גדר המקבל.
+ו. אמנם, חילוק זה בין תושב"כ ותושבע"פ הוא רק מצד בני ישראל, מקבלי התורה, אבל מצד הקב"ה, נותן התורה, הרי גם תושבע"פ היא תורת ה' ממש כמו תושב"כ, בלי כל חילוק ביניהן באופן נתינתן.
+וזהו שהרמב"ם מקדים שם[ftnref\_96\_40] "כל המצות שניתנו לו למשה בסיני בפירושן ניתנו שנאמר[ftnref\_99\_42] ואתנה לך את לוחות האבן והתורה והמצוה תורה זו תורה שבכתב והמצוה זו פירושה וצונו לעשות התורה על פי המצוה ומצוה זו היא הנקראת תורה שבעל פה", והיינו, שהחילוק הנ"ל בין תושב"כ ותושבע"פ, נתינה או קבלה, הוא רק מצד בנ"י, אבל מצד הקב"ה ניתנו שתיהן בשווה. ובלשון אאמו"ר ז"ל[ftnref\_100\_43] "שכל מה שנאמר בתושב"כ ובתושבע"פ הן בהלכה והן באגדה ובכל הספרים שחיברום חכמים צדיקים שלמדו תורה לשמה. . כולם ממש אמר ה' ובאותו הלשון ממש[ftnref\_101\_44] שנאמרו כמו שהוא ממש"[ftnref\_102\_45].
+
+## 13
+
+אלא שכיון שענינה של תושבע"פ הוא "פירושה" של תושב"כ, לכן, כפי שהתורה מתקבלת בנתינה למטה לבנ"י — שבהשגתם ותפיסתם הרי "פירושו" של דבר הוא למטה מעצם הדבר, וענינו רק להסביר תוכנו [וכמו רב הלומד עם תלמידו וצריך לפרש את תוכן דבריו, שה"פירוש" אינו עצם השכל הטמון בדבריו (כמו שהוא אצל הרב), אלא זהו מה שהרב מצמצם את שכלו לדרגת התלמיד כדי שהתלמיד יוכל לקבלו ולהבינו בשכלו] — הנה אז התושבע"פ היא בגדר "מקבל" מתושב"כ, וענינה הוא — "קבלת" בנ"י, ועד שגילוי תושבע"פ הוא על ידי בנ"י[ftnref\_103\_\*45] כנ"ל בארוכה[ftnref\_104\_46].
+ז. והנה ככל הדברים האלה ב"שמש" ו"ירח" שבתורה — כן הוא גם בשמש וירח המאירים לארץ בפשטות, דזה שיש חילוק בין שני המאורות, "המאור הגדול" (משפיע האור) ו"מאור הקטן" (מקבל האור), זהו רק כפי שהם בעולם ("מצד המקבל"), אבל מצד מעשה של הקב"ה, "ויעש אלקים", שניהם הם בגדר "מאורות הגדולים", "שווים נבראו"[ftnref\_105\_47], ואין אחד מהם גדול מחברו.
+ובפשטות: זה שאור הלבנה מתהווה ונוצר מאור השמש, הוא רק כפי שהוא מצד גדרי העולם, אבל מצד הקב"ה, הרי (אור) הלבנה הוא בריאתו של הקב"ה בשווה ממש ל(אור) השמש — "ויעש אלקים את שני המאורות הגדולים"[ftnref\_106\_48]; אלא שכיון שגדרו של אור הלבנה הוא — אור של מקבל, לכן, אור זה בא בפועל ובגלוי באמצעות השמש[ftnref\_107\_49].
+[וע"ד המבואר בענין עשיר ועני[ftnref\_108\_50] (שהם בדוגמת שמש וירח, משפיע ומקבל) — דזה שהעני מקבל מזונו מן העשיר, אינו מפני שבעצם הוא למטה ממנו וצריך אליו, אלא שהקב"ה מזמין לו פרנסתו באמצעות העשיר; והיינו דהיות שהקב"ה רוצה שתהי' מצות צדקה[ftnref\_109\_51], לכן ברא את העולם באופן כזה שיהי' משפיע ומקבל, עשיר ועני —
+
+## 15
+
+עלי שמיעטתי את הירח", והיינו להדגיש שכל זמן שהיא בגדר "מאור הקטן", שהלבנה היא בגדר מיעוט, צריכים עדיין ל"כפרה" על מיעוטה, עד שתושלם הכוונה בגלוי לעתיד לבוא, "והי' אור הלבנה כאור החמה"[ftnref\_67\_12], שיהיו "שני המאורות הגדולים" בגלוי ובפועל[ftnref\_116\_55].
+[quotation](משיחת יום ב' דחג השבועות תשמ"ז) [/quotation]
+
+**English:**
+
+## Sicha 2
+
+## 8
+
+### Sicha 2
+
+A. Regarding the verse "And Elokim made the two great luminaries: the greater luminary... and the lesser luminary...", the Gemara states: "Rabbi Shimon ben Pazi raised a contradiction: It is written 'the two great luminaries,' and it is written 'the greater luminary and the lesser luminary' (which implies both were great, yet it is written 'the lesser' — Rashi). The moon said before the Ribono shel Olam, 'Ribono shel Olam, is it possible for two kings to use one crown?' He said to her, 'Go and diminish yourself.'"
+
+It continues that the moon argued, "Ribono shel Olam, since I have said a proper thing before You, shall I diminish myself?" And regarding this, the Ribono shel Olam appeased the moon in several ways, as will be discussed in section C.
+
+Seemingly, it is unclear whether the moon’s argument ("Is it possible for two kings to use one crown?") was a justified claim:
+From the fact that the moon’s argument is referred to in several places as a "prosecution" (*kitrug*) against the Above (kivayachol), which denotes something undesirable, it appears that the claim was not justified. This is also implied by the fact that the moon was required to diminish herself (which is a "punishment" for her claim; in the words of Rashi, "The moon was diminished because she prosecuted and said, 'It is impossible...'"), rather than some other change from the sun, for which there is no punishment (for if one were to say her claim was justified, why was she punished?).
+
+However, from the continuation of the Gemara, that the Ribono shel Olam appeased the moon after she argued, "Since I have said a proper thing before You, shall I diminish myself?", it implies that the content of her claim was a "proper thing" (not only in the eyes of the moon, but) according to the true nature of the matter.
+
+B. The content of the matter also requires explanation:
+If we were to say that this claim is correct, it is highly puzzling: How is it possible that from the outset the Ribono shel Olam created the two luminaries in a manner that leaves room for the claim (justifiably) that their creation was not as it should be (that two kings should use one crown)? Especially since it is explicit in Chazal that "the world was created in its fullness," whereas according to the moon’s words, it turns out that immediately at the time of their creation, there was something imperfect in the creation of the world by the Ribono shel Olam.
+
+[And although it is stated in the Midrash that "everything created during the six days of Bereishis requires fixing; for example, mustard needs sweetening, lupines need sweetening, wheat needs grinding, even man needs fixing" — "This is what is written 'which Elokim created to do' — it does not say 'created and did,' but 'to do,' to say that everything requires fixing" — it is clear that there is a great difference between creatures that were created from the outset in an unrefined state intentionally, so that man would add to their refinement to make them ready for him (as in the example above, where mustard needs sweetening and wheat needs grinding), and the creation of something that the Ribono shel Olam Himself was, kivayachol, immediately required to change and fix.]
+
+Therefore, we must say that the creation of the luminaries in the manner of "the two great luminaries" ("two kings using one crown") contains no deficiency (and on the contrary, this is how it should be, which is why in the future, "the light of the moon shall be as the light of the sun"). And the difficulty remains, as mentioned above — how can it be that the moon’s claim is a "proper thing"?
+
+C. On the other hand, one must understand the moon’s claim, "Is it possible for two kings to use one crown?" — which implies that she wanted a greater crown of sovereignty for herself:
+The sun and the moon were created by the word of Hashem, "Let there be luminaries in the firmament of the heavens to divide between the day and the night... to shine upon the earth" — and it is obvious that the Creator’s will was fulfilled in their creation, as it is written, "And Elokim saw all that He had made, and behold, it was very good," meaning that everything the Ribono shel Olam created was made in accordance with the purpose for which it was created. It is also simple and clear that the purpose and goal of all creatures is only to fulfill the Creator’s will. If so, how is it possible, as it simply appears, that the moon was jealous of her honor and demanded a greater crown for herself?
+
+Even more puzzling: After the Ribono shel Olam told the moon, "Go and diminish yourself," He had to appease her, as the Gemara continues, saying to her, "Go and rule by day and by night." Furthermore, she was not appeased by this, arguing, "What benefit is a candle in the daytime?" And the Ribono shel Olam continued to appease her: "Go, let Yisrael count by you days and years." And even this did not suffice for her, as she argued, "Even by day it is impossible not to count the *tekufos* (the *tekufos* are counted by the sun, and based on the *tekufa* they intercalate the year — Rashi)..."! Seemingly, this argument stems from the bad trait of jealousy, for what does it matter to her that the *tekufos* are counted by the sun, since nothing is taken away from her, and on the contrary, the majority and essence of the counting of days depends on her — to the point that after the Ribono shel Olam said, "Go, let the righteous be called by your name..." and "He saw that she was not settled, the Ribono shel Olam said, 'Bring an atonement for Me for having diminished the moon'..."!
+
+Therefore, we must say that the diminishing of the moon is part of the order and manner of the creation of the luminaries during the six days of Bereishis. That is to say: even from the beginning, the Creator’s intention was that they should be in the manner of a "greater luminary" and a "lesser luminary" [as the verse states, "And Elokim made the two great luminaries... the greater luminary... and the lesser luminary," where the simple meaning of the verse is that from the outset the two luminaries were created with the intention that one of them would be great and one of them would be small]. However, the order of their creation had to be (as if to say) in two stages: from the outset, Elokim made "the two great luminaries," and afterwards, through the diminishing of the moon, they were divided into a greater luminary and a lesser luminary. Since the reason and necessity for this change are from the side of the moon’s existence (as discussed below), the diminishing came about through the moon’s "claim."
+
+D. This can be explained by the well-known concept that "He looked into the Torah and created the world," meaning that every single thing in the world has its source in the Torah (which are the blueprints from which the world was created). This is also true of the great luminaries (the sun and the moon), which exist first in the Torah, and according to their content as they are in the Torah, their nature is drawn down and evolves into the sun and moon in the physical sense, as they are literally.
+
+According to this, we can say that the manner of the luminaries' creation — that initially they were created equally, "the two great luminaries," and afterwards, through the moon’s "claim" that "it is impossible for two kings to use one crown," the moon diminished herself — can be understood based on the explanation of the content of the sun and moon as they are in the Torah:
+It is explained in the Shelah that the two luminaries (as they are in the Torah) are the Written Torah and the Oral Torah, as is also hinted at in the Midrash regarding the verse, "And he was there with Hashem forty days and forty nights": "How did Moshe know when it was day? When the Ribono shel Olam taught him the Written Torah, he knew it was day, and when He taught him the Oral Torah, the Mishnah and Talmud, he knew it was night."
+
+The reason the Oral Torah is called the "lesser luminary" is because "the Oral Torah is the recipient from the Written Torah," as the Gemara says, "From where do we know this? As it is written..." or "From where is this derived? As the verse says..." — just like the moon, which receives light from the sun. [And also the "matters decreed by the Sages and Prophets in every generation" and the like, their foundation is also in the verse, "And you shall keep My charge — make a safeguard for My charge" — "to make a fence for the Torah as they heard from Moshe explicitly," which is the fulfillment of Moshe’s instruction in the Written Torah to make a fence for the Torah.]
+
+According to this, we can explain why initially "the two great luminaries" were created and afterwards the moon was diminished: The fact that the Oral Torah is a "recipient" from the Written Torah is only from the perspective of Bnei Yisrael, the receivers of the Torah, to whom the laws and commandments of the Oral Torah were given to be learned from the Written Torah through the thirteen hermeneutical principles by which the Torah is expounded, and the like [and certainly the "decrees, enactments, and customs" that the Sages made as a fence for the Torah, etc., which certainly depend on Bnei Yisrael, the receivers of the Torah].
+
+However, from the perspective of the Ribono shel Olam, the Giver of the Torah, the Oral Torah is not in the category of a "recipient" from the Written Torah. Both are in the category of "great luminaries," for "all were given by one Shepherd," and in the words of the Rambam, "All the mitzvos... were given with their explanation" (from Above). "He would tell him the mitzvah [the Written Torah] and afterwards He would tell him its explanation and content."
+
+E. More deeply:
+The fact that the Written Torah and the Oral Torah are called "sun" and "moon" is not only because of their relationship to one another (that the Oral Torah receives from the Written Torah), but (also) because in the Written Torah, the aspect of the Giver of the Torah (sun, *mashpia*) is emphasized, and in the Oral Torah, the aspect of the receivers of the Torah (moon, *mekabel*) is emphasized.
+
+This is like the simple difference between the Written Torah and the Oral Torah: the Written Torah is as it was delivered from Sinai, precisely in its letters, not lacking and not adding — in which it is emphasized that it is the Torah of Hashem (and there is no human grasp in it). The Oral Torah, however, is defined by human understanding (for when one does not understand what he is learning, it is not considered learning at all), and even to the point where Bnei Yisrael innovate in the Torah, meaning that the matters of the Oral Torah come and are revealed through Bnei Yisrael.
+
+In this, we can explain the precision of the Rambam’s language (regarding the order of the transmission of the Torah): "All the Torah was written by Moshe Rabbeinu... and he gave a scroll to every tribe... but the mitzvah, which is the explanation of the Torah, he did not write, but commanded it to the Elders, to Yehoshua, and to all the rest of Yisrael... and for this reason it is called the Oral Torah. Even though the Oral Torah was not written, Moshe Rabbeinu taught it all in his Beis Din to the seventy elders. And Elazar, Pinchas, and Yehoshua, all three received from Moshe... and many elders received from Yehoshua, and Eli received from the elders and from Pinchas," and he continues to count the details of the transmission of the Torah from generation to generation, which sage received from whom, until Rabbeinu HaKadosh who compiled the Mishnah, and until Rav Ashi who compiled the Babylonian Talmud, etc.
+
+Seemingly, one should note why the Rambam, in the chain of transmission of the Oral Torah, does not phrase it as he did regarding Yehoshua, that "to Yehoshua, who was the student of Moshe Rabbeinu, he transmitted the Oral Torah and commanded him regarding it," but rather in the manner of "so-and-so received from so-and-so," not writing that so-and-so transmitted to so-and-so, but that so-and-so received from so-and-so. This implies that the difference between the Written Torah and the Oral Torah is not only that the Written Torah "was written by Moshe Rabbeinu" and "the mitzvah, which is the explanation of the Torah, he did not write, but commanded it to the Elders," but also in this matter: that the transmission of the Written Torah is in a way that Moshe Rabbeinu gave it to every tribe, while in the Oral Torah, it is by way of reception, where all the Sages in every generation receive from the Sages of the generation before them.
+
+It can be said that this is in accordance with the aforementioned difference between the Written Torah and the Oral Torah — that in the Written Torah, the aspect of the Giver is emphasized, and in the Oral Torah, the aspect of the receiver is emphasized.
+
+F. However, this difference between the Written Torah and the Oral Torah is only from the perspective of Bnei Yisrael, the receivers of the Torah. But from the perspective of the Ribono shel Olam, the Giver of the Torah, the Oral Torah is also the Torah of Hashem, exactly like the Written Torah, without any difference between them in the manner of their giving.
+
+This is what the Rambam prefaces there: "All the mitzvos that were given to Moshe at Sinai were given with their explanation, as it is said, 'And I will give you the tablets of stone, and the Torah and the mitzvah' — 'Torah' is the Written Torah, and 'mitzvah' is its explanation, and He commanded us to perform the Torah according to the mitzvah, and this mitzvah is what is called the Oral Torah." That is, the aforementioned difference between the Written Torah and the Oral Torah, giving or receiving, is only from the perspective of Bnei Yisrael, but from the perspective of the Ribono shel Olam, both were given equally. In the words of my father-in-law, the Rebbe, of blessed memory: "Everything said in the Written Torah and the Oral Torah, both in Halacha and in Aggadah, and in all the books compiled by the Sages and righteous ones who learned Torah for its own sake... all of them were truly said by Hashem, and in the very same language in which they were said, exactly as they are."
+
+However, since the content of the Oral Torah is the "explanation" of the Written Torah, therefore, as the Torah is received in the giving below to Bnei Yisrael — where in their comprehension and grasp, the "explanation" of a thing is below the essence of the thing, and its purpose is only to explain its content [and like a teacher who learns with his student and needs to explain the content of his words, where the "explanation" is not the essence of the intellect hidden in his words (as it is for the teacher), but rather it is the teacher contracting his intellect to the level of the student so that the student can receive it and understand it with his intellect] — then the Oral Torah is in the category of a "recipient" from the Written Torah, and its content is the "reception" of Bnei Yisrael, to the point that the revelation of the Oral Torah is through Bnei Yisrael as discussed at length above.
+
+G. Now, just as with all these matters regarding the "sun" and "moon" in the Torah, so it is also with the sun and moon that shine upon the earth in the simple sense. The fact that there is a difference between the two luminaries, the "greater luminary" (the one that bestows light) and the "lesser luminary" (the one that receives light), is only as they are in the world ("from the perspective of the receiver"). But from the perspective of the act of the Ribono shel Olam, "And Elokim made," both are in the category of "great luminaries," "created equal," and neither is greater than the other.
+
+Simply put: the fact that the light of the moon is formed and created from the light of the sun is only as it is from the perspective of the laws of the world, but from the perspective of the Ribono shel Olam, the (light of the) moon is the creation of the Ribono shel Olam, exactly equal to the (light of the) sun — "And Elokim made the two great luminaries." However, since the definition of the moon’s light is that of a receiver, therefore, this light comes into reality and revelation through the sun.
+
+[Similar to what is explained regarding the matter of the rich and the poor (who are like the sun and moon, *mashpia* and *mekabel*) — that the fact that the poor person receives his sustenance from the rich person is not because he is essentially below him and needs him, but that the Ribono shel Olam provides his livelihood through the rich person. This is because the Ribono shel Olam wants there to be the mitzvah of *tzedakah*, therefore He created the world in such a way that there would be a *mashpia* and a *mekabel*, a rich person and a poor person —
+
+...for Me for having diminished the moon," which is to emphasize that as long as she is in the category of the "lesser luminary," where the moon is in a state of diminution, there is still a need for an "atonement" for her diminution, until the intention is completed in revelation in the time to come, "And the light of the moon shall be as the light of the sun," when there will be "two great luminaries" in revelation and in reality.
+
+(From the Sicha of the second day of the festival of Shavuos, 5747)
+
+---
+
+
+## נח
+
+_Section: נח_
+
+**Hebrew:**
+
+## שיחה א
+
+## 17
+
+וקדושה בעצם[ftnref\_127\_11] — וכמו שהי' מצבו של העולם (ד"כל העולם כולו מים במים") בתחילת ברייתו, שלא הי' בקשר לאיזה ענין של חטא (גם לא טהרה מחטא), שהרי עדיין לא היתה שום מציאות של חטא בעולם, וכל ענינו הי' רק "קלוסו של הקב"ה".
+ב. ויש לומר, שבדברי המדרש האלה נרמז ענין יסודי וכללי בשייכות לתורה — ובהקדמה:
+ידוע מאמר חז"ל[ftnref\_128\_12] שהתורה היא מהדברים ש"קדמו לעולם", וכאמרם[ftnref\_129\_13] "אלפיים שנה קדמה תורה לעולם". כלומר, למרות שאין מקרא יוצא מידי פשוטו[ftnref\_130\_14], ו"פשוטן" של דברי תורה הוא כפי שהתורה נלמדת בעולם הזה הגשמי דוקא — מ"מ "קדמה תורה לעולם", כי בכל תיבה ותיבה שבתורה יש (גם) פירוש פנימי ורוחני, כפי שהתורה נלמדת בעולמות עליונים רוחניים (שלמעלה מעלה מענינים גשמיים).
+ומובן, שכלל זה חל לא רק על ציוויי התורה, אלא גם על סיפורי התורה. דעם היות שכל סיפור שבתורה אירע בפשטות בכל פרטיו כפי המסופר בתורה, מ"מ, מכיון שהתורה קדמה לעולם, עכצ"ל שגם סיפורי התורה מכילים תוכן רוחני[ftnref\_131\_15] בהתאם למציאות התורה בעולמות עליונים[ftnref\_132\_16].
+[ואדרבה — כמאמר הידוע[ftnref\_133\_17], שהתורה "מדברת בעצם בעליונים ורומזות בשניות בתחתונים": לא רק שדברי תורה יכולים להתפרש גם לפי תוכנם הרוחני (כפי שהתורה היא "בעליונים"), כ"א להיפך: מקור והתחלת התורה הוא "בעליונים" (כמש"נ[ftnref\_134\_18] "ואהי' אצלו גו' שעשועים גו'", וכמחז"ל[ftnref\_135\_19] "חמדה גנוזה שגנוזה לך", ועוד), ומשם "ירדה" ונשתלשלה התורה עד למטה ובגשמיות (בל' הכתוב[ftnref\_136\_20] מן השמים דברתי עמכם; מן השמים השמיעך את קולו גו'), ולכן, "בעצם" מדברת התורה בעליונים וברוחניות, אלא כש"יורדת" למטה בעוה"ז, ניתנה להתפרש בפירושה הפשוט כפי שהוא "בתחתונים"].
+ונמצינו למדים ענין נוסף: מכיון שאצל הקב"ה "לא יגורך רע"[ftnref\_137\_21] — עכצ"ל, שגם ענינים אלו שבתורה שלפי פירושם הפשוט ("בתחתונים") הם ענינים בלתי רצויים (מעשים לא טובים, עונשים וכיו"ב), הרי בתורה כפי שהיא בעליונים (שלא יתכן בהם מציאות של רע) מתפרשים המה באופן שכולם קודש וטוב[ftnref\_138\_22].
+
+## 18
+
+ולהעיר מדברי הרמב"ם[ftnref\_139\_23] ד"אין הפרש בין. . ותמנע היתה פילגש[ftnref\_140\_24], ובין אנכי ה' אלקיך ושמע ישראל[ftnref\_141\_25], כי הכל מפי הגבורה, והכל תורת ה' תמימה טהורה וקדושה אמת": אף שפשטות המכוון בתיבות אלו ("תמנע היתה פלגש") הוא לאשה שהיתה בתכלית הירידה כו' (עד שלידתה היתה באופן דהיפך קיום שבע מצות ב"נ[ftnref\_142\_26]) — קצה ההפכי בתכלית מקדושת "אנכי ה"א" — מ"מ אין זה נוגע לקדושת תיבות אלו כמו שנכתבו בתורה, עד שאין הפרש כלל בין קדושת תיבות אלו לקדושת התיבות "אנכי ה"א", ד"הכל תורת ה' תמימה טהורה וקדושה אמת". כי אין הנידון מציאותה של "תמנע", כ"א הדיון בתורה אודותה, ודיון זה שבתורה הוא תמים טהור וקדוש באמת.
+וכ"ש וק"ו כפי שהתורה היא "בעליונים", ששם הענין ד"תמנע היתה פלגש" מעיקרא אינו אלא ענין רוחני הנמצא בעולם שכולו קדושה (מכיון דשם "לא יגורך רע").
+ג. יסוד זה מבאר ג"כ סיפור, לכאורה תמוה, אודות קריאת ה"תוכחה" (שבפ' תבוא) ע"י אדמו"ר הזקן:
+מסופר[ftnref\_143\_27]:
+רבינו הזקן הי' בעצמו הקורא בתורה. פעם אחת לא הי' בליאזנא ש"פ תבוא, ושמע אדמו"ר האמצעי — והוא עודנו נער קודם הבר מצוה — הקריאה מאחר. העגמת נפש מהקללות שבתוכחה הביאתו לכאב לב, עד שביוהכ"פ נסתפק רבינו הזקן אם יוכל להתענות. כששאלו את אדמו"ר האמצעי, הרי בכל שנה קוראים פרשה זו, ענה: כשאבא קורא "הערט זיך ניט קיין קללות".
+ולכאורה דורש ביאור: כאשר רבינו הזקן קרא בתורה — בתכלית הדיוק בכל התיבות והאותיות עם הנקודות וטעמים כו' — בודאי נשמע תוכנה של הקריאה כפשוטו (בהתאם להכלל[ftnref\_130\_14] "אין מקרא יוצא מידי פשוטו") — ומהו, איפוא, הפירוש בדברי אדהאמ"צ "כשאבא קורא הערט זיך ניט קיין קללות"?
+והביאור — ע"פ הנ"ל: ענין הקללות במובנן הפשוט הוא רק כפי שהענין נלמד למטה בעולם הפשט. אמנם כפי ש"התורה מדברת בעליונים", בעולם שכולו קדושה שאין לה שייכות למציאות של רע (ובמילא גם לא להעונש על רע) — הנה גם ענינים אלו (הקללות) תוכנם אך ורק קדושה וברכה.
+[וכפי שמפרש אדה"ז[ftnref\_145\_28] לענין הקללות דפ' בחוקותי, ש"לפי האמת אינם רק ברכות", ומביא הצ"צ[ftnref\_146\_29] דוגמא לזה מהסיפור המובא בש"ס[ftnref\_147\_30], דרשב"י שלח בנו לתנאים שנזדמנו במקומו שיברכוהו, אמנם הם ברכוהו "בלשון קללה"[ftnref\_148\_31] והי' מצטער מזה. וכשחזר דברי התנאים לפני אביו אמר לו "הנך כולהו ברכתא נינהו"[ftnref\_149\_32]].
+
+**English:**
+
+## Sicha 1
+
+## 17
+
+And holiness in essence—just as the state of the world was at the beginning of its creation, when "the entire world was water within water," having no connection to any matter of sin (nor even purification from sin), for there was not yet any reality of sin in the world, and its entire essence was only "the praise of the Ribono shel Olam."
+
+b. It can be said that in these words of the Midrash, a fundamental and general principle regarding Torah is hinted at—by way of introduction:
+
+It is a well-known statement of Chazal that the Torah is among the things that "preceded the world," as they say, "The Torah preceded the world by two thousand years." This means that although "a verse does not depart from its literal meaning," and the "literal" meaning of the words of Torah is how the Torah is studied specifically in this physical world—nevertheless, "the Torah preceded the world," because in every single word of the Torah there is (also) an inner, spiritual interpretation, as the Torah is studied in the supernal spiritual worlds (which are far above physical matters).
+
+It is understood that this rule applies not only to the commandments of the Torah, but also to the narratives of the Torah. Even though every narrative in the Torah occurred literally in all its details as recounted in the Torah, nevertheless, since the Torah preceded the world, it must be that the Torah's narratives also contain spiritual content corresponding to the reality of the Torah in the supernal worlds.
+
+[And on the contrary—as the well-known saying goes, that the Torah "speaks essentially in the supernal realms and hints secondarily in the lower realms": it is not just that the words of Torah can also be interpreted according to their spiritual content (as the Torah is "in the supernal realms"), but rather the opposite: the source and beginning of the Torah is "in the supernal realms" (as it is written, "And I was with Him... delights... and as Chazal say, 'A hidden treasure that is hidden for you,' and more), and from there the Torah "descended" and underwent *hishtalshelus* until it reached below and into physicality (in the words of the verse, "From the heavens I spoke with you; from the heavens He let you hear His voice..."). Therefore, "essentially," the Torah speaks in the supernal realms and in spirituality; it is only when it "descends" below into this world that it is given to be interpreted in its simple, literal meaning as it exists "in the lower realms."]
+
+We thus learn an additional point: since with the Ribono shel Olam "evil cannot dwell with You," it must be that even those matters in the Torah which, according to their simple interpretation ("in the lower realms"), are undesirable matters (improper actions, punishments, and the like)—in the Torah as it exists in the supernal realms (where the reality of evil is impossible), they are interpreted in a way that they are all holy and good.
+
+## 18
+
+It is worth noting the words of the Rambam that "there is no difference between... 'And Timna was a concubine,' and 'I am the Hashem your G-d' and 'Hear O Israel,' for everything is from the mouth of the Gevurah, and everything is the Torah of Hashem, perfect, pure, holy, and true." Even though the simple intent of these words ("And Timna was a concubine") refers to a woman who was in the ultimate state of descent (to the point that her birth was in a manner contrary to the fulfillment of the seven Noachide laws)—the complete opposite of the holiness of "I am the Hashem your G-d"—nevertheless, this does not affect the holiness of these words as they are written in the Torah, to the extent that there is no difference at all between the holiness of these words and the holiness of the words "I am the Hashem your G-d," for "everything is the Torah of Hashem, perfect, pure, holy, and true." For the subject is not the reality of "Timna," but rather the Torah's discussion regarding her, and this discussion within the Torah is truly perfect, pure, and holy.
+
+And all the more so *kal v'chomer* as the Torah exists "in the supernal realms," where the matter of "And Timna was a concubine" is from the outset nothing but a spiritual matter existing in a world that is entirely holy (since there, "evil cannot dwell with You").
+
+c. This principle also explains a story, seemingly puzzling, regarding the reading of the "Tochacha" (in Parshas Tavo) by the Alter Rebbe:
+
+It is related:
+Our Rebbe, the Alter Rebbe, would read the Torah himself. Once, he was not in Liozna on Shabbos Parshas Tavo, and the Mitteler Rebbe—while still a young boy before his Bar Mitzvah—heard the reading from someone else. The distress from the curses in the Tochacha brought him to such heartache that on Yom Kippur, the Alter Rebbe was in doubt whether he would be able to fast. When they asked the Mitteler Rebbe, "But every year this parsha is read," he answered: "When Father reads, one does not hear any curses."
+
+Seemingly, this requires explanation: when the Alter Rebbe read from the Torah—with the ultimate precision in all the words and letters, with the *nekudos* and *taamim*, etc.—the content of the reading was certainly heard according to its literal meaning (in accordance with the rule "a verse does not depart from its literal meaning"). What, then, is the interpretation of the Mitteler Rebbe's words, "When Father reads, one does not hear any curses"?
+
+The explanation is based on the above: the matter of the curses in their simple sense is only as the matter is studied below in the world of the literal. However, as "the Torah speaks in the supernal realms," in a world that is entirely holy and has no connection to the reality of evil (and consequently, not to the punishment for evil either)—these matters (the curses) are in their content nothing but holiness and blessing.
+
+[And as the Alter Rebbe explains regarding the curses in Parshas Bechukosai, that "in truth they are only blessings," and the Tzemach Tzedek brings an example of this from the story brought in the Gemara, where Rabbi Shimon bar Yochai sent his son to the Tannaim who were staying in his place so that they would bless him; however, they blessed him "in the language of a curse," and he was distressed by it. And when he repeated the words of the Tannaim before his father, he said to him, "They are all blessings."]
+
+---
+
+_Section: נח_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 24
+
+### שיחה ב
+
+א. כתב הרמב"ם[ftnref\_198\_1]: "אף על פי שקיים אדם מצות פרי' ורבי'[ftnref\_199\_2] הרי הוא מצווה מדברי סופרים שלא יבטל מלפרות ולרבות כל זמן שיש בו כח, שכל המוסיף נפש אחת בישראל[ftnref\_200\_3] כאילו בנה עולם".
+והקשו ע"ז[ftnref\_201\_4], דהרי בגמ'[ftnref\_202\_5] מפורש שמקורו וטעמו של דין זה הוא מהכתוב[ftnref\_203\_6] "בבוקר זרע את זרעך ולערב אל תנח ידך וגו'", וז"ל הגמרא: "ר' יהושע אומר נשא אדם אשה בילדותו ישא אשה בזקנותו היו לו בנים בילדותו יהיו לו בנים בזקנותו שנאמר בבוקר זרע את זרעך ולערב אל תנח ידך כי אינך יודע אי זה יכשר הזה או זה ואם שניהם כאחד טובים". וכן העתיק ופסק הרי"ף[ftnref\_204\_7], והביא כתוב זה. ואמאי השמיט הרמב"ם טעם הגמ' וכתב טעם חדש מדילי' ("שכל המוסיף כו'")[ftnref\_205\_8]?
+ב. והנה יש מפרשים[ftnref\_206\_9], שמהכתוב יש לדייק שני טעמים: (א) לפי רישא דקרא "כי אינך יודע אי זה יכשר גו'", ה"ז מטעם ספיקא (כפי' רש"י על הכתוב[ftnref\_207\_10]) "אם. . בנים שבילדותך יתקיימו לך או שמא לא יתקיימו אלא שבזקנותך": (ב) לפי סיפא דקרא "ואם שניהם כאחד טובים" אין זה מטעם ספיקא וחשש, אלא כל אימת שיכול להוסיף בהולדת בנים הרי הוא מצווה ע"ז.
+והיינו, דלטעם הא' עיקר החיוב הוא
+
+## 27
+
+ויש לומר שזהו יסוד החילוק בין שתי הגירסאות שישנן בגמ' שם, בקשר לדברי המשנה[ftnref\_226\_28] "לא יבטל אדם מפרי' ורבי' אלא א"כ יש לו בנים": לרוב הספרים גרסינן בגמ' "מתניתין דלאו כר' יהושע", אמנם הרי"ף (ועוד) לא הביא תיבות אלו[ftnref\_227\_29].
+והנה להגירסא "מתניתין [דקתני אא"כ כו' הא אם יש לו יבטל[ftnref\_228\_30]] דלאו כר"י", נקטינן כאופן הא' הנ"ל, שדברי ר"י הם מטעם (המשך) קיום מצות פו"ר ובע"כ פליג אמתניתין שדייקינן מינה דאם יש לו בנים נתקיימה מצות פו"ר במילואה ויכול ליבטל כו'.
+אבל להגירסא דליתא תיבות אלו בגמ' י"ל, שמאמר ר"י אינו בסתירה להמשנה (דמשמע הא אם יש לו בנים יכול ליבטל מפו"ר), כי הדין דר"י הוא דין וחיוב בפ"ע מדברי קבלה[ftnref\_229\_31] — ובזה לא איירי במתניתין.
+ועפ"ז י"ל שלכן משנה הרמב"ם מלשון ר"י "היו לו בנים בילדותו יהיו לו בנים בזקנותו" וכותב "אף על פי שקיים אדם מצות פרי' ורבי' הרי הוא מצווה מדברי סופרים שלא יבטל מלפרות ולרבות כל זמן שיש בו כח" — להשמיענו דבר זה גופא[ftnref\_230\_32] — שציווי הכתוב (בדברי קבלה) דגם בעת זקנותו יהיו לו בנים ("לערב אל תנח ידך"), אינו ענין וחיוב בפ"ע, אלא הוא מצד לתא דמצות פו"ר[ftnref\_231\_33], שיש חיוב תמידי (מד"ס) שלא יבטל מפו"ר (מקיום מצות פו"ר שמדאורייתא[ftnref\_232\_34]) כ"ז שיש בו כח.
+ויש לומר שהנפק"מ להלכה בין ב' אופנים אלו, היא בהדין דמוכרים ס"ת בשביל בנים (לישא אשה בת בנים)[ftnref\_233\_35] — אם ישנו גם כשכבר קיים מצות פו"ר (כשתי הדיעות בשו"ע בזה[ftnref\_234\_36]): לפי השיטה שהוא דין בפ"ע, הרי כיון שכבר קיים מצות פו"ר בשלימותה, שוב אינו מוכר ס"ת בשביל לישא אשה בת בנים; אבל אם הוא חיוב תמידי מצד לתא דמצות פו"ר, מסתבר שיש לו למכור ס"ת כדי לישא אשה בת בנים גם אם כבר קיים[ftnref\_235\_37] מצות פו"ר מה"ת[ftnref\_236\_38].
+ה. עפ"ז מובן בפשטות לשון הרמב"ם "שכל המוסיף נפש אחת בישראל כאילו בנה עולם":
+בלשון וטעם זה מתבאר התוכן הנ"ל — כי גדר של מצות פרי' ורבי' הוא — בנין העולם (לשבת יצרה), וכפשטות הכתובים[ftnref\_237\_39] "פרו ורבו ומלאו את הארץ (וכבשוה גו')".
+ומדייק הרמב"ם "שכל המוסיף נפש אחת בישראל כאילו בנה עולם", להדגיש שמצות פו"ר אינה מוגבלת רק לקיום חיובה, הולדת בן ובת, אלא שכל שהוא מוסיף בזה, ה"ז בכלל תוכנה (וגדרה) של מצוה זו — בנין העולם[ftnref\_238\_40], "כאילו בנה עולם".
+משא"כ הא דהל' דעות "יהי' לו בן אולי יהי' חכם וגדול בישראל" שייך רק לכוונתו בהולדת בנים, אבל אי"ז גדר קיום מצות פו"ר, שענינה "בנין עולם" בהולדת בנים ובנות (וגם אם הבן אינו "חכם וגדול בישראל").
+ו. ויש לומר, שענין זה ד"כל המוסיף נפש. . כאילו בנה עולם" מודגש בפרשתנו — פ' נח.
+דהנה "פרו ורבו" נאמר בתורה בפ' בראשית ובפ' נח[ftnref\_239\_41], ואחד החילוקים ביניהם הוא
+[נוסף ע"ז שהציווי על פרו ורבו (בפשש"מ[ftnref\_240\_42]) נאמר בפרשתנו[ftnref\_241\_43] "ואתם פרו ורבו", משא"כ בפ' בראשית[ftnref\_242\_44] שהוא לברכה[ftnref\_243\_45]]:
+בפ' בראשית נאמר זה לאדם הראשון, ומכיון שלפני אמירת (ברכה) ציווי זה לא היו לאדם בנים, מובן, שבזה מדובר בעיקר קיום פו"ר (הולדת בן ובת).
+משא"כ בפרשתנו נאמר "פרו ורבו" לנח ובניו — כלומר, לא רק לבני נח שעדיין לא היו להם בנים, אלא גם לנח
+
+## 28
+
+עצמו שכבר היו לו שלשה בנים[ftnref\_244\_46], גם לו נאמר "פרו ורבו ומלאו את הארץ", "פרו ורבו שרצו בארץ ורבו בה", שי"ל שבזה נרמז אשר גם הוספת נפש הוי בכלל קיום פו"ר, וכאילו בנה עולם.
+ז. וי"ל — כשם שהוא בענין מצות פו"ר כפשוטה, כך הוא גם בנוגע ל(תוכן) מצות פו"ר ברוחניות, שהוא לימוד התורה עם תלמידים[ftnref\_245\_47] (ובכללות — קירוב בני ישראל ליהדות, תורה ומצוותי') — כמחז"ל[ftnref\_246\_48] "כל המלמד בן חבירו תורה מעלה עליו הכתוב כאילו ילדו" — שאין בזה חילוק בין זמן ה"ילדות" לעת ה"זקנה", וכהמשך דברי הגמ'[ftnref\_247\_49], שלאחרי מאמר ר' יהושע בא מאמר ר' עקיבא "למד תורה בילדותו ילמוד תורה בזקנותו היו לו תלמידים בילדותו יהיו לו תלמידים בזקנותו שנאמר בבקר זרע גו'".
+כלומר, מלבד זאת שבחיוב ת"ת (לעצמו) אין חילוק בין בחור לזקן (כמ"ש הרמב"ם בהל' ת"ת[ftnref\_248\_50]), הנה גם בלימוד עם תלמידים (שהוא מ"ע מן התורה[ftnref\_249\_51]) ישנו הציווי (מדברי קבלה?) ד"לערב אל תנח ידך":
+לאחר שהאדם עסק והתייגע בהשפעה על הזולת במשך שנות הבחרות וגיל העמידה, הנה בהגיעו לעת זקנתו הרי אפשר שיאמר שעתה ינוח מעבודתו ויגיעתו אלו — בלשון הכתוב[ftnref\_250\_52] "יצא אדם לפעלו ולעבודתו עדי ערב" [כולל ה"ערב" דכללות ימי חייו[ftnref\_251\_53]] — בא הכתוב ואומר: "ולערב אל תנח ידך", שגם אז עליו להמשיך ולעסוק ב"פרו ורבו", לקרב עוד בנ"י ועוד בנ"י ליהדות, תורה ומצוותי'.
+ובזה מוסיף הרמב"ם, שטעם הדבר הוא, מפני "שכל המוסיף נפש אחת בישראל כאילו בנה עולם": ההכרח להוסיף בעבודתו זאת, אינו רק מפני החשש שעבודתו הקודמת לא היתה בשלימות (ועד שישנו חשש "אי זה יכשר גו'", ע"ד סיפור הגמ' שם אודות תלמידי ר' עקיבא), אלא שגם אם עבודתו הקודמת היתה בתכלית השלימות — אין לו להסתפק בכך, ועליו להוסיף בעבודתו גם ב"ערב", כי ע"י כל פעולה שלו ה"ז "כאילו בנה עולם".
+וע"פ משנת"ל בדברי הרמב"ם נמצא, שחיוב זה, שגם "לערב" יש להוסיף ב"מלמד את בן חבירו תורה" — אינו חיוב נוסף, לעשות דבר טוב ונעלה, אלא זהו המשך והשלמה לקיום מצות פו"ר (ברוחניות).
+ויש לבאר תוכן חידוש זה (שגם ההשפעה "בזקנותו" הוי בכלל מצות פו"ר ברוחניות) בפנימיות הענין:
+תכלית כל הבריאה היא כדי לעשות
+
+## 29
+
+לו ית' דירה בתחתונים[ftnref\_252\_54], וזהו תוכן הפנימי של "בנה עולם", לבנות לו ית' דירה. כלומר, שהעולם שמצ"ע הוא במצב של "העלם" והסתר, שלא ניכר בו שהתהוותו היא מ"אמתת המצאו"[ftnref\_253\_55], צריכים לבנותו ולעשות דבר חדש, לגלות בו את "אמתת המצאו".
+ושינוי וחידוש זה שבעולם נעשה ע"י שינוי וחידוש במצבם של בני ישראל:
+כל זמן שלא ניכר בכאו"א מישראל שהוא בן אברהם יצחק ויעקב והיא בת שרה רבקה רחל ולאה, נשאר העולם במצב שלא ניכר בו מקורו ושרשו; ועל ידי העבודה לגלות בכל או"א מישראל את שייכותו והתקשרותו להקב"ה ולתורתו ומצותיו, הוא פועל שכל העולם כולו נעשה דירה לו ית', "כאילו בנה עולם".
+ח. ע"פ הנ"ל יש לבאר גם הטעם שחז"ל תלו הגאולה דלעתיד בקיום מצות פו"ר, כמאמר[ftnref\_254\_56] "אין בן דוד בא עד שיכלו כל נשמות שב(אוצר ששמו) גוף", ואמרו[ftnref\_255\_57] "כמו שנגאלו ישראל ממצרים בזכות שהיו פרים ורבים כמו כן יגאלו לעתיד בזכות שהן פרים ורבים. . אין ישראל נגאלין אלא א"כ הם פרים ורבים ויהיו מלא כל העולם",
+כי ע"י סיום קיום מצות פו"ר — הן בגשמיות, עי"ז שכאו"א "לא יבטל" מקיום מצוה זו "כל זמן שיש בו כח" (כפסק דין ברור של הרמב"ם)[ftnref\_256\_58], והן ברוחניות — שמקרבים כאו"א מישראל לה' ולתורתו ולמצוותיו,
+באים לשלימות בנין העולם כולו, דהיינו שתתגלה בו מלכותו של הקב"ה[ftnref\_257\_59],
+וזה יהי' בתכלית השלימות לעתיד לבא, כאשר יקויים היעוד[ftnref\_258\_60] ונגלה כבוד ה' וראו כל בשר יחדיו כי פי ה' דבר.
+ואף שכל הגילויים דלעתיד תלויים בכל מעשינו ועבודתנו במשך זמן הגלות[ftnref\_259\_61], הרי מובן שבפרטיות בנין העולם מחדש נעשה ע"י הוספה בקיום מצות פו"ר בגשמיות וברוחניות, בנין העולם שבזמן הגלות, שע"י הוספת נפש אחת בישראל כאילו בנה עולם, וכ"ש וק"ו ע"י הוספת כו"כ נפשות מישראל,
+וזה ממהר ומזרז בנין "עולם חדש"[ftnref\_260\_62], השמים החדשים והארץ החדשה דלעת"ל[ftnref\_261\_63], והי' ה' למלך על כל הארץ ביום ההוא יהי' ה' אחד ושמו אחד[ftnref\_262\_64].
+[quotation](משיחת ש"פ שלח תשמ"ה) [/quotation]
+
+**English:**
+
+## Sicha 2
+
+### 24
+
+1. The Rambam writes: "Even if a person has already fulfilled the mitzvah of *peru u'rvu* (procreation), he is commanded by the words of the Sages not to cease from procreating as long as he has the strength, for whoever adds one soul in Yisrael is considered as if he has built a world."
+This has been questioned, for it is explicit in the Gemara that the source and reason for this law is the verse: "In the morning sow your seed, and in the evening do not withhold your hand, etc." The Gemara states: "Rabbi Yehoshua says: If a man married a wife in his youth, he should marry a wife in his old age; if he had children in his youth, he should have children in his old age, as it is said: 'In the morning sow your seed, and in the evening do not withhold your hand, for you do not know which will succeed, this or that, or if both alike are good.'" The Rif likewise copied and ruled this, citing this verse. Why then did the Rambam omit the reason given by the Gemara and write a new reason of his own ("for whoever adds, etc.")?
+
+2. Now, there are commentators who suggest that two reasons can be inferred from the verse: (a) According to the first part of the verse, "for you do not know which will succeed, etc.," it is a matter of uncertainty (as Rashi explains on the verse): "whether the children from your youth will survive, or perhaps only those from your old age." (b) According to the latter part of the verse, "or if both alike are good," it is not a matter of uncertainty or concern, but rather that whenever he is able to add to the birth of children, he is commanded to do so.
+This means that according to the first reason, the primary obligation is...
+
+## 27
+
+It may be said that this is the basis of the difference between the two versions found in the Gemara there, regarding the words of the Mishnah: "A person shall not cease from *peru u'rvu* unless he has children." In most texts, the Gemara reads: "The Mishnah is not in accordance with Rabbi Yehoshua," though the Rif (and others) did not include these words.
+
+Now, according to the version "The Mishnah [which teaches 'unless, etc.'—implying that if he has children, he may cease] is not in accordance with Rabbi Yehoshua," we follow the first approach mentioned above, that the words of Rabbi Yehoshua are a matter of (a continuation of) the fulfillment of the mitzvah of *peru u'rvu*, and he necessarily disagrees with the Mishnah, from which we infer that if he has children, the mitzvah of *peru u'rvu* has been fulfilled in its entirety and he may cease, etc.
+
+However, according to the version where these words are absent from the Gemara, it can be said that the statement of Rabbi Yehoshua is not in contradiction to the Mishnah (which implies that if he has children he may cease from *peru u'rvu*), because the law of Rabbi Yehoshua is a separate law and obligation derived from *Divrei Kabbalah*—and the Mishnah does not address this.
+
+Based on this, it can be said that this is why the Rambam changes the language of Rabbi Yehoshua, "If he had children in his youth, he should have children in his old age," and writes: "Even if a person has already fulfilled the mitzvah of *peru u'rvu*, he is commanded by the words of the Sages not to cease from procreating as long as he has the strength"—to inform us of this very point: that the command of the verse (in *Divrei Kabbalah*) that he should have children even in his old age ("in the evening do not withhold your hand") is not a separate matter or obligation, but is rather from the aspect of the mitzvah of *peru u'rvu*, in that there is a constant obligation (by the words of the Sages) not to cease from *peru u'rvu* (from the fulfillment of the Torah-level mitzvah of *peru u'rvu*) as long as he has the strength.
+
+It may be said that the practical difference in *halacha* between these two approaches is the law regarding selling a *Sefer Torah* for the sake of children (to marry a woman who can bear children)—whether it exists even when he has already fulfilled the mitzvah of *peru u'rvu* (as there are two opinions in the *Shulchan Aruch* regarding this): According to the view that it is a separate law, since he has already fulfilled the mitzvah of *peru u'rvu* in its entirety, he would not sell a *Sefer Torah* to marry a woman who can bear children; but if it is a constant obligation from the aspect of the mitzvah of *peru u'rvu*, it is logical that he should sell a *Sefer Torah* to marry a woman who can bear children even if he has already fulfilled the mitzvah of *peru u'rvu* according to the Torah.
+
+5. Based on this, the simple meaning of the Rambam's language, "for whoever adds one soul in Yisrael is considered as if he has built a world," is understood:
+In this language and reason, the aforementioned content is explained—for the definition of the mitzvah of *peru u'rvu* is the building of the world (*l'sheves yetzarah*), as per the simple meaning of the verses: "Be fruitful and multiply and fill the earth (and conquer it, etc.)."
+The Rambam emphasizes, "for whoever adds one soul in Yisrael is considered as if he has built a world," to highlight that the mitzvah of *peru u'rvu* is not limited only to the fulfillment of its obligation—the birth of a son and a daughter—but that any addition in this is included in the content (and definition) of this mitzvah—the building of the world, "as if he has built a world."
+This is unlike the statement in *Hilchos De'os* that "he should have a son, perhaps he will be a wise and great man in Yisrael," which relates only to his intention in the birth of children, but it is not the definition of the fulfillment of the mitzvah of *peru u'rvu*, whose essence is "the building of the world" through the birth of sons and daughters (even if the son is not a "wise and great man in Yisrael").
+
+6. It may be said that this concept of "whoever adds a soul... is considered as if he has built a world" is emphasized in our *parsha*—*Parshas Noach*.
+For "be fruitful and multiply" is stated in the Torah in *Parshas Bereishis* and in *Parshas Noach*, and one of the differences between them is:
+[In addition to the fact that the command for *peru u'rvu* (in its literal sense) is stated in our *parsha*, "And you, be fruitful and multiply," unlike in *Parshas Bereishis*, where it is a blessing]:
+In *Parshas Bereishis* it is said to Adam HaRishon, and since before the saying of this (blessing) command Adam did not have children, it is understood that this refers to the primary fulfillment of *peru u'rvu* (the birth of a son and a daughter).
+Unlike in our *parsha*, where "be fruitful and multiply" is said to Noach and his sons—meaning, not only to the sons of Noach who did not yet have children, but also to Noach
+
+## 28
+
+himself, who already had three sons, it was also said to him, "Be fruitful and multiply and fill the earth," "Be fruitful and multiply, swarm in the earth and multiply in it," which suggests that it is hinted here that even the addition of a soul is included in the fulfillment of *peru u'rvu*, and it is as if he has built a world.
+
+7. It may be said—just as it is regarding the mitzvah of *peru u'rvu* in its literal sense, so it is also regarding the (content of) the mitzvah of *peru u'rvu* in spirituality, which is teaching Torah to students (and in general—bringing the children of Yisrael closer to Yiddishkeit, Torah, and *mitzvos*)—as our Sages said: "Whoever teaches his friend's son Torah, the verse credits him as if he had birthed him"—that there is no difference in this between the time of "youth" and the time of "old age," as the continuation of the Gemara states: After the statement of Rabbi Yehoshua comes the statement of Rabbi Akiva: "If he learned Torah in his youth, he should learn Torah in his old age; if he had students in his youth, he should have students in his old age, as it is said: 'In the morning sow, etc.'"
+That is to say, besides the fact that in the obligation of Torah study (for oneself) there is no difference between a *bochur* and an old man (as the Rambam writes in *Hilchos Talmud Torah*), there is also in teaching students (which is a positive commandment from the Torah) the command (from *Divrei Kabbalah*?) of "in the evening do not withhold your hand":
+After a person has labored and exerted himself in influencing others during his years of youth and middle age, when he reaches his old age, it is possible that he might say that now he should rest from his labors and exertions—in the language of the verse, "Man goes out to his work and to his labor until the evening" [including the "evening" of the entirety of his days]—the verse comes and says: "And in the evening do not withhold your hand," that even then he must continue and engage in "be fruitful and multiply," to bring yet more *Bnei Yisrael* closer to Yiddishkeit, Torah, and *mitzvos*.
+And in this, the Rambam adds that the reason for this is because "whoever adds one soul in Yisrael is considered as if he has built a world": The necessity to add in this work of his is not only because of the fear that his previous work was not in its entirety (and to the point that there is a fear of "which will succeed, etc.," similar to the story in the Gemara there regarding the students of Rabbi Akiva), but that even if his previous work was in the ultimate perfection—he should not be satisfied with that, and he must add to his work even in the "evening," because through every action of his, it is "as if he has built a world."
+And according to what we have explained in the words of the Rambam, it is found that this obligation, that even "in the evening" one must add to "teaching his friend's son Torah"—is not an additional obligation to do something good and lofty, but is rather a continuation and completion of the fulfillment of the mitzvah of *peru u'rvu* (in spirituality).
+The content of this innovation (that even influence "in his old age" is included in the mitzvah of *peru u'rvu* in spirituality) can be explained in the inner dimension of the matter:
+The purpose of the entire creation is to make
+
+## 29
+
+for Him, may He be blessed, a dwelling place in the lower realms, and this is the inner content of "building a world," to build for Him, may He be blessed, a dwelling place. That is to say, that the world, which of itself is in a state of "concealment" and hiding, where it is not evident that its existence is from the "Truth of His Existence", must be built and made into a new thing, to reveal within it the "Truth of His Existence."
+And this change and innovation in the world is accomplished through a change and innovation in the state of the children of Yisrael:
+As long as it is not evident in every one of Yisrael that he is a son of Avraham, Yitzchak, and Yaakov, and she is a daughter of Sarah, Rivkah, Rachel, and Leah, the world remains in a state where its source and root are not evident; and through the *avodah* to reveal in every one of Yisrael his connection and *hiskashrus* to Hashem and His Torah and *mitzvos*, he causes the entire world to become a dwelling place for Him, may He be blessed, "as if he has built a world."
+
+8. Based on the above, the reason why our Sages linked the future *Geulah* to the fulfillment of the mitzvah of *peru u'rvu* can also be explained, as it is said: "The son of Dovid will not come until all the souls in the (treasury called) *guf* are exhausted," and they said: "Just as Yisrael were redeemed from Mitzrayim in the merit that they were fruitful and multiplying, so too will they be redeemed in the future in the merit that they are fruitful and multiplying... Yisrael are not redeemed unless they are fruitful and multiplying and the entire world will be full."
+Because through the completion of the fulfillment of the mitzvah of *peru u'rvu*—both in the physical, through which everyone "shall not cease" from the fulfillment of this mitzvah "as long as he has the strength" (as a clear ruling of the Rambam), and in the spiritual—that they bring everyone of Yisrael closer to Hashem and His Torah and His *mitzvos*,
+they arrive at the perfection of the building of the entire world, which is that the Kingdom of Hashem will be revealed within it,
+and this will be in the ultimate perfection in the time to come, when the prophecy will be fulfilled: "And the glory of Hashem shall be revealed, and all flesh together shall see that the mouth of Hashem has spoken."
+And although all the revelations of the future depend on all our deeds and *avodah* during the time of *Galus*, it is understood that specifically the building of the world anew is accomplished through the addition in the fulfillment of the mitzvah of *peru u'rvu* in the physical and in the spiritual, the building of the world that is during the time of *Galus*, through which, by adding one soul in Yisrael, it is as if he has built a world, and all the more so through the addition of many souls of Yisrael,
+and this hastens and speeds the building of a "new world", the new heavens and the new earth of the time to come, and "Hashem shall be King over all the earth; on that day Hashem shall be One and His Name One".
+
+(From the *Sicha* of *Shabbos Parshas Shelach*, 5745)
+
+---
+
+_Section: נח_
+
+**Hebrew:**
+
+## שיחה ג
+
+## 31
+
+### שיחה ג
+
+א. "והיתה הקשת בענן וראיתי' לזכור ברית עולם בין אלקים ובין כל נפש חי' בכל בשר אשר על הארץ"[ftnref\_263\_1]. בפירושו מעתיק רש"י את התיבות "בין אלקים ובין כל נפש חי'" ומפרש: "בין מדת הדין של מעלה וביניכם, שהי' לו לכתוב ביני ובין כל נפש חי', אלא זהו מדרשו, כשתבוא מדת הדין לקטרג עליכם לחייב אתכם אני רואה את האות ונזכר".
+לפום ריהטא נראה שכוונת רש"י לתרץ השאלה (שמביא בפירושו) "שהי' לו לכתוב ביני כו'" (כיון שכ"ז הוא חלק מאמירת הקב"ה, "ויאמר אלקים"[ftnref\_264\_2]), וע"ז מפרש שהכוונה ב"אלקים" כאן היא ל"מדת הדין של מעלה".
+אבל צ"ע, שהרי מצינו ש"דרך המקראות לדבר כן", כמו שפירש רש"י עצמו בפ' וירא עה"פ[ftnref\_265\_3] "וה' המטיר על סדום גו' מאת ה' מן השמים", ש"אמר מאת ה' ולא אמר מאתו" — כי "דרך המקראות לדבר כן", ומביא ע"ז כמה דוגמאות, כולל דוגמא מפ' בראשית[ftnref\_266\_4] "כמו נשי למך ולא אמר נשיי", הרי שכבר בפ' בראשית אתי שפיר לשון הכתוב מטעם ש"דרך המקראות לדבר כן".
+[במקומו בפ' בראשית שם לא פרש"י מאומה. ויש לומר הטעם, כי משם אין הכרח ש"דרך המקראות לדבר כן", כיון שהתם ה"ה דברי למך המובאים במקרא ולא לשון הכתוב עצמו, ולכן אין מזה הוכחה שזוהי גם "דרך המקראות". משא"כ בפ' וירא, שזוהי לשון המקרא — "וה' המטיר גו' מאת ה'" — הוכחה ברורה ש"דרך המקראות לדבר כן"].
+וכיון ש"דרך המקראות לדבר כן" (וכדמצינו בכמה מקומות), מהו הכרחו של רש"י לפרש את הכתוב כאן ע"פ "מדרשו" (ד"בין אלקים" היינו "בין מדת הדין"), ולא כפשוטו, דמה שלא נאמר "ביני" הוא כי "דרך המקראות לדבר כן"[ftnref\_267\_5].
+ב. גם צריך להבין האריכות בלשון רש"י:
+א) ידוע שאין דרכו של רש"י לכתוב פירושו בדרך קושיא ותירוץ, אלא הוא כותב פירוש הכתוב בסגנון שהקושיא מסתלקת מאלי' — וא"כ, גם בנדו"ד הי' מספיק לכאורה שיכתוב "בין מדת הדין של מעלה כו'", ומדוע הוזקק רש"י להאריך ולפרש את השאלה "שהי' לו לכתוב ביני ובין כל נפש חי'"?
+ב) לכאורה חידושו של רש"י הוא רק בנוגע לתיבת ("בין) אלקים", שפירושה "מדת הדין של מעלה" — וא"כ מדוע (א) הוא מעתיק מהכתוב גם תיבות "ובין כל נפש חי'"; (ב) וכן בגוף פירושו חוזר ומפרט "וביניכם. . ובין כל נפש חי'" —
+
+## 33
+
+ד) "ביניכם" — מדוע שינה רש"י מלשון הכתוב "ובין כל נפש חי'"? ואין לומר דהיינו הך אלא שנקט לשון קצר — שהרי אין זה שינוי בלשון בלבד, אלא גם בתוכן, כי "ביניכם" ו"בין כל נפש חי'" מכוונים לשני סוגים שונים, כמפורש בכתוב שלפנ"ז "וזכרתי את בריתי גו' ביני וביניכם ובין כל נפש חי' בכל בשר" (וכפשטות הענין, ד"ביניכם" קאי על בני אדם, ו"כל נפש חי'" קאי על כל בעל חי).
+וביותר תמוה: תיכף לאח"ז ממשיך רש"י "שהי' לו לכתוב ביני ובין כל נפש חי'" (ולא כתב "וביניכם")!
+ד. ויש לומר הביאור בכל זה:
+עיקר הקושי בכתוב (שאותו בא רש"י לתרץ בפירושו) אינו "שהי' לו לכתוב ביני" (ולא "בין אלקים") — כי ע"ד הפשט הרי "דרך המקראות לדבר כן" — אלא רש"י בא (בעיקר) לתרץ שאלה כללית בכתוב זה — והיא:
+כל פסוק זה, "והיתה הקשת בענן וראיתי' לזכור ברית עולם בין אלקים ובין כל נפש חי' גו'", לכאורה מיותר הוא[ftnref\_277\_14] — כי כל הפרטים שבו, כבר נאמרו בפסוקים שלפנ"ז[ftnref\_278\_15]: "את קשתי נתתי בענן והיתה לאות ברית גו' והי' בענני ענן גו' וזכרתי את בריתי אשר ביני וביניכם ובין כל נפש חי' גו' ולא יהי' עוד המים גו'".
+ועכצ"ל שכתוב זה בא ללמדנו ענין חדש שלא נאמר עדיין[ftnref\_279\_16]. וזוהי כוונת רש"י בהעתיקו מן הכתוב את התיבות "בין אלקים ובין כל נפש חי'" — כי בתיבות אלו מרומז החידוש שלא נודע עד כה, ומפרש רש"י מהו החידוש — "בין מדת הדין של מעלה וביניכם".
+כלומר: ה"ברית" שבפסוקים הקודמים היא בין הקב"ה והעולם ("ביני ובין הארץ"[ftnref\_280\_17]), וענינה, ש"כשתעלה במחשבה לפני להביא חשך ואבדון לעולם"[ftnref\_281\_18], אזי "ונראתה הקשת בענן, וזכרתי את בריתי גו' ולא יהי' עוד המים למבול גו'". אבל כאן נתוסף עוד ענין של ברית — "בין מדת הדין. . וביניכם", היינו שלא זו בלבד שהקב"ה ירחם אז על העולם ולא יביא מבול, אלא שמדת הדין גופא תחדל מלקטרג ועד שתיהפך לרחמים [וכפשטות לשון (הכתוב ו)רש"י, שה"ברית" היא בין מדת הדין וביניכם].
+וי"ל שענין זה הוא המשך להנאמר לפנ"ז[ftnref\_272\_9] "ויזכור אלקים את נח", ופרש"י שם ש"זה השם מדת הדין הוא ונהפכה למדת רחמים על ידי תפלת הצדיקים", שבהמשך לתפלתו של נח שהפכה את מדת הדין למדת הרחמים, ישנה ברית מיוחדת עם מדת הדין של מעלה, שעל ידי הקשת תתהפך מדת הדין לרחמים.
+ועפ"ז מדוייק לשון רש"י "בין מדת הדין של מעלה וביניכם": (א) מאחר שהמדובר בברית נוספת על הברית שבין הקב"ה והארץ, יש מקום לטעות שהכוונה בהברית "בין מדת הדין וביניכם" היא לברית עם בית דין ("מדת הדין") של מטה (שנקרא ג"כ "אלקים"
+
+## 34
+
+בכתוב[ftnref\_283\_19]) — שהרי כבר ישנה ברית עם הקב"ה — ולכן מדגיש רש"י שגם ברית זו השני' היא עם "מדת הדין של מעלה"[ftnref\_284\_20]. (ב) רש"י כ' "וביניכם" (ולא "ובין כל נפש חי'"), דקאי בפשטות על בני אדם — כי עיקר הצורך ב"ברית" עם מדת הדין הוא בנוגע לבני אדם, שעליהם הוא עיקר קטרוגה של מדת הדין (כדיוק לשון רש"י בהמשך פירושו "לקטרג עליכם לחייב אתכם"[ftnref\_285\_21]), משא"כ "כל נפש חי'" שלא שייך עליהם (כ"כ) קטרוג של מדת הדין כיון שאינם בעלי בחירה[ftnref\_286\_22].
+ה. אלא שעדיין קשה: איך אפ"ל שהחידוש בכתוב זה הוא שכאן מדובר בברית ש"בין אלקים גו'" (מדת הדין של מעלה) — והרי גם הפסוקים שלפנ"ז הם דברים שנאמרו על ידי "אלקים", כהתחלת הפסוקים "ויאמר אלקים", וא"כ גם הברית ש"ביני ובין הארץ" היא "בין אלקים גו'"[ftnref\_287\_23] (שאמר ע"ד ברית זו), דהיינו מדת הדין, והדרא קושיא לדוכתא, מה נתחדש בפסוק זה?
+ולכן ממשיך רש"י לבאר ולהוכיח, שאכן הדיוק "בין אלקים" הוא הוא החידוש שבפסוק זה — "שהי' לו לכתוב ביני ובין כל נפש חי'". כלומר, אין כוונת רש"י כאן להקשות איך מתאים לכתוב "בין אלקים" (מאחר שהוא דיבור המתחיל ב"ויאמר אלקים"), אלא לדייק השינוי בין פסוק זה להקודם לו — ששם נאמר "וזכרתי את בריתי אשר ביני וביניכם גו'", ומאי טעמא משנה כאן הכתוב ואומר "בין אלקים"? ומזה מוכח, שזהו החידוש בהברית שבפסוק זה לגבי הברית שבפסוק הקודם: אע"פ שגם בהפסוקים שלפנ"ז נאמר שם אלקים, אעפ"כ אין בזה הוכחה דמ"ש "ביני" היינו מדת הדין; משא"כ בפסוק זה, מכיון שבמקום "ביני" כתוב "בין אלקים", יש ללמוד שהכוונה כאן היא למדת הדין.
+וההסברה בזה:
+"אלקים" פירושו (כפרש"י לעיל[ftnref\_288\_24]) "שליט ושופט" (ובמק"א[ftnref\_289\_25] כ' "כל אלקים שבמקרא לשון מרות"), שמזה מובן, ששם אלקים אינו מורה בכל מקום על מדת הדין (בניגוד למדת הרחמים), אלא הכוונה להקב"ה כשליט על הארץ. וכן בעניננו, דמ"ש לעיל "ויאמר אלקים זאת אות הברית גו'", המכוון הוא שהקב"ה הוא השולט על הארץ, וקבע בעולמו אות ברית — "את קשתי נתתי בענן גו'". משא"כ בפסוק דידן, כנ"ל.
+ועפ"ז מובן המשך לשון רש"י "אלא זהו מדרשו כשתבוא כו'" — כי ע"פ פשט הכתוב, מש"נ "בין אלקים" הוא כאילו הי' כתוב כאן "ביני" (וכנ"ל שכן הוא
+
+## 35
+
+דרך המקראות לדבר), אלא שע"פ מדרש אפשר לפרש, דמש"נ שתי פעמים "אלקים" בכתובים אלו ("ויאמר אלקים גו' והיתה הקשת גו' לזכור ברית עולם בין אלקים ובין כל נפש חי' גו'"), הנה השם הראשון קאי על הקב"ה (ה"שליט ושופט"), והשני על מדת הדין של מעלה.
+[נוסף לזה, שעצם הפירוש, שהקב"ה עשה ברית בין "מדת הדין" שלו ובין הארץ, אינו ענין של פשט אלא מדרש ואגדה].
+ו. אמנם, אא"פ לרש"י להסתפק בכך, כי אינו מובן — סו"ס מהו החידוש של הברית הב' לגבי הברית הא'? כיון שכל פעם "שתעלה במחשבה לפני להביא חשך ואבדון לעולם" יזכור הקב"ה את בריתו שלא "לשחת כל בשר" — למאי נפק"מ ומה מוסיפה הברית עם מדת הדין ("בין אלקים"), שמדת הדין עצמה מתהפכת לרחמים?
+ולכן מסיים רש"י "כשתבוא מדת הדין לקטרג עליכם לחייב אתכם אני רואה את האות ונזכר": "קטרוג" פירושו לא רק טענה הבאה לחייב את האדם ולהענישו כפי מעשיו, אלא זוהי טענה והשתדלות יתירה[ftnref\_290\_26] לחייבו יותר ממה שהוא מחוייב מצד שורת הדין.
+ע"ד שמצינו (גם בפרש"י[ftnref\_291\_27]) שהשטן מקטרג בשעת הסכנה — דלכאורה, ממנ"פ: אם האדם חייב עונש, מדוע אין השטן מקטרג גם שלא בשעת הסכנה? ואם אינו חייב כלום, מה יועיל לו להשטן קטרוגו? אלא הפירוש בזה, שיש ענינים שבזמנים רגילים אין מענישים עליהם, אלא שכשיש סכנה וצריכים שמירה יתירה, אזי מועיל קטרוגו של שטן לחייב את האדם גם על ענינים אלו.
+וכן בעניננו: יש מצבים שהנהגת העולם היא באופן שגורמת מחשבה לפני הקב"ה "להביא חשך ואבדון לעולם", וע"ז באה הברית הא' "ביני ובין הארץ", שהקב"ה יזכור את הברית ולא ישחת עוד את הארץ.
+אבל לפעמים יש מצב ששייך קטרוג[ftnref\_292\_28] מצד "מדת הדין", "לחייב אתכם" עוד יותר מכפי שורת הדין, וכדי לבטל מעיקרא דבר כזה, עשה הקב"ה עוד ברית "בין אלקים ובין כל נפש חי'", דהיינו "בין מדת הדין של מעלה וביניכם", שעל ידי זה נשללת מעיקרא האפשריות של קטרוג, וכדיוק לשון רש"י "כשתבוא מדת הדין לקטרג כו'" אזי תיכף "אני רואה את האות ונזכר", באופן שמלכתחילה אינו בא לידי קטרוג בפועל,
+כי מדת הדין עצמה נהפכת לרחמים, והיא פוסקת אך טוב לישראל, בטוב הנראה והנגלה, למטה מעשרה טפחים.
+[quotation](משיחת ש"פ נח תשד"מ) [/quotation]
+
+**English:**
+
+## Sicha 3
+
+### 31
+
+A. "And the rainbow shall be in the cloud, and I will see it, to remember the everlasting covenant between Elokus and every living soul of all flesh that is upon the earth". In his commentary, Rashi copies the words "between Elokus and every living soul" and explains: "Between the attribute of justice above and you; for it should have written 'between Me and every living soul,' but this is its Midrashic interpretation: when the attribute of justice comes to prosecute you to find you guilty, I see the sign and remember."
+
+At first glance, it appears that Rashi’s intent is to resolve the question (which he brings in his commentary) of why it did not write "between Me..." (since this entire passage is part of Hashem’s statement, "And Elokus said"), and to this he explains that the meaning of "Elokus" here is "the attribute of justice above."
+
+However, this requires study, for we find that it is "the way of the Scriptures to speak this way," as Rashi himself explains in Parshas Vayeira regarding the verse "And Hashem rained upon Sedom... from Hashem from the heavens," that it said "from Hashem" and did not say "from Him"—because "it is the way of the Scriptures to speak this way." He brings several examples of this, including an example from Parshas Bereishis, "like the wives of Lemech," and did not say "my wives," which shows that even in Parshas Bereishis, the wording of the verse is understood because "it is the way of the Scriptures to speak this way."
+
+[In its place in Parshas Bereishis, Rashi does not explain anything. The reason may be that from there it is not necessarily proven that "it is the way of the Scriptures to speak this way," since those are the words of Lemech quoted in the Scripture and not the language of the Scripture itself, and therefore it is not proof that this is also "the way of the Scriptures." This is unlike Parshas Vayeira, where it is the language of the Scripture—"And Hashem rained... from Hashem"—which is clear proof that "it is the way of the Scriptures to speak this way."]
+
+And since "it is the way of the Scriptures to speak this way" (as we find in several places), what is Rashi’s necessity to explain the verse here according to its "Midrashic interpretation" (that "between Elokus" means "between the attribute of justice"), rather than according to its literal meaning, that the reason it does not say "between Me" is because "it is the way of the Scriptures to speak this way"?
+
+B. One must also understand the lengthiness of Rashi’s language:
+1) It is known that it is not Rashi’s way to write his commentary in the form of a question and answer; rather, he writes the explanation of the verse in a style where the question resolves itself. If so, in this case too, it would seemingly have sufficed for him to write "between the attribute of justice above, etc.," so why was Rashi compelled to lengthen his words and explain the question, "it should have written 'between Me and every living soul'"?
+2) Seemingly, Rashi’s innovation is only regarding the word "Elokus," that it means "the attribute of justice above." If so, why (a) does he copy from the verse the words "and between every living soul" as well; and (b) why does he repeat and specify in the body of his explanation "and between you... and between every living soul"—
+
+## 33
+
+4) "Between you"—why did Rashi change from the language of the verse "and between every living soul"? One cannot say that it is the same thing and he just used concise language, for this is not merely a change in language but also in content, as "between you" and "between every living soul" refer to two different categories, as is explicitly stated in the preceding verse: "And I will remember My covenant... between Me and between you and between every living soul of all flesh" (and according to the simple meaning, "between you" refers to human beings, and "every living soul" refers to all animals).
+And even more puzzling: immediately afterward, Rashi continues, "for it should have written 'between Me and every living soul'" (and he did not write "and between you")!
+
+D. The explanation for all this is as follows:
+The primary difficulty in the verse (which Rashi comes to resolve in his commentary) is not "that it should have written 'between Me'" (and not "between Elokus")—for according to the literal meaning, "it is the way of the Scriptures to speak this way." Rather, Rashi comes (primarily) to resolve a general question regarding this verse—which is:
+This entire verse, "And the rainbow shall be in the cloud, and I will see it, to remember the everlasting covenant between Elokus and every living soul, etc.," is seemingly superfluous, for all its details have already been stated in the preceding verses: "I have set My bow in the cloud and it shall be for a sign of a covenant... and it shall be when I bring clouds... and I will remember My covenant which is between Me and between you and between every living soul of all flesh... and the waters shall no longer be for a flood, etc."
+Therefore, it must be that this verse comes to teach us a new matter that had not yet been stated. This is Rashi’s intent in copying from the verse the words "between Elokus and every living soul"—for in these words the innovation that was not known until now is hinted at, and Rashi explains what the innovation is: "between the attribute of justice above and you."
+That is to say: The "covenant" in the previous verses is between Hashem and the world ("between Me and the earth"), and its meaning is that "when it arises in thought before Me to bring darkness and destruction to the world", then "the rainbow shall be seen in the cloud, and I will remember My covenant... and the waters shall no longer be for a flood." But here, another matter of a covenant is added—"between the attribute of justice... and you," meaning that not only will Hashem have mercy on the world then and not bring a flood, but the attribute of justice itself will cease to prosecute and will even be transformed into mercy [as is the simple meaning of the language of (the verse and) Rashi, that the "covenant" is between the attribute of justice and you].
+It can be said that this matter is a continuation of what was stated previously, "And Elokus remembered Noach," and Rashi explains there that "this name is the attribute of justice and it was transformed into the attribute of mercy through the prayers of the righteous." Thus, as a continuation of Noach’s prayer which transformed the attribute of justice into the attribute of mercy, there is a special covenant with the attribute of justice above, that through the rainbow, the attribute of justice will be transformed into mercy.
+Based on this, Rashi’s language "between the attribute of justice above and you" is precise: (a) Since we are speaking of a covenant in addition to the covenant between Hashem and the earth, there is room to err that the intent of the covenant "between the attribute of justice and you" is a covenant with the earthly court ("the attribute of justice") (which is also called "Elokus"
+
+## 34
+
+in the Scripture)—since there is already a covenant with Hashem—and therefore Rashi emphasizes that this second covenant is also with "the attribute of justice above". (b) Rashi wrote "and between you" (and not "and between every living soul"), because it refers simply to human beings—for the primary need for a "covenant" with the attribute of justice is regarding human beings, upon whom the prosecution of the attribute of justice primarily rests (as per the precision of Rashi’s language later in his commentary, "to prosecute you to find you guilty"), unlike "every living soul," upon whom the prosecution of the attribute of justice does not apply (to the same extent) because they are not beings with free choice.
+
+E. However, it is still difficult: How can it be said that the innovation in this verse is that it speaks of a covenant "between Elokus, etc." (the attribute of justice above)—when the preceding verses are also words spoken by "Elokus," as the beginning of the verses states, "And Elokus said," and if so, the covenant "between Me and the earth" is also "between Elokus, etc." (who spoke regarding this covenant), which is the attribute of justice? The question returns to its place: what is the innovation in this verse?
+Therefore, Rashi continues to explain and prove that indeed the precision of "between Elokus" is the very innovation of this verse—"for it should have written 'between Me and every living soul.'" That is to say, Rashi’s intent here is not to question how it is appropriate to write "between Elokus" (since it is a statement beginning with "And Elokus said"), but to emphasize the change between this verse and the one preceding it—where it says "and I will remember My covenant which is between Me and between you, etc." Why does the verse change here and say "between Elokus"? From this it is proven that this is the innovation in the covenant of this verse relative to the covenant of the previous verse: even though the name Elokus is also mentioned in the preceding verses, nevertheless, there is no proof that what it says "between Me" refers to the attribute of justice; whereas in this verse, since instead of "between Me" it is written "between Elokus," we must learn that the intent here is the attribute of justice.
+The explanation for this is:
+"Elokus" means (as Rashi explains above) "ruler and judge" (and in another place he writes "every 'Elokus' in Scripture is a term of authority"), from which it is understood that the name Elokus does not denote the attribute of justice (in contrast to the attribute of mercy) in every place, but rather refers to Hashem as the Ruler over the earth. Similarly in our case, what was said above, "And Elokus said, this is the sign of the covenant, etc.," the intent is that Hashem is the Ruler over the earth, and He established in His world a sign of a covenant—"I have set My bow in the cloud, etc." This is not the case in the verse at hand, as stated above.
+Based on this, the continuation of Rashi’s language is understood, "but this is its Midrashic interpretation: when it comes, etc."—for according to the literal meaning of the verse, what is written "between Elokus" is as if it had been written "between Me" (and as stated above, such is
+
+## 35
+
+the way of the Scriptures to speak). However, according to the Midrash, it is possible to explain that since "Elokus" is written twice in these verses ("And Elokus said, etc." and "the rainbow shall be... to remember the everlasting covenant between Elokus and every living soul, etc."), the first name refers to Hashem (the "Ruler and Judge"), and the second refers to the attribute of justice above.
+[In addition to the fact that the very interpretation that Hashem made a covenant between His "attribute of justice" and the earth is not a matter of literal meaning, but rather Midrash and Aggadah].
+
+F. However, Rashi cannot be satisfied with this, for it is not understood—after all, what is the innovation of the second covenant relative to the first? Since every time "it arises in thought before Me to bring darkness and destruction to the world," Hashem will remember His covenant not to "destroy all flesh"—what is the practical difference, and what does the covenant with the attribute of justice ("between Elokus") add, that the attribute of justice itself is transformed into mercy?
+Therefore, Rashi concludes, "when the attribute of justice comes to prosecute you to find you guilty, I see the sign and remember": "Prosecution" means not just a claim that comes to find a person guilty and punish him according to his deeds, but it is a claim and an extra effort to find him guilty more than he is obligated according to the letter of the law.
+Similar to what we find (also in Rashi) that the Satan prosecutes during a time of danger—for seemingly, either way: if a person is deserving of punishment, why does the Satan not prosecute even when it is not a time of danger? And if he is not deserving of anything, what will his prosecution help the Satan? Rather, the explanation is that there are matters for which one is not punished during normal times, but when there is danger and one requires extra protection, then the Satan’s prosecution is effective in finding the person guilty even for these matters.
+So too in our case: there are situations where the governance of the world is in a manner that causes a thought before Hashem "to bring darkness and destruction to the world," and for this, the first covenant, "between Me and the earth," comes, that Hashem will remember the covenant and will not destroy the earth again.
+But sometimes there is a situation where a prosecution is possible from the side of the "attribute of justice," "to find you guilty" even more than the letter of the law, and in order to nullify such a thing from the outset, Hashem made another covenant "between Elokus and every living soul," meaning "between the attribute of justice above and you," through which the possibility of prosecution is negated from the outset. As per the precision of Rashi’s language, "when the attribute of justice comes to prosecute you, etc.," then immediately "I see the sign and remember," in such a way that from the start it does not come to actual prosecution,
+because the attribute of justice itself is transformed into mercy, and it decrees only good for Yisrael, in a good that is seen and revealed, below ten handbreadths.
+
+(From the Sicha of Shabbos Parshas Noach, 5744)
+
+---
+
+
+## לך לך
+
+_Section: לך לך_
+
+**Hebrew:**
+
+## שיחה א
+
+## 36
+
+### שיחה א
+
+א. בפרשתנו מסופר ע"ד שלש מזבחות שבנה אברהם אבינו: (א) ויבן שם מזבח לה' הנראה אליו[ftnref\_293\_1], (ב) ויבן שם מזבח לה' ויקרא בשם ה'[ftnref\_294\_2], (ג) ויבן שם מזבח לה'[ftnref\_295\_3]. וביארו חז"ל[ftnref\_296\_4]: ג' מזבחות בנה אחד לבשורת א"י וא' לקנינה וא' שלא יפלו בניו. כלומר, שכל אחד מג' מזבחות אלו בנה אברהם לשם ענין בפ"ע[ftnref\_297\_5]: הראשון, שנבנה לאחר דיבור השם אל אברם "לזרעך אתן את הארץ הזאת"[ftnref\_293\_1], הי' "לבשורת א"י"; המזבח שבנה סמוך לעי הי' לשם תפלה[ftnref\_299\_6] "שלא יפלו בניו בעי"[ftnref\_300\_7]; והמזבח השלישי, שבנה לאחר קיום ציווי ה' "קום התהלך בארץ לארכה ולרחבה כי לך אתננה"[ftnref\_301\_8], שעי"ז "זכה בה"[ftnref\_302\_9], הי' "לקנינה" (של א"י)[ftnref\_303\_10].
+רש"י בפירושו על התורה מביא תוכן דברי המדרש בנוגע לשני המזבחות הראשונים — על הפסוק "ויבן שם מזבח" (שנאמר בפעם הראשונה) מפרש "על בשורת הזרע ועל בשורת א"י", ועל "ויבן שם מזבח" השני כותב "נתנבא שעתידין בניו להכשל שם על עון עכן והתפלל שם עליהם" — אבל בנוגע למזבח השלישי (לאחר ציווי ה' "קום התהלך בארץ גו'") סתם רש"י ולא פירש כלום.
+הטעם שלא פירש רש"י כהמדרש[ftnref\_304\_11] שהמזבח השלישי הי' "לקנינה" — יש לומר: דברי המדרש הם להשיטה[ftnref\_305\_12] שע"י הליכת אברהם לארכה ולרחבה "זכה בה" (שעל ידי הילוך קנה)[ftnref\_306\_13], ולכן מתאים לומר שמזבח זה הי' "לקנינה"[ftnref\_307\_14]; ואולם, לפי פרש"י על התורה, בפשוטו של מקרא — לא הי' בהילוכו של אברהם
+
+## 37
+
+לארכה ולרחבה משום קנין הארץ, וכסיום הכתוב עצמו "קום התהלך גו' כי לך אתננה" — לשון עתיד, היינו שההליכה היא רק לסמן את אורך ורוחב הארץ שהקב"ה עתיד ליתנה לו[ftnref\_308\_15]. וא"כ אין לפרש שמזבח זה בנה "לקנינה".
+אבל טעמא בעי: מאחר שנחית רש"י לבאר הטעם של כל אחד משני המזבחות הראשונים שבנה אברהם — מדוע לא ביאר טעם על בנין מזבח השלישי?
+ב. לפי פשוטו יש לומר:
+לאחרי שפירש רש"י כי אברהם בנה מזבח עבור הבשורות טובות — "בשורת הזרע" "בשורת א"י" — שוב אין צורך לחפש טעם אחר על בנין המזבח השלישי, כי כמפורש בקרא בנה אותו אברהם לאחרי שנתבשר בשו"ט[ftnref\_309\_16] "כי את כל הארץ אשר אתה רואה לך אתננה ולזרעך עד עולם, ושמתי את זרעך כעפר הארץ גו'" — היינו כו"כ ברכות וענינים טובים, הן בבשורת א"י והן בבשורת הזרע[ftnref\_310\_17], ששמע אברהם בבשורה זו דוקא, שלא נאמרו בבשורה הראשונה[ftnref\_311\_\*17] — ומובן מאליו שבגלל בשורות נוספות אלו בנה אברהם מזבח מיוחד לה'.
+אמנם ביאור זה דחוק הוא מפני לשון הכתובים: "ויבן שם מזבח" משמע, שבנין המזבח הי' שייך להמקום שנבנה בו. וע"ד שמצינו בשני מזבחות הראשונים — ש(גם) בהם נאמר "ויבן שם מזבח" — שהיו "שייכים" וקשורים עם מקום בנייתם[ftnref\_312\_18]: המזבח הראשון, שהי' "לה' הנראה אליו", בנאו אברהם "שם" דוקא, כי במקום זה נראה ה' אליו[ftnref\_313\_19]; ומזבח השני
+
+## 38
+
+נבנה "שם", בסמיכות לעי, כי נבנה (כפרש"י) מטעם ש"נתנבא שעתידין בניו להכשל שם כו' ו(לכן) התפלל שם עליהם"[ftnref\_314\_20];
+ואת"ל שבנין מזבח זה (השלישי) הי' בגלל הבשורות טובות שנתבשר קודם בואו לחברון [ומה שבנה המזבח בחברון דוקא, הוא רק משום שזהו המקום שאליו בא לאחרי קיום ציווי הקב"ה[ftnref\_315\_21] (בבשורת הארץ) "קום התהלך בארץ גו'"[ftnref\_316\_\*21]] — אין שום שייכות, לכאורה, בין טעם בניית המזבח למקום זה דוקא; והכתוב הרי מדייק "ויבן שם מזבח"?
+ע"ד הפשט יש לבאר הקשר דמזבח זה למקומו, כי זה הי' המקום הראשון בארץ ישראל שבו נתיישב אברהם אבינו בקביעות. שהרי עד אז הי' אברהם במצב של "הלוך ונסוע"[ftnref\_317\_22], "וילך למסעיו"[ftnref\_318\_23], ורק בבואו לחברון התיישב בארץ, כמ"ש[ftnref\_295\_3] "וישב באלוני ממרא אשר בחברון" (וכמסופר לאח"ז, שאברהם ישב שם כ"ה שנה[ftnref\_320\_24]). ובמילא מובן, שזהו המקום המתאים להודות להקב"ה על "בשורת (התיישבותו — קבע ב)א"י".
+אמנם עדיין אין הענין מתיישב כל צרכו (בדרך הדרש). כי את"ל שמזבח זה (השלישי) בא (רק) על הבשורות "כי גו' לך אתננה גו' ושמתי גו'", הו"ל להדגיש (עכ"פ — לרמז) בהכתובים שבנינו הי' בסמיכות ובהמשך לשמיעת הבשורות; אבל בלשון הפסוק מודגש ההיפך, ההפסק והשהיי' שבין בשורות אלו לבנין המזבח — "ויאהל אברם ויבא וישב גו' (ורק אח"כ) ויבן שם מזבח לה'"[ftnref\_321\_25].
+ולכן מסתבר, שבנין המזבח הי' (גם) ענין בפ"ע, בשייכות להתיישבותו בעיר חברון[ftnref\_322\_26].
+ג. ויש לומר הביאור בזה:
+אמרו חז"ל[ftnref\_323\_27] "סימן נתן לו הקב"ה לאברהם שכל מה שאירע לו אירע לבניו", מעשה אבות סימן לבנים, וכמ"ש הרמב"ן[ftnref\_324\_28] ד"כולם (כל מעשי האבות) באים ללמד על העתיד כי כאשר יבוא המקרה לנביא משלשת האבות יתבונן ממנו הדבר הנגזר לבוא לזרעו", ואולי י"ל, שמעשה האבות הוא סימן, גרם[ftnref\_325\_29]
+
+## 39
+
+למאורעות הבנים. ועפ"ז בעניננו, מזבחות אלו שבנה אברהם הם הם ההכנה ונתינת כח לעבודת הקרבנות[ftnref\_326\_30] (של בני ישראל) ע"ג המזבח במשכן ומקדש.
+וזוהי נקודת הטעם שבנה אברהם שלשה מזבחות — כי ב"מזבח" של ה"בנים" מצינו ג' פעולות וענינים, ש(ה"סימן" ו)נתינת הכח להם הם שלשה מזבחות אלו שבנה אברהם.
+וההסברה:
+בנוגע לענינו של מזבח אמרו חז"ל[ftnref\_327\_31] — "מזבח, מזיח ומזין מחבב מכפר", כלומר: מזיח גזירות[ftnref\_328\_32] (רעות מעל ישראל[ftnref\_329\_33]); מזין, בזכות הקרבנות העולם נזון שהקרבנות באין מן המזון וגורמין לו ברכה[ftnref\_329\_33]; מחבב את ישראל אל אביהם[ftnref\_329\_33]; ומכפר עונות[ftnref\_328\_32].
+ארבעה דברים אלו מתחלקים, בכללות, לשלשה סוגים: א) "מזין" — השפעת מזון לעולם, ב) "מזיח ומכפר" — ביטול ענינים בלתי רצויים מעל ישראל (גזירות ועונות). ג) "מחבב את ישראל אל אביהם".
+והנה, חלוקה כזו של "ארבעה שהן שלשה" אנו מוצאים גם בחלוקת הקרבנות (על המזבח) למיניהם — שהרמב"ם[ftnref\_333\_34] מחלק את הקרבנות ל"ארבעה מינין, עולה וחטאת ואשם ושלמים", ואילו במדרש[ftnref\_334\_35] מצינו שמחלקם לשלשה — "עולה שלמים וחטאת". ומובן שאין כאן סתירה, כי חטאת ואשם תוכנם אחד[ftnref\_335\_\*35], שניהם באים לכפרה.
+ועפ"ז יש לומר, ששלש פעולות הנ"ל שבקרבנות מכוונות כנגד שלשה סוגים אלו שבקרבנות[ftnref\_336\_36]:
+שלמים, שיש בהם אכילת בעלים, הם כנגד זה שהמזבח (קרבנות) "מזין" את העולם, דכשם שהבעלים זוכים באכילתם זו (שהיא אכילה גשמית, מזון הגוף) על ידי הקרבת קרבן לה', כך "בזכות הקרבנות העולם נזון";
+חטאת (ואשם) שבאו לכפרה — היינו "מזיח. . מכפר";
+והעולה, שהיא כליל לה', ענינה ל"חבב ישראל אל אביהם"[ftnref\_337\_37], ובלשון המדרש[ftnref\_338\_38], ש"העולה נקרבת לכבוד הקב"ה בלבד אבל השלמים והחטאת בעד (כנגד) עצמנו", כלומר, השלמים והחטאת באים (בעיקר?, גם?) לתועלת המקריב (או בשביל קבלת מזון, או כדי לבטל ענינים בלתי רצויים), משא"כ העולה
+
+## 40
+
+באה רק "לכבוד הקב"ה בלבד", ועל ידה מתחבבים ישראל אל אביהם שבשמים[ftnref\_339\_39].
+ד. ויש לומר, ששלש פעולות הנ"ל ישנן, בכללות, בכל קרבן, כי בכולם יש שלשה ענינים: א) זריקת הדם ע"ג המזבח; ב) אכילת כהנים ובעלים (וגם בקרבן עולה — עורה לכהנים[ftnref\_340\_40]); ג) גילוי שכינה — האש שירדה מן השמים ו"אכלה" את הקרבנות[ftnref\_341\_41] (ובכללות יותר — מה שמקום המזבח הוא בביהמ"ק, בלשון הרמב"ם[ftnref\_342\_42] "בית לה' מוכן להיות מקריבים בו הקרבנות"):
+חלק הקרבן הנאכל (ושייך) לכהנים ולבעלים — מרמז על פעולת "הזנת העולם", כנ"ל;
+זריקת הדם ע"ג המזבח היא היא הפועלת כפרת[ftnref\_343\_43] העונות וריצויין (ש
+זה כולל ריצוי על כל ענינים בלתי רצויים);
+וגילוי השכינה שבקרבנות (האש שיורדת מן השמים, ובכללות, זה שהמזבח הוא בבית המקדש, "בית לה'") מורה על חביבותם של ישראל[ftnref\_344\_44], ועד "כדרך שבא לראות כך בא ליראות"[ftnref\_345\_45], שכל התגלות זו היא בשביל ישראל עם קרובו.
+ה. ידוע שעבודת הקרבנות נקראת בשם "עבודה" סתם[ftnref\_346\_46], משום שבה מתבטא כללות הענין דעבודת השם.
+ומזה מובן, דכשם שבקרבנות ישנם ג' הענינים הנ"ל — כמו"כ הוא בנוגע לכללות הענין דעבודת השם, שג' חלוקות בה:
+ראשיתה היא העבודה דתורה ומצות, מזון הנפש ("מזין"), כי התורה היא "חיינו", ונאמר (גבי מצות) "אשר יעשה אותם האדם וחי בהם"[ftnref\_347\_47], וכידוע שרמ"ח מ"ע הם כנגד רמ"ח אברים[ftnref\_348\_48], ועל ידי קיום התומ"צ ממשיכים חיות (הנשמה) תוך אברי האדם[ftnref\_349\_49].
+למעלה מזה היא עבודת התשובה, דגם כאשר חטא ופגם ועבר את הדרך ר"ל, מתקן זה ע"י התשובה ("מכפר" ו"מזיח").
+אמנם שלימות ענין הדביקות בו יתברך היא העבודה דמסירת נפש, זה שהאדם מוסר את עצמו מכל וכל להקב"ה (כמו עולה שהיא כליל לה'). שזוהי אמיתית ענין המסירת נפש, שמוסר נפשו לא בשביל שכר או בשביל איזוהי תועלת (גשמית, או) רוחנית (שתגיע לנשמתו)[ftnref\_350\_50], כ"א רק לכבודו ית', בלי שום חשבון כלל וכלל[ftnref\_351\_51]. ובזה שהאדם מקריב (ומבטל) את עצמו כליל להקב"ה, ואינו
+
+## 41
+
+מחפש לעצמו כלום, הרי הוא "מחבב את ישראל אל אביהם".
+ו. עפ"ז יובן תוכנם של שלשת המזבחות שבנה אברהם — בבחינת "מעשה אבות סימן לבנים" — שבהם הניח אברהם את היסודות ("סימן") לשלשה ענינים כלליים בעבודת עם ישראל במשך כל הדורות:
+המזבח הראשון הי' "על בשורת הזרע ועל בשורת א"י", שזהו ענין של צרכי האדם, הן הגשמיים והן הרוחניים (בדוגמת "מזין"[ftnref\_352\_\*51]);
+המזבח השני — שהתפלל שם עליהם (לכפר על מעשה עכן)[ftnref\_353\_52] — היינו הענין ד"מזיח[ftnref\_352\_\*51]. . מכפר";
+ואילו המזבח השלישי לא פרש"י מהו ענינו — כי תכליתו של מזבח זה אינה בשביל איזו תועלת צדדית, כ"א רק כדי לבנות מזבח לה' (כמו קרבן עולה שהיא כליל לה', ובאה רק לכבודו יתברך כנ"ל). וה"סימן לבנים" שב"מעשה אבות" זה[ftnref\_355\_53] הוא לענין ד"מחבב" שבקרבנות[ftnref\_356\_54], כי הקרבה באופן כזה פועלת חביבותם של ישראל אצל הקב"ה, כנ"ל.
+ונמצא, ששלשת המזבחות שבנה אברהם הם בסדר דמן הקל אל הכבד: הראשון — "על בשורת הזרע ועל בשורת א"י" (דוגמת "מזין"); השני — תפלתו על מעשה עכן ("מזיח. . מכפר"); והשלישי — "ויבן שם מזבח לה'" (סתם), מבלי שום כוונה נוספת, רק לכבודו יתברך.
+[ובזה יומתק זה שבהמזבח הראשון לא העתיק רש"י את התיבות "לה' הנראה אליו" — דלכאורה, פשטות משמעות הכתוב היא, דלאחרי שנראה אליו ה' — "וירא ה' אל אברם" — בנה מזבח "לה' הנראה אליו", וא"כ הו"ל לרש"י להעתיק הנ"ל ולפרש שבניית המזבח היתה להודות על התגלות זו[ftnref\_357\_\*54] (או שהתגלות זו עוררה אצלו הרצון לעבוד ה' על ידי מזבח), ורש"י מפרש שהמזבח בא (רק) "על בשורת הזרע ועל בשורת א"י"?
+וע"פ הנ"ל מובן, כי סדר העבודה הוא בהדרגה (מלמטה למעלה), מן הקל אל הכבד, ותוכן זה שבמזבח (לבנות מזבח "לה' הנראה אליו") שייך למזבח השלישי[ftnref\_358\_55]; ולכן פרש"י דמש"נ "לה' הנראה אליו" (גבי מזבח הא') לא בא לתאר תוכנו ומטרתו של המזבח, אלא רק כסימן (הזמן) לחוד — ש(בנייתו שהיא בגלל הבשורות —) הבשורות נודעו לו כאשר "ה' נראה אליו"[ftnref\_359\_56]].
+ז. ועפ"ז יש לבאר גם זה שהכתוב מדגיש גם במזבח הג' "ויבן שם מזבח לה'", שבנה את המזבח בחברון דוקא, כי תוכן ענינו של מזבח זה שייך לעיר חברון דוקא.
+
+## 42
+
+וכידוע[ftnref\_360\_57] ש"חברון" הוא לשון חיבור[ftnref\_361\_58] [וכמשנ"ת במק"א[ftnref\_362\_59] שזה שייך (גם) לעיר חברון כפשוטה, ששם נקברו האבות והאמהות של כל ישראל ואין קורין אבות (ואמהות) אלא לאלה[ftnref\_363\_60], וכל התפלות עולות על ידי חברון[ftnref\_364\_61]], ואמיתית הקשר והחיבור של בנ"י עם הקב"ה הוא כאשר עבודתנו היא לא "בעד עצמנו", בשביל איזו תועלת המגיעה להאדם (גם לא תועלת נעלית ביותר של כפרת האדם), כ"א כאשר ה"מזבח" (ההקרבה) שלו הוא רק לכבודו ית', כולו כליל לה'.
+ח. ידוע שעיקרו של ביהמ"ק — "בית לה' מוכן להיות מקריבים בו הקרבנות"[ftnref\_365\_62] — הוא המזבח, וע"פ הנ"ל יש לומר, שג' מזבחות אלו דאברהם, הם כנגד ג' בתימקדשות[ftnref\_366\_63]:
+נת' במ"א בארוכה[ftnref\_367\_64], שההפרש בין מקדש ראשון ומקדש שני בעבודה רוחנית הוא בזה, שענינו של מקדש הראשון הוא עבודת הצדיקים, ועבודה דמקדש שני, שבא (לאחרי חורבן בית ראשון ו)לתיקונו של החורבן — היא עבודת התשובה.
+ונמצא, שמזבח הראשון דאברהם — שכנגד העבודה דתומ"צ — הוא ה"סימן" למקדש הראשון, עבודת הצדיקים (שנקראים כן על שם עבודתם בקיום התומ"צ); ומזבח השני שלו — כנגד עבודת התשובה — הוא ה"סימן" להעבודה דמקדש שני[ftnref\_368\_65].
+אמנם תכלית השלימות היא בית המקדש השלישי — תכלית השלימות בעבודת השם, שאז יקויים היעוד "עין בעין יראו וגו'"[ftnref\_369\_66], היינו התגלות אלקות בתכלית השלימות[ftnref\_370\_67], ובמילא גם דביקות בנ"י בה' תהי' בתכלית השלימות ובביטול מוחלט אליו ית'. וב"מעשה אבות" הוא המזבח השלישי שבנה אברהם בחברון, שכל ענינו הי' רק — "ויבן שם מזבח לה'", כנ"ל באורך.
+ויש למצוא סמוכין לזה בדברי המדרש[ftnref\_371\_68], שאברהם בנה מזבח בחברון מפני שהוא "מקום שהמליכו בו את דוד ושם כרתו ברית שנאמר[ftnref\_372\_69] ויבואו כל זקני ישראל אל המלך חברונה ויכרות להם המלך דוד ברית בחברון לפני ה'":
+ידוע שמלכותו של דוד המלך (ובפרט כאשר נעשה מלך בפועל על כל ישראל) היא מלכות נצחית[ftnref\_373\_70], אשר שלימותה היא מלכותו של המלך המשיח.
+
+## 43
+
+וכפסק דין הרמב"ם[ftnref\_374\_71] ש"המלך המשיח עתיד לעמוד ולהחזיר מלכות דוד ליושנה לממשלה הראשונה"; ולא עוד אלא שמצינו במדרשי חז"ל[ftnref\_375\_72], שמלך המשיח הוא הוא דוד המלך — "דוד שמי'", ובלשון הידוע[ftnref\_376\_73] "איש צמח שמו הוא דוד בעצמו"[ftnref\_377\_74].
+ונמצא, שמזבח זה שבנה אברהם שייך למלכותו של דוד, שהיא היא מלכותו של מלך המשיח, שאז תהי' תכלית השלימות הנ"ל בעבודת השם.
+ט. ההוראה מכל זה במעשינו ועבודתינו עתה:
+מאחר שמעשה אבות הוא סימן לבנים, מובן, שענינם של כל שלשת המזבחות שבנה אברהם צ"ל בעבודת כאו"א מישראל, וגם עתה.
+וע"פ משנ"ת שהמזבח השלישי הוא כנגד השלימות שתושג בגאולה האמיתית והשלימה על ידי משיח צדקנו, נמצינו למדים, שכל עניני העבודה (כללות ענין המזבח והקרבנות בעבודת השם), גם בזמן הגלות, צריכים להיות קשורים בתוכן הענין דמלכות דוד, דוד מלכא משיחא.
+היינו שגם העבודה דתומ"צ ותשובה צ"ל חדורה בההכרה הברורה, ששלימות ענין עבודת השם תהי' רק לעת"ל[ftnref\_378\_75] (שאז יהי' קיום המצות "כמצות רצונך"[ftnref\_379\_76]), וכדברי הרמב"ן הידועים[ftnref\_380\_77] שהמצות שאנו מקיימים בזמן הזה (בחו"ל) הן רק "ציונים", "כי עיקר כל המצוות ליושבים בארץ ה'" —
+שזה גופא מעורר עוד יותר התשוקה והגעגועים לגאולה האמיתית והשלימה, ועי"ז מקרבים וממהרים את הזמן שבו רואים במוחש, בפועל ובגלוי, את קיומה של הכריתת ברית דכל בנ"י עם דוד המלך, דוד מלכא משיחא — "ועבדי דוד מלך עליהם ורועה אחד יהי' לכולם. . ודוד עבדי נשיא להם לעולם"[ftnref\_381\_78], ובמהרה בימינו ממש.
+[quotation](משיחת ז' מרחשון תשמ"ו) [/quotation]
+
+**English:**
+
+## Sicha 1
+
+### 36
+
+1. In our Parsha, we are told of three altars built by Avraham Avinu: (a) "And he built there an altar to Hashem who appeared to him," (b) "And he built there an altar to Hashem and called out in the name of Hashem," and (c) "And he built there an altar to Hashem." Our Sages explained: He built three altars: one for the good news of Eretz Yisrael, one for its acquisition, and one so that his children would not fall. That is to say, Avraham built each of these three altars for a specific, independent purpose: The first, built after Hashem spoke to Avram, "To your seed I will give this land," was for the "good news of Eretz Yisrael"; the altar he built near Ai was for the sake of prayer "so that his children would not fall at Ai"; and the third altar, which he built after fulfilling Hashem’s command, "Arise, walk about the land through its length and its breadth, for to you I will give it," through which he "merited it," was for the "acquisition" (of Eretz Yisrael).
+
+Rashi, in his commentary on the Torah, brings the essence of the Midrash regarding the first two altars—on the verse "And he built there an altar" (stated the first time), he explains, "Regarding the good news of the seed and the good news of Eretz Yisrael," and on the second "And he built there an altar," he writes, "He prophesied that his children were destined to stumble there due to the sin of Achan, and he prayed there for them"—but regarding the third altar (after Hashem’s command, "Arise, walk about the land..."), Rashi remains silent and explains nothing.
+
+The reason Rashi does not explain like the Midrash that the third altar was for "its acquisition" is likely because the Midrash’s words follow the view that through Avraham’s walking through its length and breadth, he "merited it" (as walking effects acquisition), and therefore it is appropriate to say this altar was for "its acquisition." However, according to Rashi’s commentary on the Torah, according to the plain meaning of the text, Avraham’s walking through the length and breadth of the land did not constitute an acquisition of the land. As the verse itself concludes, "Arise, walk about... for to you I will give it"—the future tense implies that the walking was only to mark the length and breadth of the land that the Ribono shel Olam would *in the future* give to him. If so, one cannot explain that he built this altar "for its acquisition."
+
+But a question remains: Since Rashi took the trouble to explain the reason for each of the first two altars that Avraham built, why did he not explain the reason for the building of the third altar?
+
+2. According to the plain meaning, one could say:
+After Rashi explained that Avraham built an altar for the good news—the "good news of the seed" and the "good news of Eretz Yisrael"—there is no need to seek another reason for the building of the third altar. For as is explicitly stated in the verse, Avraham built it after he was informed of good news: "For all the land which you see, to you I will give it and to your seed forever, and I will make your seed as the dust of the earth..."—that is, many blessings and good matters, both regarding the good news of Eretz Yisrael and the good news of the seed, which Avraham heard specifically in this message, which were not stated in the first message—and it is self-understood that because of these additional tidings, Avraham built a special altar to Hashem.
+
+However, this explanation is forced because of the language of the verses: "And he built there an altar" implies that the building of the altar was connected to the place where it was built. Similarly to what we find regarding the first two altars—where it also says "And he built there an altar"—they were "connected" and bound to the place of their construction: The first altar, which was "to Hashem who appeared to him," Avraham built "there" specifically, because in that place Hashem appeared to him; and the second altar
+
+38
+
+was built "there," near Ai, because it was built (as Rashi says) for the reason that "he prophesied that his children were destined to stumble there... and (therefore) he prayed there for them."
+
+And if you were to say that the building of this (third) altar was because of the good news he was told before coming to Chevron [and the fact that he built the altar specifically in Chevron is only because that is the place to which he came after fulfilling the Ribono shel Olam’s command (in the good news of the land), "Arise, walk about the land..."]—there is, seemingly, no connection between the reason for building the altar and this specific place; yet the verse emphasizes, "And he built *there* an altar"?
+
+According to the plain meaning, we can explain the connection of this altar to its location: This was the first place in Eretz Yisrael where Avraham Avinu settled permanently. For until then, Avraham was in a state of "journeying and traveling," "and he went on his journeys," and only upon coming to Chevron did he settle in the land, as it is written, "And he dwelt by the terebinths of Mamre which are in Chevron" (and as is told afterward, that Avraham dwelt there for twenty-five years). Consequently, it is understood that this is the appropriate place to thank the Ribono shel Olam for the "good news of (his permanent settlement in) Eretz Yisrael."
+
+However, the matter is still not fully resolved (in the way of *derash*). For if you say that this (third) altar came (only) because of the good news "For... to you I will give it... and I will make...", the verses should have emphasized (at least hinted) that its construction was in proximity and continuation to hearing the good news; but the language of the verse emphasizes the opposite, the interruption and the delay between these tidings and the building of the altar—"And Avram pitched his tent and came and dwelt... (and only afterward) and he built there an altar to Hashem."
+
+Therefore, it is logical that the building of the altar was (also) an independent matter, connected to his settlement in the city of Chevron.
+
+3. And one can say the explanation for this is:
+Our Sages said, "The Ribono shel Olam gave a sign to Avraham that everything that happened to him would happen to his children." The deeds of the fathers are a sign for the children, and as the Ramban writes, "All (the deeds of the fathers) come to teach about the future, for when an event occurs to one of the three fathers, one can understand from it the matter decreed to come to his seed." And perhaps one can say that the deeds of the fathers are a sign, a cause
+
+39
+
+for the events of the children. According to this, in our case, these altars that Avraham built are the preparation and the granting of strength for the *avodah* of the *korbanos* (of the Children of Israel) upon the altar in the Mishkan and the Beis Hamikdash.
+
+This is the point of the reason why Avraham built three altars—because in the "altar" of the "children," we find three actions and matters, for which these three altars that Avraham built are the "sign" and the source of strength.
+
+The explanation:
+Regarding the essence of the altar, our Sages said—"The altar: *mezich* (removes/pushes away), *mezin* (nourishes), *mechavev* (endears), *mechaper* (atones)." That is: it *mezich* (removes) decrees (evil from Israel); *mezin* (nourishes), for in the merit of the *korbanos*, the world is nourished, as the *korbanos* come from food and cause it blessing; *mechavev* (endears) Israel to their Father; and *mechaper* (atones) for sins.
+
+These four things are divided, generally, into three categories: a) "Nourishes"—the influence of nourishment to the world; b) "Removes and atones"—the nullification of undesirable matters from Israel (decrees and sins); c) "Endears Israel to their Father."
+
+Now, we find such a division of "four that are three" also in the division of the *korbanos* (on the altar) into their types—the Rambam divides the *korbanos* into "four types: *olah*, *chatas*, *asham*, and *shelamim*," whereas in the Midrash we find that they are divided into three—"*olah*, *shelamim*, and *chatas*." It is understood that there is no contradiction here, for the content of *chatas* and *asham* is one; both come for atonement.
+
+According to this, one can say that the three actions mentioned above regarding the *korbanos* are directed toward these three types of *korbanos*:
+*Shelamim*, which include the eating of the owners, correspond to the fact that the altar (the *korbanos*) "nourishes" the world, for just as the owners merit this eating (which is physical eating, nourishment of the body) through offering a *korban* to Hashem, so too "in the merit of the *korbanos*, the world is nourished";
+*Chatas* (and *asham*) which come for atonement—this is "removes... atones";
+And the *olah*, which is entirely for Hashem, its matter is to "endear Israel to their Father," and in the language of the Midrash, "The *olah* is offered for the honor of the Ribono shel Olam alone, but the *shelamim* and the *chatas* are for ourselves." That is, the *shelamim* and the *chatas* come (primarily?, also?) for the benefit of the offerer (either to receive nourishment, or to nullify undesirable matters), whereas the *olah*
+
+40
+
+comes only "for the honor of the Ribono shel Olam alone," and through it, Israel is endeared to their Father in Heaven.
+
+4. One can say that the three actions mentioned above exist, generally, in every *korban*, for in all of them there are three matters: a) The sprinkling of the blood on the altar; b) The eating of the *kohanim* and the owners (and even in an *olah* *korban*—the hide belongs to the *kohanim*); c) The revelation of the *Shechinah*—the fire that descended from Heaven and "consumed" the *korbanos* (and more generally—the fact that the place of the altar is in the Beis Hamikdash, in the language of the Rambam, "A house for Hashem, prepared to be a place where *korbanos* are offered"):
+The part of the *korban* that is eaten (and belongs) to the *kohanim* and the owners—hints at the action of "nourishing the world," as mentioned above;
+The sprinkling of the blood on the altar is what effects the atonement of sins and the appeasement (which includes appeasement regarding all undesirable matters);
+And the revelation of the *Shechinah* in the *korbanos* (the fire that descends from Heaven, and generally, the fact that the altar is in the Beis Hamikdash, a "house for Hashem") points to the endearment of Israel, and even "as one comes to see, so one comes to be seen," that all this revelation is for the sake of Israel, His close people.
+
+5. It is known that the *avodah* of the *korbanos* is called simply "*avodah*," because in it the general matter of the *avodah* of Hashem is expressed.
+From this it is understood that just as in the *korbanos* there are the three matters mentioned above—so too it is regarding the general matter of the *avodah* of Hashem, which has three divisions:
+Its beginning is the *avodah* of Torah and *mitzvos*, the nourishment of the soul ("nourishes"), for the Torah is "our life," and it is said (regarding *mitzvos*), "Which a man shall do and live by them," and as is known, the 248 positive *mitzvos* correspond to the 248 limbs, and through the fulfillment of Torah and *mitzvos*, one draws vitality (the soul) into the limbs of the person.
+Higher than this is the *avodah* of *teshuvah*, for even when one has sinned and blemished and strayed from the path, G-d forbid, one repairs this through *teshuvah* ("atones" and "removes").
+However, the perfection of the matter of *dveikus* in Him, blessed be He, is the *avodah* of *mesiras nefesh*, that a person gives himself over completely to the Ribono shel Olam (like an *olah* which is entirely for Hashem). This is the true matter of *mesiras nefesh*, that he gives his soul not for the sake of reward or for any benefit (physical, or) spiritual (that will come to his soul), but only for His honor, blessed be He, without any calculation at all. And in that a person offers (and nullifies) himself entirely to the Ribono shel Olam, and does not
+
+41
+
+seek anything for himself, he "endears Israel to their Father."
+
+6. According to this, the content of the three altars that Avraham built will be understood—in the aspect of "the deeds of the fathers are a sign for the children"—in which Avraham laid the foundations ("sign") for three general matters in the *avodah* of the People of Israel throughout all generations:
+The first altar was "regarding the good news of the seed and the good news of Eretz Yisrael," which is a matter of man’s needs, both physical and spiritual (like "nourishes");
+The second altar—where he prayed for them (to atone for the sin of Achan)—is the matter of "removes... atones";
+While regarding the third altar, Rashi did not explain what its content is—because the purpose of this altar is not for any side benefit, but only to build an altar to Hashem (like an *olah* *korban* which is entirely for Hashem, and comes only for His honor, blessed be He, as mentioned above). And the "sign for the children" in this "deed of the fathers" is for the matter of "endearing" in the *korbanos*, for offering in such a way effects the endearment of Israel before the Ribono shel Olam, as mentioned above.
+Thus, the three altars that Avraham built are in an order from the light to the heavy: The first—"regarding the good news of the seed and the good news of Eretz Yisrael" (like "nourishes"); the second—his prayer regarding the sin of Achan ("removes... atones"); and the third—"And he built there an altar to Hashem" (simply), without any additional intention, only for His honor, blessed be He.
+[And with this, that which Rashi did not copy the words "to Hashem who appeared to him" in the first altar is sweetened—for seemingly, the simple meaning of the text is that after Hashem appeared to him—"And Hashem appeared to Avram"—he built an altar "to Hashem who appeared to him," and if so, Rashi should have copied the above and explained that the building of the altar was to thank Him for this revelation (or that this revelation stirred in him the desire to serve Hashem through an altar), yet Rashi explains that the altar came (only) "regarding the good news of the seed and the good news of Eretz Yisrael"?
+And according to the above, it is understood, for the order of *avodah* is in stages (from below to above), from the light to the heavy, and this content that is in the altar (to build an altar "to Hashem who appeared to him") belongs to the third altar; and therefore Rashi explains that what is said "to Hashem who appeared to him" (regarding the first altar) does not come to describe the content and purpose of the altar, but only as a sign (of the time) alone—that (its building, which is because of the good news—) the good news became known to him when "Hashem appeared to him."]
+
+7. And according to this, one must also explain that the verse emphasizes also in the third altar, "And he built there an altar to Hashem," that he built the altar specifically in Chevron, for the content of the matter of this altar belongs specifically to the city of Chevron.
+
+42
+
+And as is known, "Chevron" is a language of *chibur* (connection) [and as has been explained elsewhere that this belongs (also) to the city of Chevron in its plain sense, for there the fathers and mothers of all Israel were buried, and one only calls the fathers (and mothers) those, and all prayers ascend through Chevron], and the true connection and bond of the Children of Israel with the Ribono shel Olam is when our *avodah* is not "for ourselves," for some benefit that comes to the person (not even the most exalted benefit of the atonement of the person), but when his "altar" (the offering) is only for His honor, blessed be He, entirely for Hashem.
+
+8. It is known that the essence of the Beis Hamikdash—"A house for Hashem, prepared to be a place where *korbanos* are offered"—is the altar, and according to the above, one can say that these three altars of Avraham correspond to the three Beis Hamikdashs:
+It has been explained elsewhere at length, that the difference between the First Temple and the Second Temple in spiritual *avodah* is that the content of the First Temple is the *avodah* of the *tzaddikim*, and the *avodah* of the Second Temple, which came (after the destruction of the First Temple and) for the repair of the destruction—is the *avodah* of *teshuvah*.
+Thus, Avraham’s first altar—which corresponds to the *avodah* of Torah and *mitzvos*—is the "sign" for the First Temple, the *avodah* of the *tzaddikim* (who are called so because of their *avodah* in the fulfillment of Torah and *mitzvos*); and his second altar—corresponding to the *avodah* of *teshuvah*—is the "sign" for the *avodah* of the Second Temple.
+However, the ultimate perfection is the Third Beis Hamikdash—the ultimate perfection in the *avodah* of Hashem, when the prophecy "They shall see eye to eye..." will be fulfilled, that is, the revelation of *Elokus* in ultimate perfection, and consequently, the *dveikus* of the Children of Israel to Hashem will also be in ultimate perfection and in absolute *bitul* to Him, blessed be He. And in the "deeds of the fathers," this is the third altar that Avraham built in Chevron, whose entire matter was only—"And he built there an altar to Hashem," as explained above at length.
+And one can find support for this in the words of the Midrash, that Avraham built an altar in Chevron because it is the "place where they crowned David, and there they made a covenant, as it is said, 'And all the elders of Israel came to the king to Chevron, and King David made a covenant with them in Chevron before Hashem'":
+It is known that the kingdom of King David (and especially when he became king in practice over all Israel) is an eternal kingdom, whose perfection is the kingdom of King Moshiach.
+
+43
+
+And as the ruling of the Rambam, "King Moshiach is destined to arise and restore the kingdom of David to its former state, to its original sovereignty"; and furthermore, we find in the Midrashim of our Sages that King Moshiach is David the King himself—"David is my name," and in the known language, "The man whose name is Tzemach is David himself."
+Thus, this altar that Avraham built belongs to the kingdom of David, which is the kingdom of King Moshiach, at which time there will be the aforementioned ultimate perfection in the *avodah* of Hashem.
+
+9. The lesson from all this in our deeds and our *avodah* now:
+Since the deeds of the fathers are a sign for the children, it is understood that the matter of all three altars that Avraham built must be in the *avodah* of every single Jew, and also now.
+And according to what has been explained that the third altar corresponds to the perfection that will be achieved in the true and complete Redemption through Moshiach Tzidkeinu, we learn that all matters of *avodah* (the general matter of the altar and the *korbanos* in the *avodah* of Hashem), even in the time of exile, must be connected to the content of the matter of the kingdom of David, David Malka Meshicha.
+That is, even the *avodah* of Torah and *mitzvos* and *teshuvah* must be permeated with the clear recognition that the perfection of the matter of the *avodah* of Hashem will be only in the time to come (when the fulfillment of the *mitzvos* will be "as the *mitzvos* of Your will"), and as the well-known words of the Ramban that the *mitzvos* that we fulfill at this time (in the Diaspora) are only "signs," "for the essence of all the *mitzvos* is for those who dwell in the land of Hashem"—
+This itself awakens even more the yearning and longing for the true and complete Redemption, and through this, we bring closer and hasten the time in which we see tangibly, in practice and openly, the fulfillment of the covenant of all the Children of Israel with King David, David Malka Meshicha—"And My servant David shall be king over them, and there shall be one shepherd for them all... and David My servant shall be their prince forever," and speedily in our days, truly.
+(From the Sicha of 7 Marcheshvan, 5746)
+
+---
+
+_Section: לך לך_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 45
+
+יהי' ערל), ובברייתא מוסיף ע"ד מעלת ענין הב' (שיהי' מהול):
+במשנה מדייק ואומר "גדולה מילה שכל המצות שעשה אברהם אבינו לא נקרא שלם עד שמל" (ולא "על שם המילה") — כי הכוונה היא לענין הסרת הערלה שבמילה, ובא בהמשך לתחילת המשנה ששם מדובר בשלילת הערלה, "קונם שאני נהנה לערלים מותר בערלי ישראל ואסור במולי עכו"ם כו' שאין הערלה קרוי' אלא לשם עכו"ם כו' ר"א בן עזרי' אומר מאוסה היא הערלה כו'" [וכן משמע ברמב"ם, שבסוף הל' מילה[ftnref\_393\_12] כ' "מאוסה היא הערלה שנתגנו בה הגוים. . וגדולה היא המילה שלא נקרא אברהם אבינו שלם עד שמל שנאמר כו'", הרי שכתב "גדולה היא המילה" דאברהם באותה ההלכה ובהמשך ל"מאוסה היא הערלה", ובוא"ו החיבור[ftnref\_394\_13]];
+אבל בברייתא מבאר מעלת המילה עצמה (שיהי' מהול), ולכן מדייק "ולא נקרא תמים אלא על שם מילה" (ולא "עד שמל").
+אבל עדיין צ"ב איך מתבארים בזה שאר השינויים בין המשנה והברייתא.
+ג. ויש לומר הביאור בזה:
+ב"תמים" מצינו שני ענינים: (א) שלילת מום וחסרון, (ב) תמימות ושלימות נוספת, שלא רק שלא חסר בו שום דבר, אלא שהוא "תמים".
+ע"ד דין "תמים" בקרבנות, שמצינו בו שני ענינים אלה: שלילת חסרון[ftnref\_395\_14] — שאין בו מום הפוסל[ftnref\_396\_15]; אבל יש בכלל זה גם תמימות יתירה, כמ"ש הרמב"ם[ftnref\_397\_16] "מצות עשה להיות כל הקרבנות תמימין ומובחרין שנאמר[ftnref\_398\_17] תמים יהי' לרצון זו מצות עשה" [ועד"ז כ'[ftnref\_399\_18] לגבי נסכין ועצי המערכה "כשם שמצוה להיות כל קרבן תמים ונבחר כך הנסכין יהיו תמימים ונבחרין שנאמר[ftnref\_400\_19] תמימים יהיו לכם ונסכיהם כו' וכן עצי המערכה לא יהיו אלא נבחרין ולא כו'"].
+הרי דאף ש"מובחרין" הוא דין בפ"ע, כמו שהביא הרמב"ם[ftnref\_401\_20] שלמדין זה ממש"נ[ftnref\_402\_21] "מבחר נדריך", מ"מ נכלל גם בלשון "תמים יהי'", ובהביאו קרבן מן המובחר מקיים לא רק דין מובחר שבקרבנות, אלא גם הא דתמים יהי'[ftnref\_403\_22], והוא — כי ב"תמים" יש שני פרטים, "תמים" בניגוד לבעל מום, והיינו שאין בו חסרון[ftnref\_404\_23], ותמים שיש בו תוספת שלימות ותמימות, אף שגם בלא"ה הוא שלם[ftnref\_405\_24].
+
+## 46
+
+וי"ל, שזהו החילוק בין שתי הלשונות "תמים" ו"שלם", דאף שבכללות הם שמות נרדפים, בפרטיות יש חילוק ביניהם, ד"שלם" פירושו העדר החסרון[ftnref\_406\_25], ואילו "תמים" מורה על תמימות יתירה.
+וי"ל שזהו ע"ד שמצינו בנוגע ל"שנה": שנה רגילה היא שנה של י"ב חודש, וכאשר חשון וכסלו מלאים קורין לה שנה "שלימה"[ftnref\_407\_26]. אבל "שנה תמימה"[ftnref\_408\_27] פירשו רז"ל[ftnref\_409\_28] "להביא את חודש העיבור". ונמצא, שאף שגם בלי חודש העיבור נקראת שנה[ftnref\_410\_29] שלימה שלא חסר בה, מ"מ[ftnref\_411\_30], ע"י חודש העיבור נתוסף בה ענין התמימות[ftnref\_412\_31].
+ד. וזוהי נקודת החילוק בין המשנה והברייתא במס' נדרים שם:
+במשנה מדובר בגדר הא' שב"תמים" הנפעל על ידי המילה, ולכן מדייקת המשנה (ומשנה מלישנא דקרא) "גדולה מילה כו' לא נקרא שלם עד שמל", דהיינו שלם בלי מום וחסרון;
+ובברייתא מוסיף על המשנה — "גדולה מילה כו' ולא נקרא תמים אלא על שם מילה", שמלבד זאת שמצות מילה פעלה שאברהם אבינו יהי' "שלם" (בלי מום), הנה עוד זאת, שפעלה בו שיהי' "תמים", שלימות נוספת (ע"ד חודש העיבור).
+ומדוייק השינוי בלשון המשנה והברייתא — במשנה "לא נקרא שלם עד שמל", ואילו בברייתא "לא נקרא תמים אלא על שם מילה" — כי גדר "שלם" (בלי חסרון) לא נפעל על ידי מצות מילה לחוד, אלא בצירוף "כל המצות שעשה אברהם אבינו", שעל ידי כולם יחד נעשה שלם, וזהו מ"ש במשנה ש"עד שמל" עדיין לא נקרא שלם [כי מלבד זאת שהי' חסר אצלו קיום מצוה אחת — מצות מילה[ftnref\_413\_32], הרי כל זמן שהאדם ערל, ה"ה חסר (ובעל מום) בעצם]; משא"כ בברייתא שמדובר בגדר "תמים", שהוא תמימות ושלימות נוספת — ומעלה זו לא באה לו "אלא על שם מילה", שמצוה זו היא שהביאה תמימות ושלימות חדשה בכל עניני אברהם.
+וכמו"כ מובן השינוי בתחילת לשון המאמר — במשנה "שכל המצות שעשה אברהם אבינו", ובברייתא "אין לך מי שנתעסק במצות כאברהם אבינו":
+במשנה שמדובר בגדר ד"שלם" (לא בעל מום) הנפעל על ידי מצות מילה,
+
+## 47
+
+מודגש ענין השלימות שהיתה אצל אברהם אבינו גם לפני קיום מצות מילה, ש"כל המצות שעשה אברהם אבינו" (דהיינו כל התורה כולה, שקיים אברהם אבינו עד שלא ניתנה[ftnref\_414\_33]) לא הי' בכחם לפעול אצל אברהם שיהי' "שלם", "עד שמל";
+משא"כ בברייתא, שהכוונה להגדר ד"תמים", שזוהי שלימות ותמימות נוספת (יותר משלימות במובן דהעדר החסרון) — צריך להדגיש, שאף שגם לפני קיום מצות מילה הי' אצל אברהם (לא רק קיום כל המצות, אלא גם) קיום מצות באופן של הידור (תמימות ושלימות נוספת)[ftnref\_415\_34] — "אין לך מי שנתעסק במצות כאברהם אבינו", באופן של עסק וטירחא יתירה, עד למסירת נפש — מ"מ, "לא נקרא תמים אלא על שם מילה", כי א"א להגיע למעלה ד"תמים" אלא על ידי ה"מילה", כשהאדם הוא "מהול".
+ועפ"ז יש לבאר גם הקשר לשני הענינים שבמילה — שלא יהי' ערל, ושיהי' מהול — כמודגש בשינוי ל' המשנה והברייתא, "עד שמל" או "על שם מילה":
+הענין ד"לא יהי' ערל" שבמצות מילה, פועל שהאדם יהי' שלם בלי מום, כי הערלה ה"ה מום[ftnref\_416\_35], והסרת הערלה מבטלת חסרון זה ונעשה "שלם"[ftnref\_417\_36] (זה גופא מתירו לאכול בתרומה כמבואר ברמב"ם[ftnref\_418\_37]); וזהו מ"ש במשנה "לא נקרא שלם עד שמל", שהכוונה להסרת הערלה, שעי"ז "נקרא שלם";
+אבל זה שהאדם נעשה בגדר "מהול", אין זה רק ענין שלילי, שאין לו ערלה, אלא זוהי שלימות ומעלה נוספת, שמלבד זאת שאין לו ערלה (מום) — יש ענין חיובי שהוא מהול. וזהו מה שמוסיף בברייתא, שענינה ופעולתה של מילה הוא לא רק שפועלת שלימות אצל אדם החסר — אלא שמוסיפה תמימות גם באדם השלם, "לא נקרא תמים אלא על שם מילה", כי הענין ד"תמים" (לא רק "שלם") נפעל על ידי הענין החיובי שבחפצא דמילה[ftnref\_419\_38], זה שהאדם "מהול"[ftnref\_420\_39].
+
+## 49
+
+חסרון ומום), וככל ג' הפירושים שבפרש"י עה"פ[ftnref\_435\_52] "הי' שלם בכל נסיונותי ולפי מדרשו. . ובדבר הזה תהי' תמים שכל זמן שהערלה בך אתה בעל מום לפני[ftnref\_436\_53] ד"א כו' עכשיו אתה חסר ה' אברים כו'";
+הלשון "עולה תמימה" מורה (לא רק על העדר החסרון, אלא) על שלימות ותמימות נוספת. שהרי "עולה" גופא כבר מורה שכולה לגבוה, הקרבה שלימה (כלומר: קרבן בכלל ה"ה תמים ולא בעל מום; נוסף על זה "עולה" — שהיא עולה כליל לה', הקרבה שלימה), והתואר "(עולה) תמימה" מוסיף תמימות גם בזה, הוספת שלימות בעולה שכולה לגבוה בלא"ה;
+ו"יעקב איש תם" פירושו — הליכה בתמימות, וכפרש"י[ftnref\_434\_51] "כלבו כן פיו, מי שאינו חריף לרמות קרוי תם".
+ז. ביאור השייכות של ג' הענינים ד"שלם" "תמים" והליכה בתמימות — לאברהם יצחק ויעקב:
+אברהם הי' בנו של תרח, "ולא הי' לו מלמד ולא מודיע דבר אלא מושקע באור כשדים בין עכו"ם הטפשים ואביו ואמו וכל העם עובדי כוכבים והוא עובד עמהם ולבו משוטט ומבין עד שהשיג דרך האמת כו' מתבונתו הנכונה. . וידע שכל העולם טועים. . ובן ארבעים שנה הכיר אברהם את בוראו" (כמבואר ברמב"ם[ftnref\_438\_54]), שמזה מובן, שעיקר עבודת אברהם היתה לשלול ענין החסרון (שמצד תרח אביו והעולם סביבו כו')[ftnref\_439\_55], ובזה עלה מחיל אל חיל בעבודת השם עד שהגיע לדרגת השלימות בעבודתו ית', וכדאיתא בזהר עה"פ[ftnref\_440\_56] ואברהם זקן בא בימים, שאצל אברהם היו יומין שלימין, שלא הי' חסר לבושא חדא ויומא חדא כו'.
+אבל יצחק נולד מטיפה קדושה[ftnref\_441\_57], שתיכף בלידתו כבר הי' קדוש מבטן[ftnref\_442\_\*57] (והי' הראשון שנולד יהודי)[ftnref\_443\_58], ועבודתו היתה — ענין התמימות, היינו הוספה בשלימות הקדושה והיהדות שהיתה בו.
+[ולהעיר, שגם בענין המילה, הרי דוקא יצחק נימול לשמונה[ftnref\_444\_59], היינו קיום מצות מילה בשלימותה (כפי שהיא אחר מ"ת), משא"כ באברהם שנימול לצ"ט].
+אלא שעדיין אין זו תכלית השלימות, כי יצחק לא יצא מחוץ לגבול הקדושה, כציווי ה' "אל תרד מצרימה שכון בארץ גו'"[ftnref\_445\_60]; וזהו חידושו של יעקב, שאצלו נאמר[ftnref\_446\_61] "ויצא יעקב מבאר שבע וילך חרנה", חרון אף של מקום[ftnref\_447\_62] בעולם,
+
+## 50
+
+וכפשוטו שהוצרך לברוח מעשו, ולהיות בבית לבן הארמי כ' שנה ואח"כ עברה עליו "צרת יוסף וכו'", ובכל מצבים אלו נשאר תמים בעבודתו, "עם לבן הרשע גרתי כו' ולא למדתי ממעשיו הרעים"[ftnref\_448\_63], וכמבואר בארוכה במדרשי רז"ל.
+וענין זה הוא מצד הענין הג' בתמימות, ש"איש[ftnref\_449\_64] תם וישר. . הוא סור מרע ועשה טוב בפועל ממש בבחי' התמימות שלא ישונה לעולם, ואינו נוגע לו הזמן והמקום שמפני תוקף הדבר והתמימות שבנפשו שכך צריך לעשות ואינו שייך כלל באופן אחר ע"כ בכל זמן ובכל מקום שהוא ה"ה עושה כן בלי שום שינוי כלל, ולא יחוש משום מנגד ומסית להדיחו ח"ו מצד עוצם התוקף בנפשו כו'[ftnref\_450\_\*64], עד שגם אינו נחשב אצלו לנסיון כלל מאחר שאופן אחר ח"ו אינו שייך כלל"[ftnref\_451\_65].
+וזהו ענינו של יעקב "איש תם"[ftnref\_452\_66], מדת האמת[ftnref\_453\_67], בריח התיכון שמבריח מן הקצה אל הקצה[ftnref\_454\_68], שבכל הפרטים והמצבים הוא בשווה ממש, ואינו מתפעל משום מנגד[ftnref\_455\_69].
+ח. וזהו גם הקשר בין ענין ההליכה בתמימות ("תם") לענין ד"שלם" ו"תמים" — כי ההליכה בתמימות אינה ענין שונה, אלא הוא דרגא עליונה יותר ב"שלימות", שהוא שלם בכל זמן ובכל מקום ובכל המצבים [וכדאיתא בזהר[ftnref\_456\_70] שיעקב "הוה שלים מכולהו וע"ד כתיב בי' ויעקב איש תם שלים מכלא, אברהם תמים אקרי ולא הוה כ"כ שלים אבל תם שלים מכולא"].
+והביאור בזה:
+גדר השלימות ד"שלם" נוצר ע"י הפרטים השונים שיש בו, שבצירוף כולם
+
+## 51
+
+יחדיו נעשה ענין שלם; וגדר "תמים" אינו נפעל מצד הצטרפות הפרטים יחד, אלא מצד ענין חדש שמוסיף על שלימות הדבר מצ"ע, שדבר חדש זה פועל בו שיהי' "תמים". וכמו לדוגמא בזמן, ששנת הלבנה יש בה י"ב חדשי הלבנה, שנה שלמה. ושנה תמימה נעשית ע"י הוספת חודש העיבור. ואף שכל השנה נקראת שנה תמימה, שנעשה מציאות אחת (לא שנה וחודש י"ג), מ"מ, הרי מציאות אחת זו נוצרה על ידי חודש הי"ג.
+וכן הוא באדם, דאף שהחילוק בין אדם השלם שאין בו חסרון לאדם סתם הוא לא רק בזה שאדם השלם יש בו יותר מעלות פרטיות (וכן אדם תמים יש בו תוספת מעלות גם לגבי אדם השלם), אלא שהאדם נעשה מציאות של "אדם השלם" (ויתירה מזו בשייכות לתמים, שהאדם נקרא תמים) — מ"מ, גדר דאדם השלם הוא שכל כחות נפשו וכל פרטי עבודתו הם כדבעי, היינו צירוף כל הפרטים שבו; ו"תמים" הוא הוספת מעלה מסויימת שהיא היא הפועלת ויוצרת שם "תמים".
+משא"כ הענין הג' שב"תמימות" הרי הוא למעלה ממעלות פרטיות, כי זה שהוא תמים בעבודתו, ואינו מתפעל ואינו משתנה, הוא לא מצד מעלות ושלימות הפרטים שיש לו, או מצד הוספת מעלה יתירה, אלא, מצד הפשטות שלו שאינה שייכת לפרטים ומעלות מסויימות, ולכן ענין התמימות מתבטא בביטול והנחת עצמותו (הכולל ביטול פרטי מעלותיו), שזהו עצם נקודת הרצון שיש בכל יהודי (כמ"ש הרמב"ם[ftnref\_457\_71]) שאינו משתנה לעולם[ftnref\_458\_72].
+ולכן בכל המצבים ובכל הזמנים ובכל המקומות הוא בשלימות ובתמימות.
+ט. ע"פ כל הנ"ל יש לבאר גם השייכות בין מצות מילה לענין ההליכה בתמימות (וכנ"ל סעיף ה, שגם פירוש הג' ב"והי' תמים" — הליכה בתמימות — נפעל על ידי מצות מילה) — דיש לומר, שזה שייך לענין הג' שבמצות מילה, שהוא עצם פעולת המילה (והנפק"מ להלכה, שגם מי שנולד מהול צריך הטפת דם ברית[ftnref\_459\_73], עצם פעולת המילה[ftnref\_460\_74]).
+והיינו משום שעצם פעולת המילה
+
+## 52
+
+(ואולי י"ל שזהו קשור עם צערא דינוקא), דורשת שיהי' אצל האב (המל את בנו) תמימות — ביטול והנחת עצמו[ftnref\_461\_75].
+וליתר ביאור — וע"פ ביאור הפנימי בתוכנם הרוחני של ג' ענינים הנ"ל שבמצות מילה:
+התוכן הרוחני ד"לא יהי' ערל" הוא — להשתחרר משליטת היצה"ר בתאוות הגוף והיצר[ftnref\_462\_76], שעי"ז ה"ה בגדר "שלם";
+התוכן הרוחני ד"מהול" הוא, שגם אדם שהוא סר מרע ואינו תחת שליטת היצר, מוסיף תמיד בעבודתו בעלייתו בקודש, ומגלה את הטוב שנמצא בו[ftnref\_463\_77], שעי"ז נעשה "תמים", שלא רק שאין בו חסרון אלא יש בו הוספת מעלה ושלימות (גם לגבי מי שהוא שלם מבלי חסרון בלא"ה).
+אבל שני ענינים אלו, העבודה שלא יהי' ערל ושיהי' מהול, ענינם עבודה שיש בהם טעם ומעלה — "שלא יהי' ערל" היינו שיהי' אדם השלם מבלי חסרון, ו"שיהי' מהול" היינו שיהי' אדם בשלימות ותמימות יתירה, ולכן אין צורך (כ"כ) לענין התמימות והביטול בעבודה זו.
+משא"כ עצם פעולת המילה, שהיא מעשה ועבודה כזו שלא נרגש בה מעלה ושלימות, כ"א רק עצם מעשה המצוה מצד ציווי ה', זה בא מצד התמימות והביטול שבנפשו, שמבטל ומניח את עצמו, וכן שכלו ומדותיו, לקיים רצון ה' למעלה מטעם ודעת[ftnref\_464\_78].
+ועל ידי עבודה זו פועלים ש"כל המתמים עצמו הקב"ה מתמים עמו כו' כל המתמים עצמו שעה עומדת לו שנאמר התהלך לפני והי' תמים וכתיב והיית לאב המון גוים", עד ל"והיו[ftnref\_465\_79] מלכים אומניך ושרותיהם מניקותיך", שיהי' בתכלית השלימות בביאת משיח צדקנו, בקרוב ממש, בשנה תמימה זו[ftnref\_466\_80].
+[quotation](משיחות ש"פ לך תשמ"א, ליל ב' וג' דחג הסוכות תשמ"ט) [/quotation]
+
+**English:**
+
+## 45
+
+The Mishnah emphasizes, "Great is *milah*, for all the *mitzvos* that Avraham Avinu performed did not cause him to be called *shalem* (complete) until he performed *milah*" (and not "on account of the *milah*"). This is because the intent is the removal of the *orlah* (foreskin) through *milah*. This follows the beginning of the Mishnah, which discusses the negation of the *orlah*: "A vow that I will not benefit from the *areilim* (uncircumcised) is permitted for the *areilim* of Yisrael and forbidden for the *mulei* (circumcised) of the *akum*... for the term *orlah* is applied only to the *akum*... Rabbi Elazar ben Azaryah says: The *orlah* is repulsive..." [This is also implied in the Rambam, who at the end of *Hilchos Milah* writes: "The *orlah* is repulsive, for the *goyim* have been disgraced by it... and great is *milah*, for Avraham Avinu was not called *shalem* until he performed *milah*, as it is written..." Thus, he writes "great is *milah*" regarding Avraham in that *halacha*, following "the *orlah* is repulsive," and connects them with the letter *vav* (and)].
+
+However, the *Baraisa* explains the virtue of *milah* itself (that one is *mahul*—circumcised). Therefore, it emphasizes, "And he was not called *tamim* (perfect/whole) except on account of *milah*" (and not "until he performed *milah*").
+
+But it still requires understanding how the other differences between the Mishnah and the *Baraisa* are explained.
+
+**G.** It can be said that the explanation for this is:
+Regarding the term *tamim*, we find two concepts: (a) the negation of a blemish or deficiency; (b) an additional *temimus* (wholeness) and perfection, where not only is there nothing lacking, but the person is *tamim*.
+
+This is similar to the law of *tamim* regarding *korbanos*, where we find these two concepts: the negation of deficiency—that it has no disqualifying blemish. But this also includes an extra *temimus*, as the Rambam writes: "It is a *mitzvah aseh* that all *korbanos* be *temimim* and *mivcharim* (choice), as it is written, 'It shall be *tamim* to be accepted,' this is a *mitzvah aseh*." [And similarly, he writes regarding *nesachim* and the wood for the *ma'arachah*: "Just as it is a *mitzvah* for every *korban* to be *tamim* and *nivchar*, so too the *nesachim* must be *temimim* and *nivcharim*, as it is written, 'They shall be *temimim* for you, and their *nesachim*...' and similarly the wood for the *ma'arachah* shall only be *nivchar* and not..."]
+
+Thus, even though *mivcharim* is a separate law, as the Rambam brings that this is learned from the verse "the choice of your vows," it is nevertheless included in the term *tamim yihyeh*. By bringing a *korban* from the choice, one fulfills not only the law of *mivchar* in *korbanos*, but also the requirement of *tamim yihyeh*. This is because *tamim* contains two details: *tamim* as opposed to a *ba'al mum* (one with a blemish), which means there is no deficiency; and *tamim* which possesses an additional perfection and *temimus*, even though it would be *shalem* without it.
+
+## 46
+
+It can be said that this is the difference between the two terms *tamim* and *shalem*. Although they are generally synonymous, specifically there is a difference between them: *shalem* means the absence of deficiency, while *tamim* indicates an additional *temimus*.
+
+This is similar to what we find regarding a "year": A regular year is a year of twelve months, and when *Cheshvan* and *Kislev* are full, we call it a *shaleimah* (complete) year. But a *shanah temimah* (a full year), our Sages explain, [is used] "to include the leap month". Thus, even though it is called a *shaleimah* year without the leap month because nothing is missing, nevertheless, through the leap month, the concept of *temimus* is added to it.
+
+**D.** This is the point of difference between the Mishnah and the *Baraisa* in *Maseches Nedarim*:
+The Mishnah discusses the first definition of *tamim*, which is effected by *milah*. Therefore, the Mishnah emphasizes (and changes from the wording of the verse) "Great is *milah*... he was not called *shalem* until he performed *milah*," meaning *shalem* without blemish or deficiency.
+
+The *Baraisa* adds to the Mishnah: "Great is *milah*... and he was not called *tamim* except on account of *milah*." This means that beyond the fact that the *mitzvah* of *milah* caused Avraham Avinu to be *shalem* (without blemish), it also caused him to be *tamim*—an additional perfection (similar to the leap month).
+
+The change in the wording of the Mishnah and the *Baraisa* is precise: In the Mishnah, "he was not called *shalem* until he performed *milah*," while in the *Baraisa*, "he was not called *tamim* except on account of *milah*." This is because the definition of *shalem* (without deficiency) was not effected by the *mitzvah* of *milah* alone, but in combination with "all the *mitzvos* that Avraham Avinu performed," through which he became *shalem*. This is what the Mishnah means by saying that "until he performed *milah*" he was not yet called *shalem* [because besides the fact that he was missing the fulfillment of one *mitzvah*—the *mitzvah* of *milah*—as long as a person is an *areil*, he is essentially lacking (and a *ba'al mum*)]. This is not the case in the *Baraisa*, which discusses the definition of *tamim*, which is an additional perfection and *temimus*—and this virtue did not come to him "except on account of *milah*," for this *mitzvah* is what brought a new *temimus* and perfection into all of Avraham's affairs.
+
+Similarly, we can understand the change in the opening of the statements: In the Mishnah, "all the *mitzvos* that Avraham Avinu performed," and in the *Baraisa*, "there is no one who occupied himself with *mitzvos* like Avraham Avinu."
+In the Mishnah, which discusses the definition of *shalem* (not a *ba'al mum*) effected by the *mitzvah* of *milah*,
+
+## 47
+
+it emphasizes the perfection that Avraham Avinu possessed even before performing the *mitzvah* of *milah*, that "all the *mitzvos* that Avraham Avinu performed" (meaning the entire Torah, which Avraham Avinu fulfilled before it was given) did not have the power to cause Avraham to be *shalem* "until he performed *milah*."
+This is not the case in the *Baraisa*, which intends the definition of *tamim*, which is an additional perfection and *temimus* (more than perfection in the sense of the absence of deficiency). It must be emphasized that even before the fulfillment of the *mitzvah* of *milah*, Avraham possessed (not only the fulfillment of all *mitzvos*, but also) the fulfillment of *mitzvos* in a manner of *hiddur* (additional *temimus* and perfection)—"there is no one who occupied himself with *mitzvos* like Avraham Avinu," in a manner of occupation and extra toil, even to the point of *mesiras nefesh*. Nevertheless, "he was not called *tamim* except on account of *milah*," because it is impossible to reach the level of *tamim* except through *milah*, when a person is *mahul*.
+
+Based on this, we can also explain the connection to the two aspects of *milah*—that one should not be an *areil*, and that one should be *mahul*—as emphasized by the change in the wording of the Mishnah and the *Baraisa*, "until he performed *milah*" or "on account of *milah*":
+The aspect of "not being an *areil*" in the *mitzvah* of *milah* causes a person to be *shalem* without blemish, for the *orlah* is a blemish, and the removal of the *orlah* nullifies this deficiency, making him *shalem* (this itself permits him to eat *terumah*, as explained in the Rambam). This is what is meant by the Mishnah, "he was not called *shalem* until he performed *milah*," referring to the removal of the *orlah*, through which "he is called *shalem*."
+But the fact that a person becomes *mahul* is not merely a negative matter—that he lacks an *orlah*—but is an additional positive perfection and virtue. Beyond the fact that he lacks an *orlah* (a blemish), there is a positive matter: that he is *mahul*. This is what the *Baraisa* adds: that the purpose and effect of *milah* is not only to effect perfection in a deficient person, but to add *temimus* even in a *shalem* person. "He was not called *tamim* except on account of *milah*," because the concept of *tamim* (not just *shalem*) is effected by the positive aspect in the *cheftza* (object) of *milah*, the fact that the person is *mahul*.
+
+## 49
+
+deficiency and blemish), and like the three interpretations in Rashi on the verse, "He was *shalem* in all my trials... and in this matter you shall be *tamim*, for as long as the *orlah* is upon you, you are a *ba'al mum* before Me... now you are lacking five limbs..."
+The term *olah temimah* indicates (not only the absence of deficiency, but) additional perfection and *temimus*. For *olah* itself already indicates that it is entirely for the Above, a complete offering (meaning: a *korban* in general is *tamim* and not a *ba'al mum*; in addition, it is an *olah*—which ascends entirely to Hashem, a complete offering), and the title "(*olah*) *temimah*" adds *temimus* even to this, an addition of perfection in an *olah* that is entirely for the Above in any case.
+And "Yaakov, an *ish tam*" means walking in *temimus*, as Rashi explains: "Like his heart, so is his mouth; one who is not sharp to deceive is called *tam*."
+
+**Z.** An explanation of the connection of the three concepts—*shalem*, *tamim*, and walking in *temimus*—to Avraham, Yitzchak, and Yaakov:
+Avraham was the son of Terach, "and he had no teacher or anyone to inform him, but he was immersed in Ur Kasdim among the foolish *akum*, and his father and mother and all the people were idolaters, and he worshipped with them, while his heart wandered and understood until he attained the path of truth... through his own correct understanding... and he knew that the whole world was mistaken... and at forty years old, Avraham recognized his Creator" (as explained in the Rambam). From this it is understood that the main *avodah* of Avraham was to negate the concept of deficiency (which came from his father Terach and the world around him, etc.). In this, he went from strength to strength in his *avodah* to Hashem until he reached the level of perfection in his *avodah* to Him, as it is stated in the Zohar on the verse "And Avraham was old, advanced in days," that for Avraham, the days were *shleimin* (complete), for he lacked neither a garment nor a day.
+
+But Yitzchak was born from a holy drop, and immediately at his birth he was holy from the womb (and he was the first to be born a Jew), and his *avodah* was the concept of *temimus*—that is, an addition to the perfection of holiness and Judaism that was already within him.
+[It should be noted that even regarding *milah*, Yitzchak was specifically circumcised on the eighth day, meaning the fulfillment of the *mitzvah* of *milah* in its perfection (as it is after the Giving of the Torah), unlike Avraham, who was circumcised at ninety-nine.]
+
+However, this is still not the ultimate perfection, for Yitzchak did not go outside the boundaries of holiness, as per Hashem's command, "Do not go down to Mitzrayim; dwell in the land that I will tell you of". This is the innovation of Yaakov, of whom it is said, "And Yaakov went out from Be'er Sheva and went toward Charan," the *charon* (burning) anger of the Place in the world,
+
+## 50
+
+and as it is understood simply, he had to flee from Esav and be in the house of Lavan the Aramean for twenty years, and afterwards he endured the "trouble of Yosef," and in all these situations he remained *tamim* in his *avodah*: "I have dwelt with Lavan the wicked... and I have not learned from his evil deeds", as explained at length in the *Midrashim* of our Sages.
+This matter is from the third aspect of *temimus*, that "an *ish tam* and upright... is one who turns from evil and does good in actual practice, in a state of *temimus* that will never change. Time and place do not affect him, because of the intensity of the matter and the *temimus* in his soul—that this is how one must act, and no other way is possible. Therefore, at all times and in all places, he acts this way without any change at all. He does not fear any opponent or inciter who would cause him to stumble, *chas v'shalom*, because of the intensity of the strength in his soul... until it is not even considered a trial for him at all, since any other way, *chas v'shalom*, is not possible".
+This is the matter of Yaakov, "an *ish tam*," the *middah* of truth, the central bolt that connects from one end to the other, where in all details and situations he is exactly the same, and is not affected by any opponent.
+
+**Ch.** This is also the connection between the matter of walking in *temimus* ("*tam*") and the matter of *shalem* and *tamim*—for walking in *temimus* is not a different matter, but is a higher level of "perfection," where one is *shalem* at all times, in all places, and in all situations [as it is stated in the Zohar that Yaakov "was *shalim* from everything, and therefore it is written of him, 'And Yaakov was an *ish tam*,' *shalim* from everything. Avraham is called *tamim*, but he was not as *shalim* as this, but *tam* is *shalim* from everything"].
+
+The explanation for this:
+The definition of the perfection of *shalem* is created by the various details within it, which, when combined,
+
+## 51
+
+together form a *shalem* entity. The definition of *tamim* is not effected by the combination of details, but by a new matter that adds to the perfection of the thing itself. This new matter causes it to be *tamim*. For example, regarding time: the lunar year has twelve lunar months, a *shaleimah* year. A *shanah temimah* is created by the addition of the leap month. And even though the entire year is called a *shanah temimah*, forming one reality (not a year and a thirteenth month), nevertheless, this one reality was created by the thirteenth month.
+It is the same with a person. Although the difference between a *shalem* person who has no deficiency and an ordinary person is not only that the *shalem* person has more specific virtues (and similarly, a *tamim* person has additional virtues even compared to a *shalem* person), but that the person becomes a reality of a "shalem person" (and even more so in relation to *tamim*, that the person is called *tamim*)—nevertheless, the definition of a *shalem* person is that all his soul powers and all the details of his *avodah* are as they should be, meaning the combination of all his details. *Tamim* is the addition of a specific virtue that is what effects and creates the title "tamim."
+
+This is not the case for the third matter of *temimus*, which is above specific virtues. For the fact that he is *tamim* in his *avodah* and is not affected and does not change is not because of the virtues and perfection of the details he possesses, or because of the addition of an extra virtue, but because of his simplicity, which does not relate to specific details and virtues. Therefore, the matter of *temimus* is expressed in the *bitul* (nullification) and setting aside of his own self (which includes the nullification of his specific virtues). This is the essence of the point of *ratzon* (will) that exists in every Jew (as the Rambam writes), which never changes.
+Therefore, in all situations, at all times, and in all places, he is in a state of perfection and *temimus*.
+
+**Tes.** Based on all the above, we can also explain the connection between the *mitzvah* of *milah* and the matter of walking in *temimus* (as mentioned in section E, that even the third interpretation of "and be *tamim*"—walking in *temimus*—is effected by the *mitzvah* of *milah*). It can be said that this relates to the third aspect of the *mitzvah* of *milah*, which is the essence of the act of *milah* (and the practical difference, that even one who is born circumcised requires *hatafas dam bris*, the essence of the act of *milah*).
+This is because the essence of the act of *milah*
+
+## 52
+
+(and perhaps it can be said that this is connected to the *tza'ara d'yanuka*—the pain of the infant) requires that the father (who circumcises his son) have *temimus*—*bitul* and setting aside of himself.
+
+For further explanation—and based on the inner explanation of the spiritual content of the three matters mentioned above regarding the *mitzvah* of *milah*:
+The spiritual content of "not being an *areil*" is to be freed from the control of the *yetzer hara* in the desires of the body and the *yetzer*, through which he is in the category of *shalem*.
+The spiritual content of "being *mahul*" is that even a person who turns from evil and is not under the control of the *yetzer* always adds to his *avodah* in his ascent in holiness, and reveals the good that is within him, through which he becomes *tamim*, where not only is there no deficiency, but there is an addition of virtue and perfection (even compared to one who is *shalem* without deficiency in any case).
+But these two matters—the *avodah* of not being an *areil* and being *mahul*—are *avodah* that has within it reason and virtue. "Not being an *areil*" means being a *shalem* person without deficiency, and "being *mahul*" means being a person with additional perfection and *temimus*. Therefore, there is not (as much) need for the matter of *temimus* and *bitul* in this *avodah*.
+This is not the case for the essence of the act of *milah*, which is an act and *avodah* in which no virtue or perfection is felt, but only the essence of the act of the *mitzvah* because of Hashem's command. This comes from the *temimus* and *bitul* in his soul, where he nullifies and sets aside himself, as well as his intellect and *middos*, to fulfill Hashem's will above reason and knowledge.
+Through this *avodah*, one effects that "Whoever makes himself *tamim*, the Holy One, Blessed be He, makes Himself *tamim* with him... whoever makes himself *tamim*, an hour stands for him, as it is written, 'Walk before Me and be *tamim*,' and it is written, 'And you shall be a father of a multitude of nations,'" until "And kings shall be your foster fathers, and their queens your nursing mothers," that he will be in the ultimate perfection with the coming of Mashiach Tzidkeinu, very soon, in this *shanah temimah*.
+
+(From the *sichos* of *Shabbos Parshas Lech Lecha* 5741, the nights of the second and third days of *Chag HaSukkos* 5749)
+
+---
+
+_Section: לך לך_
+
+**Hebrew:**
+
+## שיחה ג
+
+## 53
+
+### שיחה ג
+
+א. כתב הרמב"ם בספר המצות: "מצוה רטו היא שצונו למול את הבן, והוא אמרו ית' לאברהם[ftnref\_467\_1] המול לכם כל זכר". אמנם במנין המצות בריש ספר היד[ftnref\_468\_2] כתב "למול את הבן שנאמר וביום השמיני ימול בשר ערלתו" — שהוא כתוב בפ' תזריע[ftnref\_469\_3].
+וצריך להבין טעם השינוי, שבמנין המצות הביא המקור למצוה זו מהכתוב דפ' תזריע ולא (כבספר המצות) מהציווי שנאמר לאברהם[ftnref\_470\_4].
+ועוד תמוה: במנין המצות מדייק הרמב"ם[ftnref\_471\_5] בלשונו לומר "למול את הבן"[ftnref\_472\_6], שבפשטות כוונתו שהחיוב על האב למול את בנו [ובפרט ששינה ממ"ש (בל' סתמי) בהכותרת להל' מילה "למול הזכרים ביום השמיני"][ftnref\_473\_7]; וא"כ לכאורה הו"ל להרמב"ם להביא הכתוב דאברהם, ששם מוכח שהאב מצווה למול את בנו[ftnref\_474\_8], ולא הכתוב "וביום השמיני ימול בשר ערלתו" שלא נזכר בו שהחיוב הוא על האב[ftnref\_475\_9].
+לכאורה י"ל ששינוי זה תלוי בפלוגתת הבבלי וירושלמי, שבבבלי[ftnref\_476\_10] למדו החיוב שעל האב למול את בנו ממש"נ[ftnref\_477\_11] באברהם "וימל אברהם את יצחק בנו", ובירושלמי[ftnref\_478\_12] למדו ממש"נ "וביום השמיני
+
+## 54
+
+ימול בשר ערלתו" (ש"ודאי דלאו אקטן מוטל לעשות רק על האב" — קרבן העדה), ובספר היד נקט הרמב"ם כדרשת הירושלמי.
+אבל הא גופא טעמא בעי, מדוע נקט הרמב"ם בס' היד כהירושלמי ולא כהבבלי[ftnref\_479\_13] (ובפרט ע"פ הכלל הידוע[ftnref\_480\_14] שהרמב"ם מביא הדרשה הפשוטה יותר, והרי בכתובים דאברהם מפורש ופשוט (יותר) חיובא דאב[ftnref\_481\_15]).
+ב. והנה בפשטות יש לבאר זה ע"פ דברי הרמב"ם הידועים בפירוש המשניות שלו[ftnref\_482\_16], וז"ל:
+"ושים לבך על העיקר הגדול. . שכל מה שאנו מרחיקים או עושים היום אין אנו עושין אלא במצות הקב"ה ע"י משה רבינו ע"ה לא שהקב"ה אמר זה לנביאים שלפניו כגון. . אין אנו מלין מפני שאברהם אבינו ע"ה מל עצמו ואנשי ביתו אלא מפני שהקב"ה צוה אותנו ע"י משה רבינו שנמול כמו שמל אברהם אבינו ע"ה. וכן גיד הנשה אין אנו הולכים אחר איסור יעקב אבינו אלא מצות משה רבינו ע"ה הלא תראה מה שאמרו תרי"ג מצות נאמרו לו למשה מסיני וכל אלו מכלל המצות".
+ולכן לא נקט הרמב"ם בס' היד הכתוב שנאמר לאברהם (היינו "נביאים שלפניו" דמשה) אלא דפ' תזריע[ftnref\_483\_17], שהוא הציווי ש"הקב"ה צוה אותנו ע"י משה רבינו"[ftnref\_484\_18].
+אבל עפ"ז קשה יותר זה שבספר המצות מביא הכתוב דאברהם ולא הזכיר כלל הכתוב דפ' תזריע?
+ויתירה מזו: בספר המצות מדגיש הרמב"ם "והוא אמרו ית' לאברהם המול לכם כל זכר" — היינו שלא זו בלבד שמביא הכתוב דאברהם, אלא שמוסיף ומדגיש שהציווי לישראל (שצונו) למול
+
+## 55
+
+כו' הוא הוא הציווי שהי' לאברהם — היפך ה"עיקר הגדול" שבפירוש המשניות, "שכל מה שאנו. . עושים היום אין אנו עושין אלא במצות הקב"ה על ידי משה רבינו ע"ה לא שהקב"ה אמר זה לנביאים שלפניו".
+ג. ויש לומר בהקדם תוס' ביאור בדברי הרמב"ם הנ"ל בפירוש המשניות, שלכאורה יש להקשות[ftnref\_485\_19]:
+מכיון שמצות מילה המוטלת עלינו אינה מצות מילה שנצטווה אברהם אבינו, אלא יסודה וענינה הוא — "מצות הקב"ה על ידי משה רבינו ע"ה" — מדוע נקראת מצוה זו בשם "בריתו של אברהם אבינו", ועד שנקבע שם זה בנוסח הברכה[ftnref\_486\_20] — "להכניסו בבריתו של אברהם אבינו"?
+ומצינו ג"כ ששייכותה של מצוה זו לבריתו של אברהם אבינו מוזכרת ומודגשת בספר היד, בכתבו ע"ד גודל העילוי של ברית מילה וחומר הפרתה — "לא[ftnref\_487\_21] נקרא אברהם אבינו שלם עד שמל. . וכל המפר בריתו של אברהם אבינו. . וכל מצות התורה נכרתו עליהן שלש בריתות. . ועל המילה נכרתו שלש עשרה בריתות עם[ftnref\_488\_22] אברהם אבינו".
+וכעין הדגשה זו מצינו גם בפירוש המשניות שם גופא, וז"ל: "(אין אנו מלין מפני שאברהם אבינו ע"ה מל. . אלא מפני שהקב"ה צוה אותנו ע"י משה רבינו) שנמול כמו שמל אברהם אבינו ע"ה" — דלכאורה[ftnref\_489\_23] מה טעם הוספה זו "שנמול כמו שמל אאע"ה", לאחר שקבע שאין אנו מלין אלא מפני שהקב"ה צוה אותנו ע"י משה? [וכמו בההמשך תומ"י במצות גיד הנשה, שלא כתב הרמב"ם ש"מצות משה רבינו ע"ה" היתה שלא לאכול גיד הנשה כמו שלא אכלו יעקב ובניו[ftnref\_490\_24]].
+ד. וי"ל הביאור בזה — בפשטות:
+בה"עיקר הגדול" שכתב הרמב"ם — דזה שאנו מקיימים את המצות אינו מפני הציוויים שקדמו להציוויים על ידי משה רבינו בסיני — כוונתו לומר שכל החיוב המוטל עלינו בקיום כל המצות בא אך ורק מהציווי של הקב"ה ע"י מרע"ה, בלי קשר וזיקה להציוויים שנאמרו ע"י ה"נביאים שלפניו"; אבל אין זה נוגע לגוף המצות ומהותן, ויתכן שפיר שגדרן ומהותן של המצות דלאחר מ"ת יש להן קשר ודמיון לענינן שלפני מ"ת — ועד שיתכן שמהותן וענינן אחד.
+ובנדו"ד — מצות מילה: ודאי שרק ציוויו של הקב"ה ע"י משה רבינו הוא המחייב אותנו לקיים מצוה זו, ולא הציווי לאברהם; וביחד עם זה מהותה של מצות מילה שנצטווינו היא היא בריתו של אברהם אבינו — הקב"ה ציונו (ע"י משה רבינו) להכניס את הבן (ע"י ברית מילה) בהברית שכרת הוא ית' עם אברהם אבינו.
+
+## 56
+
+ועפ"ז נמצא, שבמצות מילה יש חידוש גדול לגבי שאר המצות שנצטוו עליהן קודם מ"ת:
+בשאר המצות הרי המצוה כפי שניתנה במ"ת היא מצוה חדשה שאינה קשורה עם הציווי שהי' לפני מ"ת, וע"ד "ניתנה תורה ונתחדשה הלכה"[ftnref\_491\_25]; ואפילו כאשר גוף המצוה לא נשתנה — הרי אין לתוכן וענין המצוה שאנו מקיימים קשר ושייכות להמצוה שהיתה קודם מ"ת, ולדוגמא — אבר מן החי: זה שאנו אסורים באכילת אבר מן החי אין לו קשר לאיסור אבר מן החי שהי' נוהג לפני מ"ת.
+וגם באיסור גיד הנשה שמפורש בגמ'[ftnref\_492\_26] "שנכתב במקומו (בפ' וישלח) לידע מאיזה טעם נאסר להם", שהטעם שהוזהרנו (לאחר מ"ת) שלא לאכול גיד הנשה הוא מפני "(על כן. . ) כי נגע בכף ירך יעקב בגיד הנשה"[ftnref\_493\_27] — הרי זה רק טעם המצוה, שאיסור אכילת גיד הנשה הוא זכר להמאורע שאירע עם יעקב, אבל בגוף ועצם המצוה אין קשר ביניהם.
+משא"כ במילה, שהקשר של מצוה זו שאנו מקיימים למצות מילה דאברהם אבינו אינו רק טעם וזכר, אלא שהוא אותו הענין ממש[ftnref\_494\_28], שתוכן מצות מילה שלנו הוא מה שמכניסים את הנמול "בבריתו של אברהם אבינו".
+[וזהו עוד יותר ממ"ש הב"ח[ftnref\_495\_29] גבי מצות סוכה, שכוונת המצוה — "למען ידעו דורותיכם כי בסוכות הושבתי את בנ"י בהוציאי אותם וגו'"[ftnref\_496\_30] — היא חלק מהמצוה עצמה, ובלי כוונה זו "לא קיים המצוה כתיקונה" (דאף שתלה הכתוב "הרבה מצות"[ftnref\_497\_31] ביציאת מצרים, מ"מ, בשאר המצות הם רק טעם וזכר, משא"כ במצות סוכה הרי כוונה זו היא חלק מעצם המצוה),
+דשם הרי סו"ס אין זה אלא כוונה וזכר, אלא שהם חלק ופרט מקיום המצוה; משא"כ בנדו"ד — מצות מילה, שהענין ד"בריתו של אברהם אבינו" אינו רק פרט וחלק מהמצוה, אלא הוא מהותה של המצוה, שע"י מצוה זו מכניסים את הנמול "לבריתו של אברהם אבינו", כנ"ל].
+וזוהי כוונת הרמב"ם בהוסיפו "שהקב"ה צוה אותנו ע"י משה רבינו שנמול כמו שמל אברהם אבינו ע"ה" — להדגיש החידוש במצות מילה שאנו מקיימים, שה"ברית" הנפעלת על ידי המילה שלנו היא אותה ה"ברית" שכרת הקב"ה עם אברהם אבינו.
+ויש לומר, שזה מודגש עוד יותר בזה שרוב פרטי החיובים דמילה נלמדו מהכתובים דאברהם[ftnref\_498\_32], ועד שגם חיוב כרת נאמר (ורק) גבי אברהם[ftnref\_499\_33] (ולא בפ'
+
+## 57
+
+תזריע) — להדגיש שמצות מילה שלנו היא היא "בריתו של אברהם אבינו".
+ה. ועפ"ז יש לבאר טעם השינוי בין ספר המצות, ששם הביא הרמב"ם הכתוב דאברהם, ומנין המצות בריש ספר היד, ששם הביא הכתוב דפ' תזריע:
+מהחילוקים בין ספר המצות ומנין המצות שבספר היד הוא:
+ספר המצות אינו ספר הלכה, אלא רק ביאור של התרי"ג מצות, תיאור קצר של המצוה ומקורה בתושב"כ ודיני' (בכללות) בתושבע"פ[ftnref\_500\_34]; וכמו"כ בנדו"ד, מכיון שעיקר פרשת מילה הוא — הכתובים דאברהם שמשם נלמדים רוב פרטי', ושם מבואר מהותה של המצוה, שהיא "ברית" בין ישראל להקב"ה (בריתו של אברהם) — מביא הרמב"ם הכתוב "המול לכם כל זכר"; ולכן מדגיש שם שהציווי הי' "לאברהם" — כי זהו ענינה של מצות מילה, "בריתו של אברהם אבינו", כנ"ל[ftnref\_501\_35].
+משא"כ במנין המצות שבריש ס' היד — ספר "הלכות הלכות"[ftnref\_502\_36] — מביא הרמב"ם הכתוב שעיקרו (לא מהותה וגדרה של המצוה, אלא) מקור החיוב לקיים מצוה זו בתור אחת מתרי"ג מצות שנאמרו למשה בסיני; והיות "שכל מה שאנו מרחיקים או עושים היום אין אנו עושין אלא במצות הקב"ה ע"י משה רבינו ע"ה לא שהקב"ה אמר זה לנביאים שלפניו", מובן, שצריך להביא הכתוב שלאחרי מ"ת, שהיא (בפשטות[ftnref\_503\_37]) "מצות הקב"ה ע"י משה רבינו", כי חלות החיוב דמצוה זו היא מכתוב זה דוקא.
+ו. חידוש זה שבמצות מילה (שמהותה של ברית מילה היא — "בריתו של אברהם אבינו", שלפני הדיבור) — יובן יותר ממשנ"ת במק"א[ftnref\_504\_38], שבמצות מילה יש שני ענינים:
+א) מצוה פרטית, אחת מתרי"ג מצות התורה.
+ב) ענין כללי — "ברית" בין ישראל והקב"ה, "זאת בריתי. . ביני וביניכם"[ftnref\_505\_39], שברית מילה שייכת לעצם קדושת ישראל. וי"ל שזהו גם עיקר כוונת הרמב"ם במ"ש (בחותם הל' מילה[ftnref\_506\_40]) "מאוסה היא הערלה שנתגנו בה הגוים שנאמר[ftnref\_507\_41] כי כל הגוים ערלים", להדגיש, שענין המילה נוגע לכללות "ישראל" [שלכן, גם איש ישראל שאינו יכול לקיים מצות מילה בפועל (מפני שאחיו מתו מחמת מילה וכיו"ב[ftnref\_508\_42]) נק' "מהול"[ftnref\_509\_43], שי"ל הטעם, כי עיקר שם "מהול" הוא לא מפני פעולת המילה, אלא מפני חיובו להכנס לברית זו, שישנו גם במי שאינו יכול לקיים המצוה בפועל[ftnref\_510\_44]].
+וליתר ביאור: גם ה"מצוה פרטית" דמילה נקראת בשם "ברית" — אלא שישנם שני ענינים בה"ברית" שבין ישראל והקב"ה: א) הברית על קיום התומ"צ[ftnref\_511\_45],
+
+## 58
+
+ב) ה"ברית" והקשר שבין הקב"ה וישראל מצד מהותם דישראל[ftnref\_512\_46]. וזהו הענין הכללי שבברית מילה, שנוסף על היותה מצוה פרטית (אחת מתרי"ג מצות התורה) הרי היא אות הברית השייכת לישראל. וכמפורש במאמר חז"ל[ftnref\_513\_47] שמביא הרמב"ם (בהמשך ל"מאוסה היא הערלה כו'") "וכל[ftnref\_514\_48] המפר בריתו של אברהם כו' אע"פ שיש בו תורה ומעשים טובים אין לו חלק לעולם הבא" — כי הברית דמילה קדמה לברית דתורה ומעשים טובים, שקודם צ"ל[ftnref\_515\_49] המציאות דישראל (והברית עמו), ואח"כ[ftnref\_515\_49] שייך הברית דתורה[ftnref\_517\_50].
+[וי"ל שזוהי כוונת המדרש[ftnref\_518\_51] "אם אין אדם נמול אינו יכול ללמוד תורה שנאמר[ftnref\_519\_52] מגיד דבריו ליעקב למי שהוא מל כיעקב לא[ftnref\_519\_52] עשה כן לכל גוי משום שהם ערלים" — דברית מילה קדמה לתורה, כי תורה ומצות ניתנו לישראל דוקא ולא לאומות העולם, וישראל שייך לברית מילה].
+ז. ובזה יש לבאר הטעם שלא זו בלבד שמצות מילה התחילה מאברהם אבינו, אלא עוד זאת — שמצות מילה שאנו מקיימים לאחרי מ"ת קשורה לאברהם ועד שנקראת "בריתו של אברהם אבינו":
+"בריתו של אברהם אבינו" אינה כריתת ברית על קיום התורה ומצות, כי ענין התורה מתחיל מזמן מתן תורה, וכנ"ל מהרמב"ם שאין המצוות שלנו באות מהציוויים שלפני הדיבור; אלא ה"ברית" עם אברהם, "ביני וביניכם ובין זרעך אחריך", היא עם ישראל, דהתחלת עם ישראל היא מאברהם יצחק ויעקב[ftnref\_521\_53], ומאז הותחלה ברית וקדושת ישראל
+[לא מיבעי להדיעות[ftnref\_522\_54] שהאבות יצאו מכלל ב"נ, אלא אפילו להדיעות[ftnref\_522\_54] שלא יצאו מכלל ב"נ — ה"ז רק בנוגע לקיום המצות שלהם וכיו"ב, אבל מציאות עם ישראל התחילה מהאבות].
+ונמצא, שאף שהמצות שלנו אינן קשורות להמצות שלפני הדיבור — מ"מ מציאות עם ישראל מתחילה מהאבות.
+ומזה — שני הענינים שבמצות מילה: גוף המצוה והחובה של מצות מילה (כאחת מתרי"ג מצות) אינו שייך לציווי הקב"ה לאברהם, כי אם רק למצות
+
+## 59
+
+הקב"ה על ידי משה רבינו; אבל תוכן הברית הנפעל על ידי מצוה זו — השייך לעם ישראל — ה"ז "בריתו של אברהם אבינו", היא המשך להברית שכרת הקב"ה עם אברהם, "זאת בריתי. . ביני וביניכם ובין זרעך אחריך".
+ח. עפ"ז יש לבאר עוד הלכה ברמב"ם:
+בנוגע לברכת המילה פסק הרמב"ם בהל' מילה[ftnref\_524\_55]: ואבי הבן מברך ברכה אחרת כו' להכניסו בבריתו של אברהם אבינו, מצוה על האב למול את בנו יתר על מצוה שמצווין ישראל שימולו כל ערל שביניהן לפיכך אם אין שם אביו אין מברכין אחרי' ברכה זו. ויש מי שהורה שיברכו אותה ב"ד או אחד מן העם ואין ראוי לעשות כן.
+כלומר: לדעת הרמב"ם, הברכה "להכניסו בבריתו של אברהם אבינו" נתקנה במיוחד עבור אבי הבן, מפני מצוותו הנוספת והמיוחדת שיש לו ("יתר על מצוה שמצווין (כל) ישראל") למול את בנו. ולכן "אם אין שם אביו אין מברכין אחרי' ברכה זו".
+ומשמעות הענין היא, שזה שע"י ברית מילה מכניסים את הנמול "בבריתו של אברהם אבינו", שייך (בעיקר) למצות האב דוקא.
+יש שביארו[ftnref\_525\_56] לפי מה דיליף בקידושין[ftnref\_526\_57] דמצות האב למול את בנו הוא מדכתיב[ftnref\_527\_58] וימל אברהם את יצחק בנו, ונמצא שמצות האב שייכת ל"בריתו של אברהם אבינו" (שממנו ילפינן חיובא דאב).
+אבל מלבד זאת שבס' היד (במנין המצות) מביא הרמב"ם (כנ"ל) הכתוב דפ' תזריע ולא הכתוב דאברהם[ftnref\_528\_59] — הנה גם הביאור עצמו צ"ע, שהרי גם החיוב שעל ב"ד, וכן החיוב של הבן עצמו, נלמדים בקידושין שם מהכתובים גבי אברהם, וא"כ גם החיוב של כל ישראל (ב"ד) ושל הבן עצמו שייכים ל"בריתו של אברהם אבינו", ואין חובת האב שונה מחיובם בענין זה.
+ט. אמנם ע"פ משנת"ל בביאור הלשון "בריתו של אברהם אבינו" — יש לבאר השייכות למצות האב דוקא:
+שם "ישראל" תלוי בלידה, שבא להנולד בירושה מאביו ואמו, דלהיותו בן אברהם יצחק ויעקב (ובת שרה רבקה רחל ולאה) יש לו ממילא שם ישראל בפועל [משא"כ ה"ברית" דתורה, אף שמתחייב בתורה ומצוות בדרך ממילא להיותו איש (ואשה ד)ישראל — מ"מ, קיום התומ"צ בפועל תלוי בבחירתו].
+ונמצא, שמהותה של מצות מילה (היינו הענין הכללי שבה — "בריתו של אברהם אבינו") הרי היא המשך ללידת הבן, שאז נכנס (בדרך ממילא, מצד הלידה) לכלל ישראל, ושלימות שם ישראל באה לו בעת ברית מילה (ואשה כמאן דמהילא דמיא[ftnref\_529\_60]).
+ויש לומר שזהו הטעם שבמצות מילה יש מצוה מיוחדת על האב "יתר על מצוה שמצווין ישראל" [ופשטות הלשון היא, שזה שהמצוה היא על האב אינו רק משום שאא"פ לקטן למול א"ע ולכן
+
+## 60
+
+הטילה התורה חיוב זה על האב[ftnref\_530\_61], אלא שזוהי בעצם חובת ומצות האב[ftnref\_531\_62]]:
+החיוב של כל ישראל "שימולו כל ערל שביניהן" הוא בעיקר מצד גדר חיוב המצוה, שמפני חומרת מצוה זו, הטילה התורה חובה על כל ישראל (ב"ד) "שימולו כל ערל שביניהן"; משא"כ המצוה שעל האב היא המשך להולדת הבן, דלהיות שהורי הבן[ftnref\_532\_63] הם שהכניסו אותו לכלל ישראל (ע"י לידתו[ftnref\_533\_64]), לכן על האב לגמור ו"להשלים" אצלו כניסה זו לישראל, על ידי ברית מילה.
+ולכן תיקנו הנוסח "להכניסו בבריתו של אברהם אבינו" במצות האב דוקא — כי ההכנסה "בבריתו של אברהם אבינו", שלימות ענין ישראל, שייכת בעיקר להאב, שהכניסו לכלל ישראל.
+[quotation](משיחות פורים וט"ז אדר תשמ"ז) [/quotation]
+
+**English:**
+
+## Sicha 3
+
+### 53
+
+**1.** The Rambam writes in *Sefer HaMitzvos*: "The 155th commandment is that we are commanded to circumcise the son, and this is what He, may He be blessed, said to Avraham: 'Every male among you shall be circumcised.'" However, in the enumeration of the mitzvos at the beginning of *Sefer HaYad* (Mishneh Torah), he writes: "To circumcise the son, as it is stated: 'And on the eighth day the flesh of his foreskin shall be circumcised'" — which is written in *Parshas Tazria*.
+
+One must understand the reason for this change: why, in the enumeration of the mitzvos, did he bring the source for this mitzvah from the verse in *Parshas Tazria* and not (as in *Sefer HaMitzvos*) from the command stated to Avraham?
+
+Furthermore, it is puzzling: In the enumeration of the mitzvos, the Rambam is precise in his language, saying "to circumcise the son", which simply implies that the obligation is upon the father to circumcise his son [especially since he changed it from what he wrote (in general terms) in the heading for *Hilchos Milah*: "To circumcise the males on the eighth day"]. If so, seemingly the Rambam should have brought the verse regarding Avraham, where it is proven that the father is commanded to circumcise his son, and not the verse "And on the eighth day the flesh of his foreskin shall be circumcised," in which it is not mentioned that the obligation is upon the father.
+
+Seemingly, one could say that this change depends on the dispute between the *Bavli* and the *Yerushalmi*. In the *Bavli*, they derived the obligation upon the father to circumcise his son from what is stated regarding Avraham: "And Avraham circumcised his son Yitzchak." In the *Yerushalmi*, they derived it from what is stated: "And on the eighth day
+
+### 54
+
+the flesh of his foreskin shall be circumcised" ("for it is certain that it is not incumbent upon the minor to do it, but rather upon the father" — *Korban HaEdah*). In *Sefer HaYad*, the Rambam adopted the derivation of the *Yerushalmi*.
+
+But this itself requires a reason: Why did the Rambam adopt the *Yerushalmi* in *Sefer HaYad* rather than the *Bavli*? (Especially according to the well-known rule that the Rambam brings the simpler derivation, and in the verses regarding Avraham, the obligation of the father is explicit and simpler).
+
+**2.** Simply put, this can be explained based on the Rambam’s well-known words in his *Commentary on the Mishnah*, which state:
+
+"And set your heart upon the great principle... that everything we refrain from or do today, we do only by the command of the Holy One, blessed be He, through Moshe Rabbeinu, peace be upon him, not because the Holy One, blessed be He, said this to the prophets before him. For example... we do not circumcise because Avraham Avinu, peace be upon him, circumcised himself and his household, but because the Holy One, blessed be He, commanded us through Moshe Rabbeinu that we should circumcise just as Avraham Avinu, peace be upon him, circumcised. And likewise regarding the *gid hanasheh*, we do not follow the prohibition of Yaakov Avinu, but the command of Moshe Rabbeinu, peace be upon him. Do you not see what they said: 613 mitzvos were told to Moshe at Sinai, and all of these are included in the mitzvos."
+
+Therefore, the Rambam did not cite in *Sefer HaYad* the verse stated to Avraham (which are the "prophets before him" relative to Moshe), but rather the verse from *Parshas Tazria*, which is the command that "the Holy One, blessed be He, commanded us through Moshe Rabbeinu".
+
+But based on this, it is even more difficult: Why does *Sefer HaMitzvos* bring the verse regarding Avraham and not mention at all the verse from *Parshas Tazria*?
+
+Furthermore: In *Sefer HaMitzvos*, the Rambam emphasizes, "And this is what He, may He be blessed, said to Avraham: 'Every male among you shall be circumcised'" — meaning that not only does he bring the verse regarding Avraham, but he adds and emphasizes that the command to Israel (that He commanded us) to circumcise
+
+### 55
+
+etc., is the very same command that was given to Avraham — the opposite of the "great principle" in the *Commentary on the Mishnah*, "that everything we... do today, we do only by the command of the Holy One, blessed be He, through Moshe Rabbeinu, peace be upon him, not because the Holy One, blessed be He, said this to the prophets before him."
+
+**3.** It can be said, by way of further explanation of the Rambam’s words in the *Commentary on the Mishnah* mentioned above, that seemingly one must ask:
+
+Since the mitzvah of *milah* incumbent upon us is not the mitzvah of *milah* that Avraham Avinu was commanded, but rather its foundation and essence is "the command of the Holy One, blessed be He, through Moshe Rabbeinu, peace be upon him" — why is this mitzvah called by the name "the covenant of Avraham Avinu," to the point that this name is established in the text of the blessing — "to bring him into the covenant of Avraham Avinu"?
+
+We also find that the connection of this mitzvah to the covenant of Avraham Avinu is mentioned and emphasized in *Sefer HaYad*, where he writes regarding the greatness of the *bris milah* and the severity of violating it: "Avraham Avinu was not called 'perfect' until he circumcised... and whoever breaks the covenant of Avraham Avinu... and all the mitzvos of the Torah had three covenants made upon them... but upon *milah*, thirteen covenants were made with Avraham Avinu."
+
+A similar emphasis is found in the *Commentary on the Mishnah* in that very place, where it states: "(We do not circumcise because Avraham Avinu, peace be upon him, circumcised... but because the Holy One, blessed be He, commanded us through Moshe Rabbeinu) that we should circumcise just as Avraham Avinu, peace be upon him, circumcised" — for seemingly, what is the reason for this addition, "that we should circumcise just as Avraham Avinu, peace be upon him, circumcised," after he established that we only circumcise because the Holy One, blessed be He, commanded us through Moshe? [Just as in the continuation immediately regarding the mitzvah of *gid hanasheh*, the Rambam did not write that the "command of Moshe Rabbeinu, peace be upon him" was not to eat the *gid hanasheh* just as Yaakov and his sons did not eat it].
+
+**4.** The explanation for this is, simply put:
+
+In the "great principle" that the Rambam wrote — that the fact that we fulfill the mitzvos is not because of the commands that preceded the commands through Moshe Rabbeinu at Sinai — he means to say that the entire obligation incumbent upon us in fulfilling all the mitzvos comes solely and exclusively from the command of the Holy One, blessed be He, through Moshe Rabbeinu, without any connection or link to the commands stated by the "prophets before him." However, this does not affect the essence and nature of the mitzvos themselves. It is entirely possible that the parameters and essence of the mitzvos after the Giving of the Torah have a connection and similarity to their nature before the Giving of the Torah — and it is even possible that their essence and content are one and the same.
+
+In the case at hand — the mitzvah of *milah*: Certainly, only the command of the Holy One, blessed be He, through Moshe Rabbeinu obligates us to fulfill this mitzvah, not the command to Avraham. Yet, at the same time, the essence of the mitzvah of *milah* that we were commanded is the very covenant of Avraham Avinu — the Holy One, blessed be He, commanded us (through Moshe Rabbeinu) to bring the son (by way of *bris milah*) into the covenant that He, may He be blessed, made with Avraham Avinu.
+
+### 56
+
+Based on this, it turns out that in the mitzvah of *milah*, there is a great innovation compared to the other mitzvos that were commanded before the Giving of the Torah:
+
+Regarding other mitzvos, the mitzvah as it was given at the Giving of the Torah is a new mitzvah that is not connected to the command that existed before the Giving of the Torah, similar to the concept, "The Torah was given, and the *halachah* was renewed". Even when the body of the mitzvah has not changed, the content and essence of the mitzvah that we fulfill have no connection or link to the mitzvah that existed before the Giving of the Torah. For example — *ever min hachai*: the fact that we are prohibited from eating *ever min hachai* has no connection to the prohibition of *ever min hachai* that was practiced before the Giving of the Torah.
+
+And even regarding the prohibition of *gid hanasheh*, which is explicit in the Gemara "that it was written in its place (in *Parshas Vayishlach*) to know for what reason they were prohibited," the reason we were warned (after the Giving of the Torah) not to eat the *gid hanasheh* is because "(Therefore...) because he touched the hollow of Yaakov's thigh in the *gid hanasheh*" — this is only the reason for the mitzvah; the prohibition of eating the *gid hanasheh* is a remembrance of the event that occurred with Yaakov, but in the body and essence of the mitzvah, there is no connection between them.
+
+This is not the case with *milah*, where the connection of this mitzvah that we fulfill to the mitzvah of *milah* of Avraham Avinu is not merely a reason or a remembrance, but rather it is the very same thing, for the content of our mitzvah of *milah* is that we bring the one being circumcised "into the covenant of Avraham Avinu."
+
+[And this is even more than what the *Bach* wrote regarding the mitzvah of *Sukkah*, that the intention of the mitzvah — "in order that your generations may know that I made the Children of Israel dwell in *sukkot* when I brought them out, etc." — is part of the mitzvah itself, and without this intention, "he has not fulfilled the mitzvah as it should be" (for although the verse links "many mitzvos" to the exodus from Egypt, nevertheless, in other mitzvos they are only a reason and a remembrance, whereas in the mitzvah of *Sukkah*, this intention is part of the essence of the mitzvah).
+
+For there, ultimately, it is only an intention and a remembrance, albeit one that is a part and detail of the fulfillment of the mitzvah. This is not the case in our instance — the mitzvah of *milah*, where the concept of "the covenant of Avraham Avinu" is not just a detail and part of the mitzvah, but is the essence of the mitzvah, for through this mitzvah, we bring the one being circumcised "into the covenant of Avraham Avinu," as mentioned above.]
+
+This is the intention of the Rambam in adding, "that the Holy One, blessed be He, commanded us through Moshe Rabbeinu that we should circumcise just as Avraham Avinu, peace be upon him, circumcised" — to emphasize the innovation in the mitzvah of *milah* that we fulfill, that the "covenant" effected by our *milah* is the very same "covenant" that the Holy One, blessed be He, made with Avraham Avinu.
+
+It can be said that this is emphasized even more by the fact that most of the details of the obligations of *milah* are derived from the verses regarding Avraham, and even the obligation of *kareis* was stated (only) regarding Avraham (and not in *Parshas*)
+
+### 57
+
+*Tazria*) — to emphasize that our mitzvah of *milah* is the very "covenant of Avraham Avinu."
+
+**5.** Based on this, one can explain the reason for the change between *Sefer HaMitzvos*, where the Rambam brought the verse regarding Avraham, and the enumeration of the mitzvos at the beginning of *Sefer HaYad*, where he brought the verse from *Parshas Tazria*:
+
+Among the differences between *Sefer HaMitzvos* and the enumeration of the mitzvos in *Sefer HaYad* is:
+
+*Sefer HaMitzvos* is not a book of *halachah*, but only an explanation of the 613 mitzvos, a short description of the mitzvah and its source in the Written Torah and its laws (in general) in the Oral Torah. Likewise in our instance, since the essence of the *parshah* of *milah* is the verses regarding Avraham, from which most of its details are derived, and there the essence of the mitzvah is explained, that it is a "covenant" between Israel and the Holy One, blessed be He (the covenant of Avraham) — the Rambam brings the verse, "Every male among you shall be circumcised." Therefore, he emphasizes there that the command was "to Avraham" — because this is the content of the mitzvah of *milah*, "the covenant of Avraham Avinu," as mentioned above.
+
+This is not the case in the enumeration of the mitzvos at the beginning of *Sefer HaYad* — a book of "laws upon laws" — where the Rambam brings the verse whose primary purpose is (not the essence and definition of the mitzvah, but) the source of the obligation to fulfill this mitzvah as one of the 613 mitzvos that were told to Moshe at Sinai. And since "everything we refrain from or do today, we do only by the command of the Holy One, blessed be He, through Moshe Rabbeinu, peace be upon him, not because the Holy One, blessed be He, said this to the prophets before him," it is understood that he must bring the verse from after the Giving of the Torah, which is (simply put) "the command of the Holy One, blessed be He, through Moshe Rabbeinu," because the application of the obligation of this mitzvah comes from this verse specifically.
+
+**6.** This innovation in the mitzvah of *milah* (that the essence of *bris milah* is "the covenant of Avraham Avinu," which precedes the speech [at Sinai]) will be understood better from what is explained elsewhere, that in the mitzvah of *milah* there are two aspects:
+
+a) A specific mitzvah, one of the 613 mitzvos of the Torah.
+b) A general aspect — a "covenant" between Israel and the Holy One, blessed be He, "This is My covenant... between Me and you", for *bris milah* belongs to the very holiness of Israel. It can be said that this is also the main intention of the Rambam in what he wrote (at the conclusion of *Hilchos Milah*): "The foreskin is loathsome, for the nations are disgraced by it, as it is said: 'For all the nations are uncircumcised,'" to emphasize that the matter of *milah* touches upon the entirety of "Israel" [which is why even a Jewish man who cannot fulfill the mitzvah of *milah* in practice (because his brothers died due to *milah* and the like) is called "circumcised". The reason for this may be that the primary name "circumcised" is not because of the act of *milah*, but because of his obligation to enter into this covenant, which exists even in one who cannot fulfill the mitzvah in practice].
+
+For further clarification: even the "specific mitzvah" of *milah* is called by the name "covenant" — but there are two aspects to the "covenant" between Israel and the Holy One, blessed be He: a) The covenant regarding the fulfillment of Torah and mitzvos,
+
+### 58
+
+b) The "covenant" and the connection between the Holy One, blessed be He, and Israel by virtue of their essence as Israel. And this is the general aspect of *bris milah*, that in addition to being a specific mitzvah (one of the 613 mitzvos of the Torah), it is the sign of the covenant that belongs to Israel. As is explicit in the statement of our Sages that the Rambam brings (in continuation of "The foreskin is loathsome, etc."): "And whoever breaks the covenant of Avraham, etc., even if he has Torah and good deeds, he has no portion in the World to Come" — because the covenant of *milah* preceded the covenant of Torah and good deeds, for first there must be the reality of Israel (and the covenant with him), and afterwards the covenant of Torah is relevant.
+
+[It can be said that this is the intention of the Midrash: "If a person is not circumcised, he cannot study Torah, as it is said: 'He tells His words to Yaakov, to him who is circumcised like Yaakov; He did not do so for any nation' — because they are uncircumcised" — for the covenant of *milah* preceded the Torah, because Torah and mitzvos were given to Israel specifically and not to the nations of the world, and Israel belongs to the covenant of *milah*.]
+
+**7.** With this, one can explain the reason why not only did the mitzvah of *milah* begin with Avraham Avinu, but furthermore — that the mitzvah of *milah* that we fulfill after the Giving of the Torah is connected to Avraham, to the point that it is called "the covenant of Avraham Avinu":
+
+"The covenant of Avraham Avinu" is not a covenant made regarding the fulfillment of Torah and mitzvos, because the matter of Torah begins from the time of the Giving of the Torah, as mentioned above from the Rambam that our mitzvos do not come from the commands before the speech [at Sinai]. Rather, the "covenant" with Avraham, "between Me and you and between your offspring after you," is with the people of Israel, for the beginning of the people of Israel is from Avraham, Yitzchak, and Yaakov, and from then the covenant and the holiness of Israel began.
+
+[This is not only according to the opinions that the Patriarchs left the category of the descendants of Noach, but even according to the opinions that they did not leave the category of the descendants of Noach — this is only regarding the fulfillment of their mitzvos and the like, but the reality of the people of Israel began from the Patriarchs.]
+
+It turns out that although our mitzvos are not connected to the mitzvos from before the speech [at Sinai] — nevertheless, the reality of the people of Israel began from the Patriarchs.
+
+From this come the two aspects of the mitzvah of *milah*: the body of the mitzvah and the obligation of the mitzvah of *milah* (as one of the 613 mitzvos) does not belong to the command of the Holy One, blessed be He, to Avraham, but only to the command
+
+### 59
+
+of the Holy One, blessed be He, through Moshe Rabbeinu; but the content of the covenant effected by this mitzvah — which belongs to the people of Israel — this is "the covenant of Avraham Avinu," it is a continuation of the covenant that the Holy One, blessed be He, made with Avraham, "This is My covenant... between Me and you and between your offspring after you."
+
+**8.** Based on this, one can explain another *halachah* in the Rambam:
+
+Regarding the blessing of *milah*, the Rambam rules in *Hilchos Milah*: "And the father of the son recites another blessing, etc., 'to bring him into the covenant of Avraham Avinu.' It is a mitzvah upon the father to circumcise his son, over and above the mitzvah that all Israel are commanded to circumcise every uncircumcised person among them. Therefore, if the father is not present, they do not recite this blessing after it. And there are those who have instructed that a *beis din* or one of the people should recite it, but it is not proper to do so."
+
+That is to say: according to the Rambam, the blessing "to bring him into the covenant of Avraham Avinu" was instituted specifically for the father of the son, because of his additional and special mitzvah ("over and above the mitzvah that (all) Israel are commanded") to circumcise his son. Therefore, "if the father is not present, they do not recite this blessing after it."
+
+The meaning of the matter is that the fact that through *bris milah* one brings the one being circumcised "into the covenant of Avraham Avinu" belongs (primarily) to the mitzvah of the father specifically.
+
+Some have explained according to what is derived in *Kiddushin* that the mitzvah of the father to circumcise his son is from what is written: "And Avraham circumcised his son Yitzchak." It turns out that the mitzvah of the father belongs to "the covenant of Avraham Avinu" (from whom we derive the obligation of the father).
+
+But besides the fact that in *Sefer HaYad* (in the enumeration of the mitzvos) the Rambam brings (as mentioned above) the verse from *Parshas Tazria* and not the verse regarding Avraham — this explanation itself requires study, for the obligation upon the *beis din*, and likewise the obligation of the son himself, are also derived in *Kiddushin* there from the verses regarding Avraham. If so, the obligation of all Israel (*beis din*) and of the son himself also belong to "the covenant of Avraham Avinu," and the obligation of the father is no different from their obligation in this matter.
+
+**9.** However, according to what was explained above regarding the meaning of the phrase "the covenant of Avraham Avinu," one can explain the connection to the mitzvah of the father specifically:
+
+The name "Israel" depends on birth, which comes to the one born by inheritance from his father and mother, for being a son of Avraham, Yitzchak, and Yaakov (and a daughter of Sarah, Rivkah, Rachel, and Leah), he has the name "Israel" in practice automatically [unlike the "covenant" of Torah, even though he is obligated in Torah and mitzvos automatically by virtue of being a Jewish man (or woman) — nevertheless, the fulfillment of Torah and mitzvos in practice depends on his choice].
+
+It turns out that the essence of the mitzvah of *milah* (that is, the general aspect within it — "the covenant of Avraham Avinu") is a continuation of the birth of the son, at which time he entered (automatically, by virtue of birth) into the community of Israel, and the perfection of the name "Israel" comes to him at the time of *bris milah* (and a woman is considered as if she is circumcised).
+
+It can be said that this is the reason that in the mitzvah of *milah*, there is a special mitzvah upon the father "over and above the mitzvah that all Israel are commanded" [and the simple meaning of the language is that the fact that the mitzvah is upon the father is not only because it is impossible for a minor to circumcise himself and therefore
+
+### 60
+
+the Torah placed this obligation upon the father, but that this is essentially the duty and mitzvah of the father]:
+
+The obligation of all Israel "to circumcise every uncircumcised person among them" is primarily from the perspective of the parameters of the obligation of the mitzvah, that because of the severity of this mitzvah, the Torah placed an obligation upon all Israel (*beis din*) "to circumcise every uncircumcised person among them." This is not the case with the mitzvah that is upon the father, which is a continuation of the birth of the son, for since the parents of the son are the ones who brought him into the community of Israel (by his birth), therefore it is upon the father to finish and "complete" for him this entry into Israel, by way of *bris milah*.
+
+Therefore, they instituted the text "to bring him into the covenant of Avraham Avinu" for the mitzvah of the father specifically — because the entry "into the covenant of Avraham Avinu," the perfection of the matter of Israel, belongs primarily to the father, who brought him into the community of Israel.
+
+(From the *Sichos* of Purim and 16 Adar, 5747)
+
+---
+
+
+## וירא
+
+_Section: וירא_
+
+**Hebrew:**
+
+## שיחה א
+
+## 61
+
+### שיחה א
+
+א. איתא בגמ'[ftnref\_534\_1]: שלשה סימנים יש באומה זו הרחמנים והביישנין[ftnref\_535\_2] וגומלי חסדים, רחמנים דכתיב[ftnref\_536\_3] ונתן לך רחמים ורחמך והרבך, ביישנין דכתיב[ftnref\_537\_4] בעבור תהי' יראתו על פניכם [כד"אמרינן[ftnref\_538\_5] בנדרים[ftnref\_539\_6] בעבור תהי' יראתו על פניכם גו' זו הבושה וכו', כי היראה הניכרת בפנים היא הבושה"], גומלי חסדים דכתיב[ftnref\_540\_7] למען אשר יצוה את בניו ואת ביתו גו', כל שיש בו שלשה סימנים הללו ראוי להדבק באומה זו[ftnref\_541\_8]. וכן נפסק להלכה ברמב"ם לענין משפחות הכשרות (כדלקמן סעיף ב).
+והנה מאמר זה הובא גם בירושלמי[ftnref\_542\_9], אבל שם (וכן בכמה מדרשים[ftnref\_543\_10]) לא נלמד הסימן ד"גומלי חסדים" מהכתוב (באברהם) "למען אשר יצוה את בניו ואת ביתו גו'", אלא ממ"ש[ftnref\_544\_11] "ושמר ה' אלקיך לך את הברית ואת החסד"[ftnref\_545\_12].
+ויש לומר, ששינוי זה קשור עם חילוק אחר בין דרשת הבבלי ודרשת הירושלמי: בבבלי נאמר "שלשה סימנים יש באומה זו", אבל בירושלמי (ועד"ז בכמה מדרשים הנ"ל[ftnref\_546\_13]) הלשון "ג' מתנות טובות נתן הקב"ה לישראל":
+להבבלי, עיקר ההדגשה הוא בזה שהמדות הללו הן "סימנים" על האופי העצמי של בני "אומה זו", ולכן מביא ראי' ממ"ש באברהם ("למען אשר יצוה גו'"), שאברהם (מצד עצמו) הי' גומל חסד וכן צוה לביתו אחריו[ftnref\_547\_14], שמזה מוכח שאברהם הי' חסדן מצד עצם טבע נפשו[ftnref\_548\_15], ובמילא, שהחסד הוא סימן על עצם טבע נפשם של בני אומה זו[ftnref\_549\_16];
+
+## 62
+
+משא"כ בירושלמי מדייק, שמדות אלו הן "מתנות טובות (ש)נתן הקב"ה לישראל", וא"כ אין המדובר במדת החסד הטבועה בנפשו של אברהם (וזרעו אחריו) מצד עצמה, אלא מדת חסד כזו שהיא מתנה מיוחדת מהקב"ה לישראל, ולכן מביא הכתוב ד"ושמר ה"א לך את הברית ואת החסד".
+וצריך ביאור:
+א) מהו תוכן החילוק בין הבבלי והירושלמי, אם המדובר במדת החסד הטבעית של אברהם, או במדת החסד שניתנה במתנה מלמעלה — למאי נפק"מ?
+ב) בנוגע לרחמים ובושה, הרי גם בבבלי הובאו כתובים המורים שהם מתנה מהקב"ה לישראל: ברחמים — "ונתן לך רחמים", וכן בבושה "בעבור תהי' יראתו על פניכם", דקאי על מ"ת, שהקולות והלפידים כו' דמ"ת פעלו ש"תהי' יראתו על פניכם גו'".
+בשלמא גבי בושה מובן, ע"פ המבואר במהרש"א[ftnref\_550\_17] שטבע הבושה אכן נקבע בנפש בני ישראל אך ורק ע"י מ"ת, כי בנ"י מצ"ע הרי הם, אדרבה, "עזין" שבאומות[ftnref\_551\_18] [שלכן דייקו חז"ל[ftnref\_552\_19] ד"מי שאין לו בושת פנים בידוע שלא עמדו אבותיו על הר סיני"]:
+אבל בנוגע לרחמים, הרי זהו טבע נפשם של בני אומה זו, שירשו מאברהם אבינו, וכמפורש בחז"ל[ftnref\_553\_20] "כל המרחם על הבריות בידוע שהוא מזרעו של אברהם אבינו", שבפשטות נקט "זרעו של א"א" משום שאברהם אבינו הי' רחמן בטבעו, וכמבואר במהרש"א[ftnref\_554\_21] ש"נקט במלתי' זרעו של אברהם. . דבאברהם מפורש מדת הצדקה כי ידעתיו למען אשר יצוה את בניו וגו'"[ftnref\_555\_22] — והבבלי הביא הכתוב ד"ונתן לך רחמים גו'" (שמשמעו שהמדובר במדת הרחמים שהיא מתנה מלמעלה).
+ב. והנה עוד חילוק מצינו בין הבבלי והירושלמי:
+בבבלי מסיים "כל שיש בו שלשה סימנים הללו ראוי להדבק באומה זו", משא"כ בירושלמי[ftnref\_556\_23] מסיים "ואלו (הגבעונים) אין בהן אחד מהן מיד עמד וריחקן", והיינו שבירושלמי מפורש שלא הי' לגבעונים אף אחד מג' סימנים הללו[ftnref\_557\_24].
+ולפ"ז י"ל לכאו' נפק"מ להלכה בין הבבלי והירושלמי, דלהירושלמי אין מרחקים את האדם אלא כשאין אצלו אף אחת מג' המדות הללו (אבל אם חסרה אצלו רק אחת (או שתים) מהן אין מרחקים אותו[ftnref\_558\_25]); משא"כ פשטות ל' הבבלי "כל שיש בו שלשה סימנים הללו ראוי
+
+## 63
+
+להדבק באומה זו", משמעה, שצריכים להיות אצלו כל שלשת הסימנים[ftnref\_559\_26].
+אבל י"ל שאין הדברים מוכרחים, כי:
+א) הגירסא בעין יעקב היא "(כל שיש בו. . ראוי כו') אין בו שלשה סימנים הללו אין ראוי להדבק בו"[ftnref\_560\_27] — שבזה יש לפרש (כהירושלמי) שרק אם אין בו כל שלשת הסימנים אין ראוי להדבק בו, ואין לאפושי פלוגתא בין הבבלי והירושלמי, כידוע הכלל בזה[ftnref\_561\_28].
+ב) ברמב"ם[ftnref\_562\_29] כ' ש"סימני ישראל האומה הקדושה ביישנין רחמנים וגומלי חסדים ובגבעונים הוא אומר[ftnref\_563\_30] והגבעונים לא מבני ישראל המה לפי שהעיזו פניהם. . ולא רחמו על בני שאול ולא גמלו לישראל חסד כו'", הרי שהרמב"ם מדייק (כהירושלמי) שלא הי' אצל הגבעונים "אחד מהן", שמזה משמע, שאין מרחקין אא"כ חסרות כל ג' מדות הללו
+[וכלשון הרמב"ם שם[ftnref\_562\_29] — לפי כתבייד מדוייקים[ftnref\_565\_31]: "כל מי שיש בו עזות פנים ואכזריות (לא "או אכזריות", כבספרי הרמב"ם הנפוצים) ושונא את הבריות ואינו גומל להם חסד חוששין לו ביותר שמא גבעוני הוא" (וכ"ה גירסת הטור ושו"ע[ftnref\_566\_32]) — כי אין חוששין לו רק אם אין אצלו אף א' מג' המדות[ftnref\_567\_33]],
+וא"כ, את"ל שזוהי פלוגתת הבבלי והירושלמי — למה הכריע הרמב"ם כהירושלמי נגד הבבלי (ובפרט שנקט לשון הבבלי "סימני ישראל")?
+ולכן מסתבר לומר, שגם הבבלי ס"ל שהטעם שריחק דוד את הגבעונים הוא מפני ש"אין בהן (אף) אחד מהן". ועפ"ז צע"ק, מדוע לא מצינו בבבלי הדגשה זו בפירוש כ"א רק בירושלמי?
+גם יש לדייק בלשון הרמב"ם הנ"ל — "שסימני ישראל. . ביישנין רחמנים כו'" — ששינה מסדר המדות שבש"ס (הן בבלי והן ירושלמי)[ftnref\_556\_23], והקדים "ביישנין" ל"רחמנים"[ftnref\_569\_34]. ואף שמצינו גירסא כזו במקום א' במדרש[ftnref\_570\_35] — צ"ע, אמאי לא נקט הרמב"ם הגירסא הרווחת בש"ס (ומדרשים)?
+ג. ויש לומר הביאור בכל זה:
+נקודת החילוק בין הבבלי והירושלמי היא: בבבלי מדייק "שלשה סימנים יש
+
+## 64
+
+באומה זו" (ולא "שלש מדות"[ftnref\_571\_36] וכיו"ב), והיינו שאין המדובר במעלות מדות אלו כשלעצמן, אלא בכך שהן משמשות כ"סימנים" (על ענין אחר); וכיון שכולן הן סימן על דבר אחד, מובן מזה, שכל שלשת המדות נובעות מתכונה אחת מסויימת; משא"כ בירושלמי אומר "ג' מתנות טובות נתן הקב"ה לישראל", היינו שהמדובר בג' מדות אלו כשלעצמן, וא"כ י"ל שכל אחת מעלה לעצמה (דאל"כ, ה"ה אחת אלא שמתחלקת לג' מתנות).
+ויש לומר, שזהו חילוק גם באופן ההנהגה בג' מדות אלו, שאפ"ל בשני אופנים (וכפי שרואים בפשטות):
+א) ע"ד הרגיל, שלש המדות תלויות זו בזו, באופן שמדה אחת מביאה בדרך ממילא את השני', כגון שמי שיש בו בושה ורכות הנפש ה"ה רחמן, ומצד מדת הרחמים שבו ה"ה גומל חסד לנצרכים.
+ב) לפעמים ג' מדות אלו בלתי תלויות זב"ז, שגומל חסד להזולת בגלל שרוצה להטיב לו ולא בגלל שמרחם עליו (וכן בהשאר) — כי סו"ס, בושה, רחמים וחסד ה"ה שלש מדות שונות זמ"ז, ולכן תתכן מדה אחת בלי השני'.
+וזהו החילוק בין הבבלי והירושלמי: בירושלמי מדגיש שכל אחת מג' המדות היא מעלה (ומתנה) בפ"ע, כי המדובר בעצם המדות שכל אחת מחולקת מחברתה; משא"כ בבבלי הם "ג' סימנים" על תכונה אחת, שאז באות המדות (בדרך כלל) כולן יחד בדרך סיבה ומסובב זמ"ז[ftnref\_572\_37].
+ד. וי"ל שזהו הטעם שהבבלי הביא הכתוב ד"למען אשר יצוה גו'" (באברהם) רק בנוגע לגומלי חסדים ולא לענין רחמנים:
+היחס ד"גומלי חסדים" למדות הרחמים והבושה (כשהן באות יחד בדרך סיבה ומסובב) הוא באופן שגמ"ח היא התוצאה מהרחמים והבושת, כלומר: הכוונה ב"גומלי חסדים" אינה לרגש החסד שבלב, אלא למעשה החסד[ftnref\_573\_38] שעושה עם רעהו (כפירוש הפשוט ב"גומלי חסדים"), שסיבת עשיית חסד היא רגש הרחמים שבלב וטבע הבושה שבנפש (כדלקמן סעיף ה באורך); ולכן אין להביא את הכתוב ד"למען אשר יצוה את בניו ואת ביתו גו'" אלא בנוגע לגומלי חסדים (שהוא מעשה החסד כנ"ל) ולא לענין רחמים ובושה (שהן הרגש שבלב וטבע הנפש[ftnref\_574\_39]), כי בפשטות, ציווי אברהם לביתו אחריו הי' שיתנהגו בחסד ורחמים כו' (ולא על הרגש שבלב וטבע שבנפש שאין שייך בזה ציווי)[ftnref\_575\_40].
+
+## 65
+
+[ואתי שפיר מדוע לא הביא בירושלמי הכתוב ד"למען אשר יצוה גו'" לראי' על "גומלי חסדים", כי בירושלמי הכוונה בגומלי חסדים היא למדת החסד שבלב, שזה שיש בכל ישראל רגש של חסד בלב אינו מפני ציווי אברהם לבניו וביתו אחריו אלא משום שהקב"ה נטע כן בלבו של כל איש ישראל, "ושמר ה"א לך את הברית ואת החסד"].
+וע"פ החילוק הנ"ל בין הבבלי והירושלמי מובן גם הטעם שדוקא בירושלמי הוזקק לפרש שהגבעונים "אין בהן אף אחד", משא"כ בבבלי ליכא הדגשה זו:
+גם להבבלי לא היו אצל הגבעונים אף "אחד מהן", אלא כיון שמדייק שהם "שלשה סימנים", דהיינו כנ"ל שכולן הן תוצאה מנקודה אחת [והחילוק בין ג' הסימנים הוא רק ב"מקומם" בנפש האדם, דגומלי חסדים הוא במעשה; רחמנים — הרגש שבלב, ובושה — טבע הנפש], הרי מובן מאליו שהן מציאות אחת שאינה ניתנת להפרד זמ"ז. דכאשר ישנה נקודה (תכונה) זו, יבואו בדרך ממילא כל שלשת ה"סימנים" — המדות (בכל חלקי הנפש), ובאם חסרה — יבוא ההיפך, שהעזות שבו תוליד רגש אכזריות בלב, שזו תגרום שנאת הבריות והעדר עשיית החסד[ftnref\_576\_41]. ובמילא אין צורך להדגיש שאצל הגבעונים "אין בהן (אף) אחד מהן" כי כולם הן חפצא אחת.
+משא"כ בירושלמי שמדבר במדות הללו כפי שכל אחת מהן היא (מעלה ו)מתנה בפ"ע — אז יש צורך להדגיש שאצל הגבעונים לא היתה אף אחת מהג' מדות, כי יתכן שתמצא אחת בלי השתים.
+ה. ע"פ כל הנ"ל יש לומר, שזוהי כוונת הרמב"ם במה ששינה סדרן של המדות והקדים ביישנין לרחמנים — כדי להדגיש, שהמדובר כאן (ב"סימני ישראל") בג' המדות כפי שהן באות בדרך סיבה ומסובב זמ"ז, שאז סדרן הוא — ביישנין רחמנים וגומלי חסדים, וכנ"ל, שגומלי חסדים היינו מעשה החסד, שסיבתו היא — רגש הרחמים שבלב, והדבר הגורם שהלב יתעורר ברחמים על הזולת הוא עצם טבע הרכות שבנפש — ביישנין.
+וי"ל שסדר זה נוגע גם לתוכן ענינם של ה"סימנים", דאימתי הוי שלש מדות אלו סימנים לישראל, רק כאשר הגמ"ח היא תוצאה מרחמים, והרחמים הן תולדות הבושה:
+יתכן הענין דגמילות חסדים (לא מצד רחמנות וביישנות, אלא להיפך) מצד ישות וגאווה, כחסד דישמעאל[ftnref\_577\_42], וכמחז"ל[ftnref\_578\_43] שכל צדקה וחסד שאוה"ע עושין אינן אלא להתגדל בו ולהתייהר בו; ועד"ז ישנם רחמים הבאים דוקא מצד הגאווה, דכיון שמחשיב עצמו לגדול ומרומם מעם, הרי הוא רואה את הזולת כאיש שפל שיש לרחם עליו[ftnref\_579\_44].
+וזהו שמשמיענו הרמב"ם, שהסימנים
+
+## 66
+
+ל"האומה הקדושה" תלויים בזה, שסיבת החסד היא הרחמים, והרחמים מקורם בטבע הבושת והרכות של האדם[ftnref\_580\_45].
+ובעומק יותר יש לומר: נת"ל, ששלש המדות הן "סימנים" על נקודה אחת — שהיא נקודת מהותו של איש ישראל, ונקודה זו הוא ענין הביטול, שאינו מציאות לעצמו אלא כל ענינו הוא לשמש את קונו, וכמו שאמר אברהם אבינו[ftnref\_581\_46] "ואנכי עפר ואפר".
+וזהו שהקדים הרמב"ם מדת הבושה לפני הרחמנות והחסד — כי רגש הבושה (שמורה על טבע הרכות ושלילת העזות כו') מבטא את נקודת הביטול באופן גלוי, ולכן זהו הסימן הראשון והעיקרי של ישראל, ושלימות הסימן היא כאשר נקודת הביטול חודרת בכל מציאותו, עד שגם הרחמים והחסד שלו אינם מצד הגאוה אלא רק מצד הביטול, "ואנכי עפר ואפר"[ftnref\_582\_47].
+ו. אלא שעפ"ז קשה לאידך גיסא — מדוע מקדים בגמ' "רחמנים" ל"ביישנין"?
+בפשטות י"ל, כי עיקר העוול של הגבעונים שמשום כך ריחקם דוד המלך הי' האכזריות שלהם, שלא היו רחמנים, והרגו את בני שאול[ftnref\_583\_48].
+אבל יש לומר עוד טעם (ע"ד המוסר)[ftnref\_584\_49] — שבזה שוללת הגמ' רגש של גאוה שיכול לבוא כתוצאה מרחמנות (אמיתית): כאשר האדם מתעורר ברגש של רחמנות אמיתית על הזולת (עד שגומל חסד עמו) — אזי, מצד ההתבוננות במצבו של הזולת, יכול לבוא לידי רגש של ישות, כיון שע"י התבוננות זו רואה ומכיר את ריחוק הערך של הזולת; ולפיכך, דוקא לאחרי הרחמנות צריך לעורר בעצמו רגש של בושה וביטול.
+ובעומק יותר י"ל — שיש "בושת" שהיא תוצאה ובאה בדרך סיבה ומסובב מהרחמנות גופא. והוא ע"פ המבואר במדרש[ftnref\_585\_50] שהטעם שברא הקב"ה עניים בעולם כי "חסד ואמת מן ינצרוהו"[ftnref\_586\_51],
+
+## 67
+
+"אם יהיו כולם עשירים. . מי יוכל לעשות חסד". ונמצא, שזה שהזולת הוא במצב שזקוק לרחמים הוא רק כדי לזכות את העשיר שיוכל לקיים מצות צדקה[ftnref\_587\_52], כך, שהוא הוא הגורם שחבירו ימצא במצב של צער ולחץ! וכאשר יתבונן היטב בזה, הרי תיכף יתעורר במדה של בושה אמיתית — כי כדי לזכות אותו במצוה של גמ"ח מצערים חבירו שיהי' במעמד ומצב שיצטרכו לרחם עליו!...
+— שמעתי מכ"ק מו"ח אדמו"ר, שכשהי' בספינה בדרכו מביקורו בארץ הקודש (בשנת תרפ"ט), והגיעה אליו הידיעה אודות הפרעות שאירעו אז בחברון ר"ל, נחלה מגודל הצער כו'. בספינה הי' עמו רופא ירא שמים שטיפל בו ברפואות כו' עד שחזר לאיתנו[ftnref\_588\_53]. אחרי זמן נכנס הרופא לכ"ק מו"ח אדמו"ר כדי לבקש תיקון, ולשאלת כ"ק מו"ח אדמו"ר על מה ולמה, השיב: דבר ברור הוא, שהרבי, להיותו מנהיג ישראל שרבים צריכים לו, חייב להיות בריא, וא"כ, אילו לא הייתי בספינה ביחד עם הרבי, שאז לא היתה אפשרות לרפואה בדרך הטבע, לא הי' הרבי נחלה מלכתחילה, ונמצא, שהעובדא שהייתי בספינה גרמה לזה שהרבי יצטער משך זמן, ועל כך (סיים את דבריו) באתי לבקש תיקון...
+וזהו הסדר ד"רחמנים" ואח"כ "ביישנין" — דכאשר איש ישראל יש בו ביטול, הרי הרחמים עצמם מולידים אצלו רגש של בושה וביטול אמיתי.
+[quotation](משיחת ש"פ ויק"פ תשמ"ז) [/quotation]
+
+**English:**
+
+## Sicha 1
+
+### 61
+
+A. The Gemara states: "There are three signs for this nation: they are merciful, bashful, and kind." They are merciful, as it is written, "And He will grant you mercy, and have mercy upon you, and multiply you." They are bashful, as it is written, "In order that His fear may be upon your faces" [as we say in Nedarim: "'In order that His fear may be upon your faces'—this refers to bashfulness, etc., for the fear that is visible on the face is bashfulness"]. They are kind, as it is written, "For I have known him, to the end that he may command his children and his household after him, etc." Anyone who possesses these three signs is worthy of being attached to this nation. This is also the halachic ruling in the Rambam regarding the status of families (as will be discussed in section B).
+
+This statement is also brought in the Yerushalmi, but there (as well as in several Midrashim), the sign of "kindness" is not derived from the verse (regarding Avraham) "For I have known him, to the end that he may command his children and his household after him, etc.," but rather from what is written, "And Hashem your G-d will keep for you the covenant and the kindness."
+
+It can be said that this difference is connected to another distinction between the derivation of the Bavli and the derivation of the Yerushalmi: In the Bavli, it says, "There are three signs for this nation," whereas in the Yerushalmi (and similarly in several of the aforementioned Midrashim), the phrasing is "Three good gifts did the Holy One, Blessed be He, give to Yisrael."
+
+For the Bavli, the primary emphasis is that these traits are "signs" of the essential character of the members of "this nation." Therefore, it brings proof from what is written regarding Avraham ("For I have known him, to the end that he may command, etc."), for Avraham (of his own accord) was a doer of kindness and commanded his household after him, which proves that Avraham was a *chesed*-oriented person by the very nature of his soul, and consequently, that kindness is a sign of the essential nature of the souls of the members of this nation.
+
+### 62
+
+In contrast, the Yerushalmi emphasizes that these traits are "good gifts that the Holy One, Blessed be He, gave to Yisrael." If so, it is not speaking of the trait of kindness inherent in the soul of Avraham (and his descendants after him) of its own accord, but rather a trait of kindness that is a special gift from the Holy One, Blessed be He, to Yisrael. Therefore, it cites the verse, "And Hashem your G-d will keep for you the covenant and the kindness."
+
+This requires explanation:
+1) What is the content of the difference between the Bavli and the Yerushalmi—if it refers to the natural trait of kindness of Avraham, or the trait of kindness given as a gift from Above—what is the practical difference?
+2) Regarding mercy and bashfulness, the Bavli also brings verses that indicate they are a gift from the Holy One, Blessed be He, to Yisrael: regarding mercy, "And He will grant you mercy," and regarding bashfulness, "In order that His fear may be upon your faces," which refers to the Giving of the Torah, as the sounds and the flames, etc., of the Giving of the Torah caused "His fear to be upon your faces."
+
+Admittedly, regarding bashfulness, it is understood according to the explanation in the Maharsha that the nature of bashfulness was indeed established in the souls of Bnei Yisrael solely through the Giving of the Torah, for Bnei Yisrael of their own accord are, on the contrary, the "most brazen" of the nations [which is why Chazal noted, "Whoever lacks bashfulness, it is known that his ancestors did not stand at Mount Sinai"].
+
+However, regarding mercy, this is the nature of the soul of the members of this nation, which they inherited from Avraham Avinu, as is explicitly stated by Chazal, "Whoever is merciful to G-d’s creatures, it is known that he is of the seed of Avraham Avinu." It simply states "seed of Avraham Avinu" because Avraham Avinu was merciful by nature, as explained in the Maharsha that "it mentions 'seed of Avraham'... because regarding Avraham, the trait of charity is explicitly stated: 'For I have known him, to the end that he may command his children, etc.'"—yet the Bavli brought the verse "And He will grant you mercy, etc." (which implies that it refers to the trait of mercy as a gift from Above).
+
+B. We find another difference between the Bavli and the Yerushalmi:
+The Bavli concludes, "Anyone who possesses these three signs is worthy of being attached to this nation," whereas the Yerushalmi concludes, "And these (the Gibeonites) did not possess even one of them, and immediately he arose and distanced them," meaning that the Yerushalmi explicitly states that the Gibeonites did not possess even one of these three signs.
+
+According to this, one could seemingly say there is a practical halachic difference between the Bavli and the Yerushalmi: according to the Yerushalmi, one does not distance a person unless he lacks all three of these traits (but if he lacks only one (or two) of them, one does not distance him); whereas the simple reading of the Bavli, "Anyone who possesses these three signs is worthy of being attached to this nation," implies that he must possess all three signs.
+
+However, it can be said that these things are not definitive, because:
+1) The version in the *Ein Yaakov* is, "(Anyone who possesses... is worthy, etc.) one who does not possess these three signs is not worthy of being attached to him,"—which can be interpreted (like the Yerushalmi) that only if he lacks all three signs is he not worthy of being attached to, and one should not multiply disputes between the Bavli and the Yerushalmi, as is the known rule in this regard.
+
+2) The Rambam writes, "The signs of Yisrael, the holy nation, are: they are bashful, merciful, and kind. And regarding the Gibeonites, it says, 'Now the Gibeonites were not of the children of Yisrael... because they were brazen... and they did not have mercy on the sons of Shaul, and they did not do kindness for Yisrael, etc.'" This shows that the Rambam is precise (like the Yerushalmi) that the Gibeonites did not possess "one of them," which implies that one does not distance them unless all three of these traits are missing.
+
+[And according to the language of the Rambam there—according to accurate manuscripts: "Anyone who possesses brazenness and cruelty (not 'or cruelty,' as in the common editions of the Rambam) and hates G-d’s creatures and does not do kindness for them, we are extremely suspicious of him that he may be a Gibeonite" (and this is the version of the Tur and Shulchan Aruch)—because we are only suspicious of him if he possesses none of the three traits].
+
+If so, if you say this is a dispute between the Bavli and the Yerushalmi, why did the Rambam rule like the Yerushalmi against the Bavli (especially since he used the Bavli's phrasing, "signs of Yisrael")?
+
+Therefore, it is reasonable to say that the Bavli also holds that the reason David distanced the Gibeonites was because "they did not possess (even) one of them." Based on this, it is difficult to understand why we do not find this emphasis explicitly in the Bavli, but only in the Yerushalmi.
+
+One must also be precise regarding the aforementioned language of the Rambam—"The signs of Yisrael... are bashful, merciful, etc."—that he changed the order of the traits in the Shas (both Bavli and Yerushalmi) and placed "bashful" before "merciful." And although we find such a version in one place in the Midrash, it is difficult to understand why the Rambam did not use the common version in the Shas (and Midrashim).
+
+C. The explanation for all this:
+The point of difference between the Bavli and the Yerushalmi is: The Bavli emphasizes "There are three signs for this nation" (and not "three traits" or the like), meaning that it is not speaking of the virtues of these traits in themselves, but rather that they serve as "signs" (of something else). Since they are all signs of one thing, it is understood that all three traits stem from one specific quality. In contrast, the Yerushalmi says, "Three good gifts did the Holy One, Blessed be He, give to Yisrael," meaning it is speaking of these three traits in themselves. If so, it is possible that each one is a virtue unto itself (for otherwise, it would be one thing that is divided into three gifts).
+
+It can be said that this is also a difference in the manner of conduct regarding these three traits, which can be in two ways (as we see simply):
+1) In the usual way, the three traits are dependent on one another, in such a way that one trait naturally brings about the next. For example, one who possesses bashfulness and softness of spirit is merciful, and because of the trait of mercy within him, he does kindness for those in need.
+2) Sometimes these three traits are independent of one another, where one does kindness for another because he wants to benefit him, and not because he feels mercy for him (and similarly for the others)—because, after all, bashfulness, mercy, and kindness are three different traits, and therefore one trait can exist without the other.
+
+This is the difference between the Bavli and the Yerushalmi: the Yerushalmi emphasizes that each of the three traits is a virtue (and gift) in its own right, because it is speaking of the traits themselves, where each is distinct from the other. In contrast, in the Bavli, they are "three signs" of one quality, in which case the traits (usually) all come together by way of cause and effect.
+
+D. It can be said that this is the reason the Bavli brought the verse "For I have known him, to the end that he may command, etc." (regarding Avraham) only regarding "kindness" and not regarding "mercy":
+
+The relationship of "kindness" to the traits of mercy and bashfulness (when they come together by way of cause and effect) is such that kindness is the result of mercy and bashfulness. That is to say: the intention of "kindness" is not the feeling of kindness in the heart, but the *act* of kindness that one does for his fellow (as the simple interpretation of "kindness"), for the cause of doing the act of kindness is the feeling of mercy in the heart and the nature of bashfulness in the soul (as will be explained in section E at length). Therefore, one should only bring the verse "For I have known him, to the end that he may command his children and his household after him, etc." regarding kindness (which is the act of kindness, as mentioned) and not regarding mercy and bashfulness (which are the feeling in the heart and the nature of the soul), for simply put, Avraham’s command to his household after him was that they should conduct themselves with kindness and mercy, etc. (and not regarding the feeling in the heart and the nature of the soul, for which a command is not applicable).
+
+[And this fits well why the Yerushalmi did not bring the verse "For I have known him, to the end that he may command, etc." as proof for "kindness," because in the Yerushalmi, the intention of "kindness" is the trait of kindness in the heart. That every Yisrael possesses a feeling of kindness in the heart is not because of Avraham’s command to his children and household after him, but because the Holy One, Blessed be He, planted it in the heart of every Yisrael, "And Hashem your G-d will keep for you the covenant and the kindness."]
+
+Based on the aforementioned difference between the Bavli and the Yerushalmi, it is also understood why it was specifically in the Yerushalmi that it was necessary to explain that the Gibeonites "did not possess even one of them," whereas in the Bavli there is no such emphasis:
+
+Even for the Bavli, the Gibeonites did not possess "even one of them," but since it emphasizes that they are "three signs," meaning, as mentioned above, that they are all the result of one point [and the difference between the three signs is only in their "place" in the human soul: kindness is in action; mercy is the feeling in the heart; and bashfulness is the nature of the soul], it is understood that they are one reality that cannot be separated from one another. For when this point (quality) exists, all three "signs"—the traits (in all parts of the soul)—will come about automatically. And if it is missing, the opposite will occur: the brazenness within him will give birth to a feeling of cruelty in the heart, which will cause hatred of G-d’s creatures and the absence of doing kindness. Consequently, there is no need to emphasize that the Gibeonites "did not possess (even) one of them," because they are all one entity.
+
+In contrast, the Yerushalmi speaks of these traits as each being (a virtue and) a gift in its own right—so it is necessary to emphasize that the Gibeonites did not possess even one of the three traits, because it is possible to find one without the other two.
+
+E. Based on all the above, it can be said that this is the intention of the Rambam in changing the order of the traits and placing "bashful" before "merciful"—to emphasize that we are speaking here (in the "signs of Yisrael") of the three traits as they come by way of cause and effect, in which case their order is: bashful, merciful, and kind. As mentioned, "kind" refers to the act of kindness, the cause of which is the feeling of mercy in the heart, and the thing that causes the heart to be aroused with mercy for the other is the very nature of softness in the soul—bashfulness.
+
+It can be said that this order also relates to the content of the "signs." When are these three traits signs of Yisrael? Only when the kindness is a result of mercy, and the mercy is a product of bashfulness.
+
+It is possible to have the matter of kindness (not from mercy and bashfulness, but on the contrary) from a place of *yeshus* (selfhood) and pride, like the kindness of Yishmael, and as Chazal say that all the charity and kindness that the nations of the world do is only to aggrandize themselves and to be arrogant. Similarly, there is mercy that comes specifically from pride, for since he considers himself great and exalted above the people, he views the other as a lowly person for whom one must have mercy.
+
+This is what the Rambam is teaching us: that the signs of the "holy nation" depend on this—that the cause of the kindness is mercy, and the source of the mercy is in the nature of the bashfulness and softness of the person.
+
+On a deeper level, it can be said: we mentioned above that the three traits are "signs" of one point—which is the point of the essence of a Yisrael, and this point is the matter of *bitul* (nullification), that he is not a reality unto himself, but his entire purpose is to serve his Creator, as Avraham Avinu said, "And I am dust and ashes."
+
+This is why the Rambam placed the trait of bashfulness before mercy and kindness—because the feeling of bashfulness (which indicates the nature of softness and the negation of brazenness, etc.) expresses the point of *bitul* in a revealed way. Therefore, this is the first and primary sign of Yisrael, and the perfection of the sign is when the point of *bitul* permeates his entire reality, until even his mercy and kindness are not from a place of pride, but only from a place of *bitul*, "And I am dust and ashes."
+
+F. However, according to this, it is difficult on the other hand—why does the Gemara place "merciful" before "bashful"?
+
+Simply put, it can be said that the main injustice of the Gibeonites, for which King David distanced them, was their cruelty; they were not merciful and they killed the sons of Shaul.
+
+But there is another reason (on the level of *mussar*)—that by this, the Gemara negates the feeling of pride that can come as a result of (true) mercy: when a person is aroused with a feeling of true mercy for another (to the point that he does kindness for him)—then, due to the contemplation of the other's situation, he can come to a feeling of *yeshus*, because through this contemplation, he sees and recognizes the disparity in value of the other. Therefore, specifically after mercy, one must arouse within himself a feeling of bashfulness and *bitul*.
+
+On a deeper level, it can be said that there is a "bashfulness" that is a result and comes by way of cause and effect from mercy itself. This is based on what is explained in the Midrash that the reason the Holy One, Blessed be He, created the poor in the world is because "kindness and truth will guard him," "If everyone were rich... who would be able to do kindness?" It turns out that the fact that the other is in a situation that requires mercy is only to grant merit to the rich person so that he can fulfill the mitzvah of charity, such that he is the one who causes his fellow to be in a state of pain and pressure! And when he contemplates this well, he will immediately be aroused with a trait of true bashfulness—because in order to grant him merit in the mitzvah of kindness, his fellow is pained so that he will be in a status and situation where he needs to be pitied!
+
+—I heard from my father-in-law, the Rebbe, that when he was on a ship on his way from his visit to the Holy Land (in the year 5689), and the news reached him regarding the pogroms that occurred then in Chevron, G-d forbid, he became ill from the magnitude of the pain, etc. On the ship with him was a G-d-fearing doctor who treated him with medicines, etc., until he returned to his strength. After some time, the doctor entered to my father-in-law, the Rebbe, to ask for a *tikkun* (rectification). To the question of my father-in-law, the Rebbe, as to why and for what, he replied: "It is a clear matter that the Rebbe, being a leader of Yisrael whom many need, must be healthy. If so, had I not been on the ship together with the Rebbe, in which case there would have been no possibility for healing by way of nature, the Rebbe would not have become ill in the first place. It turns out that the fact that I was on the ship caused the Rebbe to suffer for a period of time, and for this (he concluded his words) I have come to ask for a *tikkun*..."
+
+This is the order of "merciful" and then "bashful"—that when a Yisrael has *bitul*, the mercy itself gives birth within him to a feeling of true bashfulness and *bitul*.
+
+(From a Sicha of Shabbos Parshas Vayakhel-Pekudei, 5747)
+
+---
+
+_Section: וירא_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 68
+
+### שיחה ב
+
+א. כתב הרמב"ם בריש פ"ב מהל' בית הבחירה: "המזבח מקומו מכוון ביותר, ואין משנין אותו ממקומו לעולם, שנאמר[ftnref\_589\_1] זה מזבח לעולה לישראל, ובמקדש נעקד יצחק אבינו שנאמר[ftnref\_590\_2] ולך לך אל ארץ המורי' ונאמר בדברי הימים[ftnref\_591\_3] ויחל שלמה לבנות את בית ה' בירושלים בהר המורי' אשר נראה לדויד אביהו אשר הכין במקום דויד בגורן ארנן היבוסי"[ftnref\_592\_4]. ובהלכה שלאח"ז: "ומסורת ביד הכל שהמקום שבנה בו דוד ושלמה המזבח בגורן ארונה הוא המקום שבנה בו אברהם המזבח ועקד עליו יצחק והוא המקום שבנה בו נח וכו'".
+וכתב היעב"ץ[ftnref\_593\_5], שזה שבהלכה א' נקט הרמב"ם "ובמקדש[ftnref\_594\_6] נעקד כו'" ובה"ב כ' "שהמקום שבנה בו. . המזבח. . הוא המקום שבנה בו אברהם המזבח כו'", הוא משום "שתחלה ביאר (הרמב"ם) שהכתוב מוכיח שבמקדש היתה העקידה, ואח"כ הוסיף לבאר שדבר זה מסורת הוא שבמקום המזבח בנה אברהם מזבח ועקד כו' אמנם הוא דבר מקובל בלי הכרח מהכתובים" (כי מהכתוב מוכח רק שהעקידה היתה במקום המקדש בכלל (בהר המורי')).
+ולפ"ז, המקור שמביא הרמב"ם לענין זה (ש"המזבח מקומו מכוון ביותר" להיותו מקום העקידה) הוא, מן הכלל אל הפרט: בתחילה (בה"א) מביא ראי' (מהכתובים) שבמקום המקדש היתה עקידת יצחק, ואח"כ מוסיף להוכיח שמקום המזבח (במקדש גופא) הוא מקומה של עקידת יצחק (ע"פ ה"מסורת ביד הכל").
+ויש להבין מדוע כתב הרמב"ם את הראי' לפרט הב' ("מסורת ביד הכל") בהלכה בפ"ע[ftnref\_595\_7], מכיון שזהו סיום ופירוט הראי' (שבהלכה א')[ftnref\_596\_8]?
+ונוסף לזה: כיון שהרמב"ם כאן בא ללמדנו רק ע"ד מקומו המכוון והמדוייק של המזבח, כלשונו בתחלת ההלכה "המזבח מקומו מכוון ביותר ואין משנין
+
+## 69
+
+אותו ממקומו לעולם", למה הביא בכלל כללות הענין ("ובמקדש נעקד יצחק אבינו שנאמר. . ונאמר כו'"), ולא כתב (בקיצור) רק ע"ד המקום בדיוק, ש"מסורת ביד הכל שהמקום שבנה בו דוד ושלמה המזבח כו' הוא המקום שבנה בו אברהם המזבח ועקד עליו יצחק".
+ב. גם יש להעיר על כמה דיוקים ושינויים בדברי הרמב"ם כאן:
+א) בה"א כותב "ובמקדש נעקד יצחק", ובהלכה ב' מאריך — "שבנה בו אברהם המזבח ועקד עליו יצחק", ולכאורה הול"ל (גם) כאן "הוא המקום שנעקד עליו יצחק" — ומדוע מוסיף בה"ב שאברהם בנה בו מזבח[ftnref\_597\_9]? ובפרט שאין הרמב"ם מסתפק בתיבות ש"בנה בו אברהם המזבח", אלא מוסיף "ועקד עליו יצחק"[ftnref\_598\_10] (דלא כבהמשך ההלכה "והוא המקום שבנה בו נח כשיצא מן התיבה", ואינו מוסיף "והקריב עליו קרבן")[ftnref\_599\_11].
+ב) בה"א כ' "במקדש נעקד יצחק אבינו", ובה"ב סתם "שבנה בו אברהם. . יצחק". ואף שבנוגע ליצחק י"ל שאין צורך לכתוב עוה"פ תיבת "אבינו", אבל צע"ק מדוע סתם באברהם.
+גם צע"ק כוונת הרמב"ם בהמשך דבריו בה"ב: "והוא המקום שבנה בו נח כו' והוא המזבח שהקריב עליו קין והבל ובו הקריב אדם הראשון כו'" — מאי בדיוק נוגע זה לקדושת המקדש והמזבח שבו[ftnref\_600\_12]?
+ההודעה שהמקום שבנה בו דוד ושלמה המזבח הוא המקום שבנה אברהם כו' מובנת, כי המקום שבו נעקד יצחק אבינו ראוי ורצוי שבו תשרה שכינה ובו יקריבו בנ"י (בניו של יצחק) קרבנות ("מזבח לעולה לישראל") — כמפורש בכתוב[ftnref\_601\_13] "ויקרא אברהם שם המקום ההוא ה' יראה אשר יאמר היום בהר ה' יראה", וכתרגום אונקלוס עה"פ שאברהם הת
+
+## 70
+
+פלל "הכא יהון פלחן דריא", וברש"י[ftnref\_602\_14] "ה' יבחר. . את המקום הזה להשרות בו שכינתו ולהקריב כאן קרבנות". אבל זה ש"הוא המקום שבנה בו נח כו' והוא המזבח שהקריב עליו קין כו' ובו הקריב אדם הראשון קרבן כשנברא ומשם נברא" — מאי שייך לענין "זה מזבח לעולה לישראל"[ftnref\_603\_15]?
+ואם כוונתו להדגיש שייכות המקום למזבח ע"י ריבוי המזבחות שנבנו במקום זה — הי' צריך להביא גם שיעקב אבינו בנה מזבח במקום זה (בהר המורי'), כמרז"ל[ftnref\_604\_16] "לא כאברהם שכתוב בו הר. . ולא כיצחק שכתוב בו שדה. . אלא כיעקב שקראו בית"[ftnref\_605\_17], שמזה מוכח שגם יעקב בנה בו[ftnref\_606\_18] מזבח[ftnref\_607\_19].
+ג. ויש לומר הביאור בזה:
+באריכות לשונו של הרמב"ם ע"ד מקום המזבח, שהוא מקום עקידת יצחק וכו' [אף שאין דרכו של הרמב"ם להביא (בכ"מ) טעמי ההלכות, ומה גם האריכות ע"ד המזבחות שנבנו במקום המזבח, שלכאורה אינם אלא דברי אגדה], וחלוקת הענין לשתי הלכות — כוונת הרמב"ם להשמיענו שני גדרים שישנם בדין מקומו המכוון של המזבח:
+(א) שמקומו של המזבח הוא (מכוון בזה שהוא) בהר המורי' — היינו לא (רק) משום שהמזבח הוא בכלל הבית (המקדש) שאין לבנותו כ"א "בירושלים בלבד ובהר המורי'" (כמ"ש הרמב"ם לעיל[ftnref\_608\_20]), אלא שזהו דין מיוחד במזבח מצ"ע: מקומו הוא דוקא בהר המורי'.
+ושייכותו של המזבח להר המורי' (בכלל) מסביר ומטעים הרמב"ם בהל' א, מהכתובים, ש"במקדש נעקד יצחק אבינו שנאמר ולך לך אל ארץ המורי' ונאמר. . ויחל שלמה. . בהר המורי' וגו'" — היינו דלהיות שבהר המורי' היתה עקידת יצחק, לכן הוא הוא מקומו של המזבח[ftnref\_609\_21] (ושל "בית ה'" בכלל)[ftnref\_610\_22].
+
+## 71
+
+ועוד זאת[ftnref\_611\_23] (ב) שמקומו של המזבח בהר המורי' גופא הוא "מכוון ביותר ואין משנין אותו ממקומו לעולם". ודבר זה הוא דין נוסף במזבח שלא נאמר בכללות הבית, שלא מצינו שהבית צ"ל מקומו מכוון בהר המורי' גופא[ftnref\_612\_24] [אלא שע"י דין זה דמזבח, הוקבע בדרך ממילא מקומו של כל הבית בהר המורי' — כפי שיעורן של מדות הבית בקשר למקום המזבח[ftnref\_613\_\*24]].
+ודין זה מסביר הרמב"ם בהל' ב: "ומסורת ביד הכל שהמקום שבנה בו דוד ושלמה המזבח כו' הוא המקום שבנה בו אברהם המזבח כו' והוא המקום שבנה בו נח כו'", דהיינו מקומו המדוייק של המזבח בהר המורי' גופא (כנ"ל סעיף א).
+ד. ואף ששני הדינים (גם הדין הא' — שמקום המזבח הוא בהר המורי') הם דינים מיוחדים במזבח, כנ"ל — מ"מ כ' הרמב"ם בדין הא' "ובמקדש נעקד יצחק", ולא "ובהר המורי' נעקד יצחק".
+ויש לבאר טעם הדבר, כי דין זה במזבח (שמקומו בהר המורי'), הוא מצד היותו עיקרו של בית המקדש[ftnref\_614\_25], וכמ"ש הרמב"ם[ftnref\_615\_26] דהמ"ע ד"ועשו לי מקדש"[ftnref\_616\_27] היא "לעשות בית לה' מוכן להיות מקריבים בו הקרבנות".
+ועפ"ז מבואר זה שהביא הרמב"ם ש"במקדש נעקד יצחק" בהמשך לדין דמקום המזבח, ולא לעיל[ftnref\_608\_20] גבי הדין דמקום המקדש, שכ' שם: "אין שם בית לדורי הדורות אלא בירושלים בלבד ובהר המורי'" [שלכאורה הי' מתאים שם להמשיך (ע"ד לשונו כאן) "ובמקדש נעקד יצחק אבינו שנאמר ולך לך אל ארץ המורי' ונאמר בדה"י ויחל שלמה לבנות את בית ה' בירושלים בהר המורי' אשר נראה לדויד אביהו אשר הכין במקום דויד גו'"] —
+כי קביעת מקומו של המקדש בהר המורי' להיותו מקום עקידת יצחק,
+
+## 72
+
+שייכת (בעיקר) לדין מקום המזבח: מכיון ששם היתה עקידת יצחק (שהי' גדר קרבן), לכן נקבע מקום זה ל"בית ה'" שענינו "להיות מקריבים בו הקרבנות". ונמצא דזה שמקום המקדש בכלל ה"ה בהר המורי', הוא משום שהמזבח (מקום עבודת הקרבנות שהוא ענין העיקרי במקדש) מקומו בהר המורי', ולכן הביאו הרמב"ם כאן גבי מזבח דוקא.
+אמנם בהלכה ב' לא כתב הרמב"ם "ובמקדש כו'" אלא "המקום שבנה בו כו' המזבח" — כי בהלכה זו קאי בדינו של המזבח עצמו (לא בתור עיקר המקדש).
+ונמצא דשתי ההלכות במקום המזבח (מקומו בהר המורי', ומקומו ה"מכוון ביותר" בהר המורי' גופא, במקום העקידה), חלוקות בעצם: א) מקומו (הכללי) בהר המורי' — הוא מפני היותו עיקרו של המקדש, ב) מקומו ה"מכוון ביותר" בהר המורי' עצמו, הוא מפני היותו — מזבח, מבלי שייכות לכללות הבית.
+וזהו טעם השינויים והחילוק בין הראיות שהרמב"ם מביא בההלכות:
+הדין הא' במקום המזבח, שהוא מצד היותו עיקר המקדש, יסודו (אך ורק) במעשה העקידה, "במקדש נעקד יצחק אבינו" — כי ענין המקדש שייך לישראל דוקא;
+משא"כ בדין השני אין הרמב"ם מסתפק בזה ש"הוא המקום שבנה בו אברהם המזבח כו'" אלא מוסיף "והוא המקום שבנה בו נח כו' קין והבל כו' אדם הראשון כו' כשנברא" — כי בזה משמיענו, שייחודו של מקום זה כמקום "מכוון ביותר" למזבח (בכלל, לא רק כמזבח שבמקדש), אינו שייך רק לישראל, אלא כן הי' מאז ומקדם (גם לפני האבות), שהוא מקום מיוחד בעצם לבניית מזבח.
+ולא עוד אלא שממשיך ומבאר מעלתו של מקום זה — "ומשם נברא אמרו חכמים אדם ממקום כפרתו נברא" — שזה שהמקום "מכוון ביותר" (למזבח) אינו (רק) תוצאה מהקרבת הקרבנות שם דכל הנ"ל עד אדם הראשון, אלא שכן הוא מצד הקביעות ע"י הקב"ה, שמקום זה הוקבע להקרבת קרבנות מתחלת הבריאה.
+ה. ע"פ הנ"ל מדוייק מה שבהלכה זו לא כתב הרמב"ם "אברהם אבינו. . יצחק אבינו" — כי מקום המזבח כגדר בפ"ע אינו ענין רק לישראל אלא נוגע לכל האומות.
+ועפ"ז מובנת הדגשת הרמב"ם בתחילת הלכה זו "ומסורת ביד הכל", כי בפשטות משמעה שמסורת זו היא לא רק ביד ישראל אלא ("ביד הכל") גם ביד האומות — כי גדר זה של מקום המזבח שייך גם להם.
+ויש לומר, שזהו הטעם שמקריבים קרבנות של נכרים ע"ג המזבח[ftnref\_618\_28], שאין זה מצד (כללות) בית המקדש (השייך רק לבנ"י[ftnref\_619\_29]), אלא מצד (מקום) המזבח בפ"ע, השייך גם להם, כנ"ל[ftnref\_620\_30].
+
+## 73
+
+ו. עפ"ז יש לבאר עוד דיוק ושינוי בלשון הרמב"ם, שבה"א כ' "ובמקדש נעקד יצחק", שמדגיש את (א) הנפעל (ב) ביצחק, ואילו בה"ב כותב "הוא המקום שבנה בו אברהם המזבח ועקד עליו יצחק", שמדגיש את (א) הפעולה, (ב) אברהם[ftnref\_621\_31]:
+זה שמקום ה"מקדש" הוקבע בזמן אברהם, אינו רק מחמת תפלת אברהם "ויקרא גו' בהר ה' יראה", אלא גם (ואולי בעיקר) מפני שע"י עקידת יצחק, שהובא כקרבן ונתקדש בקדושת עולה, נתקדש מקום העקידה (הר המורי')[ftnref\_622\_32] והוכשר עי"ז להיות "בית לה'" ש"מקריבים בו הקרבנות" — וזהו מ"ש הרמב"ם "ובמקדש נעקד יצחק".
+משא"כ מקומו המכוון ביותר של המזבח, מצד המזבח עצמו, אינו תוצאה ממעשה העקידה, אלא הוא להיותו מקום ראוי וקבוע להקרבת קרבנות (מתחילת הבריאה), וכוונת הרמב"ם בכתבו "הוא המקום שבנה בו אברהם המזבח ועקד עליו יצחק" היא רק להביא ראי' על סגולת המקום. ולכן מדגיש פעולת אברהם — דזה שבנה שם מזבח ועקד עליו יצחק הוא ראי' שמקום זה הי' מוכשר (לפני כן) למזבח וקרבן[ftnref\_623\_33].
+ויש להוסיף, שהבאת יצחק על "אחד ההרים" (הר המורי' בכלל) היתה ע"פ ציווי השם (כמו שהביא הרמב"ם כאן "שנאמר ולך לך אל ארץ המורי'"), משא"כ מקומה המכוון של העקידה לא כ' הרמב"ם שהי' ע"פ ציווי[ftnref\_624\_34], ועפ"ז יומתק חילוק הנ"ל שע"י עקידת יצחק נתקדש כללות ההר (להיות מקום המקדש והמזבח), אבל לא המקום המכוון ביותר — כי רק זה הי' ע"פ ציווי השם.
+ז. שני ענינים אלו שבמקום המזבח — מקומו הכללי של המזבח בהר המורי' ומקומו המכוון ביותר, ושייכותם לשני הענינים שבמעשה העקידה ("במקדש נעקד יצחק", "בנה בו אברהם המזבח ועקד עליו יצחק") — יש לבאר בעומק יותר, ע"פ מ"ש הרמב"ם בספרו מו"נ[ftnref\_625\_35] — שתכליתו של נסיון העקידה היתה לפרסם בעולם שני ענינים גדולים מיסודות התורה:
+(א) "להודיע אותנו גבול אהבת השם ויראתו עד היכן היא מגעת",
+(ב) "להודיע אותנו איך יאמינו הנביאים באמת מה שיבואם מאת השם
+
+## 75
+
+בכללות, לההבדל (העיקרי) בין חלקו של אברהם וחלקו של יצחק במעשה העקידה[ftnref\_632\_42]:
+מעשה המסירת נפש של העקידה מתייחס (בעיקר) לאברהם[ftnref\_633\_43], שהוא הי' צריך לכבוש את רחמיו מעל בנו יחידו ולהעלהו לעולה ע"ג מזבח, משא"כ יצחק, שאמר[ftnref\_634\_44] "ואי' השה לעולה" [וגם לפרש"י[ftnref\_635\_45] שאחרי תשובת אברהם "הבין. . שהוא הולך להשחט (ומ"מ) וילכו שניהם יחדיו בלב שוה" — מ"מ, אינה דומה מסנ"פ דיצחק למסנ"פ דאברהם בעקידת בנו יחידו שנולד לו לעת זקנותו, וכמו שהאריך במו"נ שם ד"לא ידמה לו לא נתינת ממון ולא נתינת נפש"[ftnref\_636\_46]] — וזהו ענין העבודה שבמעשה העקידה;
+ואילו חלקו של יצחק במעשה העקידה הי' בעיקר בהנפעל, שהוא נתקדש בקדושת עולה ע"י שנעקד ע"ג המזבח — וחלות קדושה שייכת, כמובן, להשראת השכינה.
+וזהו שהרמב"ם מדייק ומחלק בשתי הלכות אלו:
+בדין הראשון, שהוא דין במזבח מחמת פעולתו בכללות המקדש — ענין השראת השכינה — כתב הרמב"ם שזהו מפני ש"במקדש נעקד יצחק";
+ואילו בהלכה שלאח"ז, דין מקומו ה"מכוון ביותר" של המזבח, שהוא מצד גדר המזבח עצמו, ענין העבודה (כנ"ל) — בזה מדייק הרמב"ם, שזה שייך למעשה אברהם, ש"בנה בו המזבח ו(הוא — אברהם) עקד עליו יצחק".
+[quotation](משיחות ש"פ מטו"מ וש"פ ראה תש"מ, ש"פ מטו"מ תשמ"ג) [/quotation]
+
+**English:**
+
+## Sicha 2
+
+## 68
+
+### Sicha 2
+
+a. The Rambam writes at the beginning of Chapter 2 of *Hilchos Beis HaBechirah*: "The location of the Altar is most precisely established, and it may never be moved from its place, as it is said: 'This is the Altar for the burnt-offering for Israel,' and in the Sanctuary, Yitzchak Avinu was bound, as it is said: 'Go to the land of Moriah,' and it is said in *Divrei HaYamim*: 'And Shlomo began to build the House of Hashem in Yerushalayim on Mount Moriah, where He appeared to David his father, which he prepared in the place of David, in the threshing floor of Ornan the Yevusi.'" And in the following *halacha*: "And there is a tradition in the hands of all that the place where David and Shlomo built the Altar on the threshing floor of Aravnah is the place where Avraham built the Altar and bound Yitzchak upon it, and it is the place where Noach built, etc."
+
+The Yaavetz writes that the reason the Rambam states in *halacha* 1, "And in the Sanctuary, Yitzchak was bound, etc.," and in *halacha* 2, "that the place where... the Altar [was built]... is the place where Avraham built the Altar, etc.," is because "initially, [the Rambam] explained that the verse proves that the *Akeidah* took place in the Sanctuary, and afterwards he added to explain that this matter is a tradition—that in the place of the Altar, Avraham built an Altar and bound [Yitzchak], etc. However, it is a received tradition without explicit proof from the verses" (for the verse only proves that the *Akeidah* occurred in the general location of the Sanctuary, on Mount Moriah).
+
+Accordingly, the source the Rambam brings for this matter (that "the location of the Altar is most precisely established" by virtue of being the site of the *Akeidah*) proceeds from the general to the specific: First (in *halacha* 1), he brings proof (from the verses) that the *Akeidah* occurred in the location of the Sanctuary, and afterwards he adds proof that the location of the Altar (within the Sanctuary itself) is the site of the *Akeidah* (based on the "tradition in the hands of all").
+
+One must understand why the Rambam wrote the proof for the second detail ("tradition in the hands of all") in a separate *halacha*, given that it is the conclusion and elaboration of the proof (from *halacha* 1)?
+
+Furthermore: Since the Rambam here comes to teach us only about the precise and established location of the Altar, as he states at the beginning of the *halacha*, "The location of the Altar is most precisely established, and it may never be moved
+
+## 69
+
+from its place," why did he bring the entire matter at all ("And in the Sanctuary, Yitzchak Avinu was bound, as it is said... and it is said, etc."), rather than writing (briefly) only about the precise location, that "there is a tradition in the hands of all that the place where David and Shlomo built the Altar, etc., is the place where Avraham built the Altar and bound Yitzchak upon it"?
+
+b. There are also several points of precision and variations in the Rambam’s words here that should be noted:
+
+1) In *halacha* 1, he writes, "And in the Sanctuary, Yitzchak was bound," while in *halacha* 2, he elaborates—"where Avraham built the Altar and bound Yitzchak upon it." Seemingly, he should have said (also) here, "it is the place where Yitzchak was bound"—why does he add in *halacha* 2 that Avraham built an Altar there? Especially since the Rambam is not satisfied with the words "where Avraham built the Altar," but adds "and bound Yitzchak upon it" (unlike the continuation of the *halacha*, "and it is the place where Noach built when he left the Ark," where he does not add "and offered a sacrifice upon it").
+
+2) In *halacha* 1, he says, "In the Sanctuary, Yitzchak Avinu was bound," and in *halacha* 2, he simply says, "where Avraham built... Yitzchak." Even though regarding Yitzchak one could say there is no need to write the word "Avinu" again, it is difficult to understand why he is brief regarding Avraham.
+
+It is also difficult to understand the Rambam’s intent in the continuation of his words in *halacha* 2: "And it is the place where Noach built, etc., and it is the Altar upon which Kayin and Hevel offered, and upon it Adam HaRishon offered, etc."—how exactly does this relate to the sanctity of the Sanctuary and the Altar within it?
+
+The information that the place where David and Shlomo built the Altar is the place where Avraham built, etc., is understandable, because the place where Yitzchak Avinu was bound is fitting and desirable for the *Shechinah* to rest and for *Bnei Yisrael* (the children of Yitzchak) to offer sacrifices ("The Altar for the burnt-offering for Israel")—as is explicit in the verse, "And Avraham called the name of that place 'Hashem Yireh,' as it is said today, 'On the mountain of Hashem, He will be seen,'" and as Onkelos translates the verse, that Avraham prayed, "Here shall the generations worship," and Rashi explains, "Hashem will choose... this place to cause His *Shechinah* to rest and to offer sacrifices here." But that "it is the place where Noach built, etc., and it is the Altar upon which Kayin offered, etc., and upon it Adam HaRishon offered a sacrifice when he was created, and from there he was created"—what does this have to do with the matter of "This is the Altar for the burnt-offering for Israel"?
+
+And if his intent is to emphasize the connection of the place to the Altar through the multitude of altars built there, he should have also brought that Yaakov Avinu built an Altar in this place (on Mount Moriah), as our Sages say, "Not like Avraham, about whom it is written 'mountain'... and not like Yitzchak, about whom it is written 'field'... but like Yaakov, who called it 'House,'" which proves that Yaakov also built an Altar there.
+
+c. The explanation for this is as follows:
+
+In the Rambam’s lengthy phrasing regarding the location of the Altar—that it is the site of the *Akeidah*, etc. [even though it is not the Rambam’s custom to bring the reasons for the *halachos* (in most places), and certainly not the length regarding the altars built in the place of the Altar, which seemingly are only *aggadic* statements], and the division of the matter into two *halachos*—the Rambam’s intent is to inform us of two definitions regarding the law of the precisely established location of the Altar:
+
+(1) That the location of the Altar is (precisely established as being) on Mount Moriah—meaning not (only) because the Altar is part of the House (the Sanctuary) which may only be built "in Yerushalayim alone and on Mount Moriah" (as the Rambam wrote earlier), but that this is a specific law regarding the Altar itself: its location is specifically on Mount Moriah.
+
+The connection of the Altar to Mount Moriah (in general) is explained and justified by the Rambam in *halacha* 1, from the verses, that "in the Sanctuary, Yitzchak Avinu was bound, as it is said: 'Go to the land of Moriah,' and it is said... 'Shlomo began to build the House of Hashem in Yerushalayim on Mount Moriah, etc.'"—meaning that since the *Akeidah* took place on Mount Moriah, it is the location of the Altar (and of the "House of Hashem" in general).
+
+## 71
+
+Furthermore (2), that the location of the Altar on Mount Moriah itself is "most precisely established, and it may never be moved from its place." This is an additional law regarding the Altar that is not stated regarding the House in general, as we do not find that the House must have its location precisely established on Mount Moriah itself [rather, through this law of the Altar, the location of the entire House was established on Mount Moriah by default—according to the measurements of the House in relation to the location of the Altar].
+
+This law is explained by the Rambam in *halacha* 2: "And there is a tradition in the hands of all that the place where David and Shlomo built the Altar, etc., is the place where Avraham built the Altar, etc., and it is the place where Noach built, etc.," meaning the precise location of the Altar on Mount Moriah itself (as mentioned in section a).
+
+d. Even though both laws (including the first law—that the location of the Altar is on Mount Moriah) are specific laws regarding the Altar, as mentioned—nevertheless, the Rambam writes in the first law, "And in the Sanctuary, Yitzchak was bound," and not "And on Mount Moriah, Yitzchak was bound."
+
+The reason for this is that this law regarding the Altar (that its location is on Mount Moriah) is because it is the essence of the *Beis HaMikdash*, as the Rambam writes that the *mitzvah* of "And they shall make for Me a Sanctuary" is "to make a House for Hashem prepared for sacrifices to be offered within it."
+
+According to this, it is understood why the Rambam brought that "in the Sanctuary, Yitzchak was bound" as a continuation of the law regarding the location of the Altar, and not earlier regarding the law of the location of the Sanctuary, where he wrote: "There is no House for all generations except in Yerushalayim alone and on Mount Moriah" [where it would have seemingly been appropriate to continue (similar to his phrasing here), "And in the Sanctuary, Yitzchak Avinu was bound, as it is said: 'Go to the land of Moriah,' and it is said in *Divrei HaYamim*: 'And Shlomo began to build the House of Hashem in Yerushalayim on Mount Moriah, where He appeared to David his father, which he prepared in the place of David, etc.'"]—
+
+Because the establishment of the location of the Sanctuary on Mount Moriah as the site of the *Akeidah* relates (primarily) to the law of the location of the Altar: since the *Akeidah* (which is the definition of a sacrifice) took place there, this location was established as the "House of Hashem," whose purpose is "to have sacrifices offered within it." Thus, the fact that the location of the Sanctuary in general is on Mount Moriah is because the Altar (the place of the sacrificial service, which is the primary matter in the Sanctuary) has its location on Mount Moriah, and therefore the Rambam brought it here specifically regarding the Altar.
+
+However, in *halacha* 2, the Rambam did not write "And in the Sanctuary, etc.," but "The place where... the Altar [was built]"—because this *halacha* deals with the law of the Altar itself (not as the essence of the Sanctuary).
+
+Thus, the two *halachos* regarding the location of the Altar (its location on Mount Moriah, and its "most precisely established" location on Mount Moriah itself, at the site of the *Akeidah*) are fundamentally distinct: (a) Its (general) location on Mount Moriah is because it is the essence of the Sanctuary; (b) Its "most precisely established" location on Mount Moriah itself is because it is an Altar, without relation to the House as a whole.
+
+This is the reason for the variations and the distinction between the proofs the Rambam brings in the *halachos*:
+
+The first law regarding the location of the Altar, which is because it is the essence of the Sanctuary, is based (solely) on the act of the *Akeidah*, "In the Sanctuary, Yitzchak Avinu was bound"—because the matter of the Sanctuary relates specifically to Yisrael.
+
+In contrast, regarding the second law, the Rambam is not satisfied with "it is the place where Avraham built the Altar, etc.," but adds, "and it is the place where Noach built, etc., Kayin and Hevel, etc., Adam HaRishon, etc., when he was created"—because by this he informs us that the uniqueness of this place as a "most precisely established" location for an Altar (in general, not only as the Altar in the Sanctuary) does not belong only to Yisrael, but has been so from time immemorial (even before the Patriarchs), that it is a place uniquely and essentially for the building of an Altar.
+
+Furthermore, he continues and explains the greatness of this place—"And from there he was created; the Sages said, 'Adam was created from the place of his atonement'"—that the fact that the place is "most precisely established" (for an Altar) is not (only) a result of the sacrifices offered there by all those mentioned up to Adam HaRishon, but that it is so by virtue of the designation by the *Ribono shel Olam*, that this place was designated for the offering of sacrifices from the beginning of Creation.
+
+e. According to the above, it is precise that in this *halacha*, the Rambam did not write "Avraham Avinu... Yitzchak Avinu"—because the location of the Altar as a separate definition is not a matter only for Yisrael, but concerns all nations.
+
+According to this, the Rambam’s emphasis at the beginning of this *halacha*, "And there is a tradition in the hands of all," is understood, for it simply implies that this tradition is not only in the hands of Yisrael, but ("in the hands of all") also in the hands of the nations—because this definition of the location of the Altar belongs to them as well.
+
+It can be said that this is the reason why sacrifices of non-Jews are offered upon the Altar, for this is not by virtue of the (general) *Beis HaMikdash* (which belongs only to *Bnei Yisrael*), but by virtue of the (location of the) Altar itself, which belongs to them as well, as mentioned.
+
+## 73
+
+f. According to this, another point of precision and variation in the Rambam’s language can be explained: in *halacha* 1, he writes, "And in the Sanctuary, Yitzchak was bound," which emphasizes (a) the passive, (b) Yitzchak; whereas in *halacha* 2, he writes, "It is the place where Avraham built the Altar and bound Yitzchak upon it," which emphasizes (a) the action, (b) Avraham:
+
+The fact that the location of the "Sanctuary" was established in the time of Avraham is not only because of Avraham’s prayer, "And he called, etc., 'On the mountain of Hashem, He will be seen,'" but also (and perhaps primarily) because through the *Akeidah* of Yitzchak, who was brought as a sacrifice and sanctified with the sanctity of a burnt-offering, the site of the *Akeidah* (Mount Moriah) was sanctified and thereby rendered fit to be a "House for Hashem" where "sacrifices are offered within it"—and this is what the Rambam means by "And in the Sanctuary, Yitzchak was bound."
+
+In contrast, the "most precisely established" location of the Altar, from the perspective of the Altar itself, is not a result of the act of the *Akeidah*, but is because it is a place fit and established for the offering of sacrifices (from the beginning of Creation). The Rambam’s intent in writing, "It is the place where Avraham built the Altar and bound Yitzchak upon it," is only to bring proof of the virtue of the place. Therefore, he emphasizes the action of Avraham—that the fact that he built an Altar there and bound Yitzchak upon it is proof that this place was (already) fit for an Altar and sacrifice.
+
+It should be added that the bringing of Yitzchak to "one of the mountains" (Mount Moriah in general) was according to the command of Hashem (as the Rambam brought here, "as it is said: 'Go to the land of Moriah'"), whereas regarding the precise location of the *Akeidah*, the Rambam does not say it was according to a command. According to this, the aforementioned distinction is sweetened: through the *Akeidah* of Yitzchak, the entire mountain was sanctified (to be the place of the Sanctuary and the Altar), but not the "most precisely established" location—for only the former was according to the command of Hashem.
+
+g. These two matters regarding the location of the Altar—the general location of the Altar on Mount Moriah and its "most precisely established" location, and their relation to the two matters in the act of the *Akeidah* ("In the Sanctuary, Yitzchak was bound," "Avraham built the Altar and bound Yitzchak upon it")—should be explained more deeply, according to what the Rambam writes in his *Moreh Nevuchim*—that the purpose of the trial of the *Akeidah* was to publicize to the world two great matters from the foundations of the Torah:
+
+(a) "To inform us of the limit of the love of Hashem and His awe, to what extent it reaches,"
+
+(b) "To inform us how the prophets believe in the truth of what comes to them from Hashem."
+
+## 75
+
+In general, regarding the (primary) difference between the portion of Avraham and the portion of Yitzchak in the act of the *Akeidah*:
+
+The act of *mesiras nefesh* of the *Akeidah* relates (primarily) to Avraham, who had to conquer his mercy over his only son and raise him as a burnt-offering upon the Altar. In contrast, Yitzchak, who said, "And where is the lamb for the burnt-offering?" [and even according to Rashi, that after Avraham’s answer, "He understood... that he was going to be slaughtered (and nevertheless) 'and they both went together' with a level heart"—nevertheless, the *mesiras nefesh* of Yitzchak does not compare to the *mesiras nefesh* of Avraham in the binding of his only son who was born to him in his old age, as he elaborates in *Moreh Nevuchim* there, "It is not comparable to giving money or giving one's life"]—this is the matter of *avodah* in the act of the *Akeidah*.
+
+Whereas the portion of Yitzchak in the act of the *Akeidah* was primarily in the passive, that he was sanctified with the sanctity of a burnt-offering by being bound upon the Altar—and the application of sanctity relates, of course, to the resting of the *Shechinah*.
+
+This is why the Rambam is precise and divides these two *halachos*:
+
+In the first law, which is a law regarding the Altar by virtue of its function in the Sanctuary as a whole—the matter of the resting of the *Shechinah*—the Rambam wrote that this is because "in the Sanctuary, Yitzchak was bound."
+
+Whereas in the following *halacha*, the law of the "most precisely established" location of the Altar, which is by virtue of the definition of the Altar itself, the matter of *avodah* (as mentioned)—in this, the Rambam is precise that this relates to the act of Avraham, that "he built the Altar and (he, Avraham) bound Yitzchak upon it."
+
+---
+
+_Section: וירא_
+
+**Hebrew:**
+
+## שיחה ג
+
+## 76
+
+### שיחה ג
+
+א. על הכתוב[ftnref\_637\_1] "וישא אברהם את עיניו וירא והנה איל גו' ויעלהו לעולה תחת בנו", מפרש רש"י: "תחת בנו, מאחר שכתוב ויעלהו לעולה לא חסר המקרא כלום, מהו תחת בנו, על כל עבודה שעשה ממנו[ftnref\_638\_2] הי' מתפלל ואומר יה"ר שתהא זו כאלו היא עשוי' בבני, כאלו בני שחוט כאלו דמו זרוק כאלו בני מופשט כאלו הוא נקטר ונעשה דשן".
+וצריך להבין:
+לעיל על הפסוק[ftnref\_639\_3] "קח נא את בנך גו' והעלהו שם לעולה" פרש"י "והעלהו, לא אמר לו שחטהו לפי שלא הי' חפץ הקב"ה לשחטו אלא להעלהו להר לעשותו עולה ומשהעלהו אמר לו הורידהו". ודבר זה הודיע הקב"ה לאברהם לאחר זה, כהובא ברש"י על הפסוק[ftnref\_640\_4] "ויאמר אל תשלח ידך אל הנער ואל תעש לו מאומה כי עתה ידעתי גו'", שהקב"ה אמר לו לאברהם "לא אחלל בריתי ומוצא שפתי לא אשנה[ftnref\_641\_5] כשאמרתי לך קח מוצא שפתי לא אשנה לא אמרתי לך שחטהו אלא העלהו, אסקתי' אחתי'".
+ומכיון שכבר ידע אברהם "שלא הי' חפץ הקב"ה לשחטו אלא להעלהו" — ועד שאא"פ להיות באופן אחר, כי "מוצא שפתי לא אשנה", הקב"ה הבטיח לאברהם "כי ביצחק יקרא לך זרע"[ftnref\_642\_6] — צריך המתקה איך זה העלה אברהם את האיל "תחת בנו", ש"הי' מתפלל. . כאלו בני שחוט כו'", הרי הקב"ה "הי' חפץ. . לא לשחטו"?
+ואין לתרץ, דמזה שנזדמן לו האיל בשעה זו (ובפרט ע"פ פרש"י[ftnref\_643\_7] "שהי' (האיל) רץ אצל אברהם") הבין שהקב"ה רוצה שיקריבנו על המזבח[ftnref\_644\_8] — כי זוהי הוכחה שרצונו של הקב"ה הוא להקריבו ע"ג המזבח[ftnref\_645\_9], אבל לא לחדש רצון להקריבו "תחת בנו"[ftnref\_646\_10].
+
+## 77
+
+ויתירה מזו: מדברי רש"י — "והי' מתפלל ואומר יהי רצון שתהא זו כאלו היא עשוי' בבני" — מוכח, שאברהם עשה דבר זה (הקרבת האיל "תחת בנו") לא מפני ציווי הקב"ה (או שהבין שכן הוא חפצו של הקב"ה), אלא שזה הי' רצונו (ו"חידושו") של אברהם, שלכן הוצרך להתפלל להקב"ה שתתקבל הקרבה זו "כאילו היא עשוי' בבני".
+והתמי' במקומה: הקב"ה אמר לאברהם "מוצא שפתי לא אשנה לא אמרתי לך שחטהו אלא העלהו" — ואברהם רצה והשתדל להוסיף קרבן "תחת בנו"?!
+ב. יש מפרשים שזה הי' "תמורת[ftnref\_647\_11] מה שהי' בלבו לשחוט את בנו, על דרך ודובר[ftnref\_648\_12] אמת בלבבו", כי מאחר ש"הי' בדעתו לגמור הפעל. . חשב שהי' מחוייב לתת במקומו כופר ותמורת זה במקום זה"[ftnref\_649\_13].
+כלומר: עם היות שציווי השם הי' רק "העלהו" ולא "שחטהו", מ"מ, מאחר שאברהם גמר בלבו לשחוט את בנו, חל עליו חיוב לקיים מה שהי' בלבו (עכ"פ — ע"י תמורה) — משום "ודובר אמת בלבבו"[ftnref\_650\_14].
+אבל דוחק גדול לתרץ כן בפרש"י — כי לא מצינו אף רמז לתירוץ זה בפרש"י; ולאידך, אין התירוץ "פשוט" כ"כ שנאמר שאין רש"י צריך לכותבו בפירוש (כי התלמיד יעמוד על זה מעצמו) — שהרי יש מקום לומר להיפך, שבנידון זה לא שייך כלל זה ד"דובר אמת בלבבו", כי מאחר ש"לא הי' חפץ הקב"ה לשחטו", שוב אין מקום לומר שאברהם ישתדל לקיים מחשבתו הקודמת (לו גם באופן ד"כאילו" בנו שחוט), דלא כחפצו של הקב"ה.
+ולכן, גם את"ל שרש"י ס"ל שיש מקום לביאור זה, הו"ל לכותבו בפירוש (וכמדובר כמ"פ, שרש"י כתב פירושו בשפה ברורה מבלי שיצטרך הלומד לחפש ביאור במפרשים כדי להבין כוונתו).
+ג. ויובן זה בהקדים עוד תמי' בכתובים אלה — שלא מצינו שרש"י מתרצה:
+בכתובים מסופר[ftnref\_651\_15], דכאשר שלח "אברהם את ידו. . לשחוט את בנו" קרא אליו מלאך ה' "ויאמר אל תשלח ידך אל הנער גו' כי עתה ידעתי כי ירא אלקים אתה ולא חשכת את בנך את יחידך ממני", ולאחרי שראה אברהם את האיל "ויעלהו לעולה תחת בנו", קרא אליו מלאך ה' "שנית מן השמים, ויאמר בי נשבעתי נאום ה' כי יען אשר עשית את הדבר הזה ולא חשכת את בנך את יחידך, כי ברך אברכך והרבה ארבה את זרעך גו' והתברכו בזרעך גו'".
+ואינו מובן (כמו שהקשו במפרשים[ftnref\_652\_16]):
+
+## 78
+
+מדוע הוצרך המלאך לקרוא אליו "שנית מן השמים" למסור לו את כל הברכות המגיעות לו "יען אשר עשית את הדבר הזה ולא חשכת את בנך את יחידך", ולא אמר לו כל זה בקריאה הראשונה?
+ומשמעות הכתובים היא, דאף שאברהם נתברך ברכות אלו "יען אשר עשית את הדבר הזה ולא חשכת את בנך את יחידך", מ"מ, לא נתברך בהן בפועל עד אחר הקרבת האיל — וטעמא בעי.
+ד. ויש לומר הביאור בזה:
+החידוש שבברכות אלו, "הרבה ארבה את זרעך ככוכבי השמים וכחול גו' וירש זרעך גו' והתברכו בזרעך גו'"[ftnref\_653\_17] — אף שכבר נתברך אברהם בתוכן דומה כמ"פ לפנ"ז (כמסופר בפ' לך[ftnref\_654\_18]) — הוא (כמפורש בכתוב) שכאן נשבע הקב"ה עליהן[ftnref\_655\_19] — "בי נשבעתי נאום ה' כי יען גו' כי ברך אברכך גו'" (שע"י השבועה הובטח ששום דבר לא יבטל ברכות אלו[ftnref\_656\_20]).
+ועפ"ז אין לתמוה מדוע לא פירש רש"י מהי הסיבה שבגללה באה השבועה דוקא בקריאה "שנית", לאחרי הקרבת האיל — כי זהו מובן מהמסופר בחומש בשבועת הקב"ה בפעם הראשונה:
+בהכתובים לאחרי המבול נאמר[ftnref\_657\_21] "ויבן נח מזבח לה' גו' ויעל עולות גו' וירח ה' את ריח הניחוח ויאמר גו' לא אוסיף לקלל גו' ולא אוסיף עוד להכות גו'", ופירש רש"י "לא אוסיף. ולא אוסיף, כפל הדבר לשבועה, הוא שכתוב[ftnref\_658\_22] אשר נשבעתי מעבור מי נח ולא מצינו בה שבועה אלא זו". הרי מפורש, דזה שנשבע הקב"ה שלא יוסיף עוד להביא מבול, בא ע"י ריח הניחוח מקרבנותיו של נח.
+והוא הדבר בנדו"ד: זה שהקב"ה נשבע על הברכות הוא בא ע"י קרבנו של אברהם (— בהקרבת האיל)[ftnref\_659\_23]. ולכן באה שבועה זו רק בקריאה ה"שנית", לאחרי העלאת האיל.
+וזהו גם הטעם שרצה אברהם להקריב את האיל[ftnref\_660\_24] "תחת בנו" — כי כדי שקרבנו יפעול שהברכות על נסיון העקידה (שהם ענינים עיקריים לקיומו של עם ישראל) יובטחו לו בשבועה, הי' צ"ל שייכות וקשר בין הקרבן והנסיון. וע"ד שמצינו בקרבנותיו של נח (שפעלו שבועת ה' "לא אוסיף"), דנוסף על זה שהקריבם תיכף לאחרי צאתו מן התיבה (בסמיכות ובהמשך להמבול), הנה הקרבנות עצמם היו מבהמות אלו שניצלו מן
+
+## 79
+
+המבול[ftnref\_661\_25] — כמו"כ בעניננו, שכדי לקשר קרבן זה עם עקידת יצחק הקריב אברהם את האיל "תחת בנו".
+ה. עפ"ז מובנת ג"כ האריכות בפרש"י על הכתוב "תחת בנו" — "על כל עבודה שעשה ממנו הי' מתפלל ואומר יהי רצון שתהא זו כאילו היא עשוי' בבני (והולך ומפרט כל העבודות —) כאלו בני שחוט. . דמו זרוק. . מופשט. . נקטר ונעשה דשן" — כי זה מבליט ביותר את הקשר שבין הקרבת האיל למעשה העקידה, שע"י הקרבת האיל "תחת בנו" פעל אברהם שיצחק עצמו יהי' בגדר של קרבן.
+כלומר: בכוונת הכתוב שהקרבת האיל היתה "תחת בנו" הי' אפשר לפרש, שהקרבת האיל היתה במקום הקרבת בנו, והיינו שע"י הקרבת האיל הסתלק מ"בנו" גדר של קרבן, וחל על האיל[ftnref\_662\_26]; ומחדש רש"י, שהפירוש ב"תחת בנו" הוא להיפך, שע"י הקרבת האיל ה"ז "כאילו היא עשוי' בבני", ועי"ז חל על יצחק גדר קרבן. ודבר זה — חלות גדר קרבן על יצחק ע"י הקרבת האיל — הי' "חידושו" של אברהם, ולכן הוזקק להתפלל ע"ז להקב"ה — "יהי רצון שתהא זו כאלו היא עשוי' בבני".
+והסברת הדבר: כוונתו של הקב"ה במעשה העקידה היתה לכאורה רק לנסות את אברהם (כמפורש בקרא[ftnref\_663\_27]), שיהי' מוכן בהחלט גמור להקריב את בנו יחידו לה', אבל לא שיצחק ייעשה[ftnref\_664\_28] קרבן בפועל[ftnref\_665\_\*28] (כי, אדרבה, "מוצא שפתי לא אשנה", ולכן אמר "העלהו" ולא "שחטהו", כי "לא הי' חפץ הקב"ה לשחטו");
+אבל אברהם, שרצה לפעול שבועת הקב"ה (על ידי "ריח ניחוח" דקרבנות, כנ"ל), השתדל שיחול על יצחק גדר קרבן[ftnref\_666\_29], כדי שבמעשה העקידה תהי' גם
+
+## 80
+
+המעלה של "קרבן" (ועי"ז הברכות על מעשה העקידה יובטחו לו באופן של שבועה); ולכן הקריב את האיל "תחת בנו", והתפלל להקב"ה "יהי רצון שתהא זו כאילו היא עשוי' בבני".
+[ובזה יומתק המשך הכתוב "בי נשבעתי גו' יען אשר עשית את הדבר הזה ולא חשכת את בנך את יחידך", שמשמעו, ש(גם) השבועה שאחרי הקרבת האיל היא "יען" (תוצאה מזה) ש"עשית גו' ולא חשכת את בנך את יחידך" — כי (גם) ע"י הקרבת האיל הראה אברהם שלא חשך את בנו יחידו מהשם, מכיון שהתפלל אז ש"תהא זו כאלו היא עשוי' בבני"[ftnref\_667\_30]].
+ו. אבל עדיין חסר ביאור: הן אמת שמצינו גבי נח ששבועת ה' באה על ידי "ריח הניחוח" של קרבנות — מ"מ, בנדו"ד, איך יתכן לומר שנסיון העקידה עצמו, שבו גילה אברהם שמוכן להקריב את בנו יחידו לה', אין בו כדי לפעול שבועת ה', ורק הקרבת האיל "תחת בנו" היא היא הגורמת שבועת ה'[ftnref\_668\_31]?
+ויש לומר הביאור בזה:
+אף שבמעשה העקידה גילה אברהם שהי' מוכן ומזומן למסור בנו יחידו לה', מ"מ, אין זה עדיין בגדר ודאי של קרבן, כי לא בא לידי הקרבה בפועל. כי גם לאחרי ההחלטה בלב שלם, וכל ההכנות שעשה כדי להקריב את יצחק כקרבן, ש"כבש את רחמיו" כדי למוסרו לה' — עכ"ז, מכיון שלא עשה לו "מאומה"[ftnref\_669\_32] ולא באה הקרבה זו בפועל, הרי אין זה ודאי. וכמובן בפשטות, שאינה דומה כלל כבישת הרחמים בההכנות "לשחוט את בנו" לכבישת הרחמים הדרושה בעת העשי' בפו"מ[ftnref\_670\_33].
+[וע"ד מעלת האדם המוסר נפשו להשם בפועל ממש, לגבי זה שמסירת נפשו היא רק בכח[ftnref\_671\_34] (אף שהחליט במחשבתו להיות מוכן (כשיבוא לידו) למסור נפשו לה'). כי כאשר האדם צריך למסור את עצמו בפועל, עליו לעורר בנפשו תקיפות וכחות ביתר שאת ויתר עז מהכחות שהוא מעורר להיות מוכן לזה במחשבה לחוד, וכמובן בפשטות].
+ובמילא: בנוגע לנסיון העקידה הי' מספיק גם ה"כבש את רחמיו" שבההכנה של אברהם, כי בזה כבר "ידעתי כי ירא אלקים אתה"[ftnref\_640\_4] וכו' — מ"מ, עדיין אין בזה העילוי שבקרבן, הקרבה לה' (בפועל).
+ז. וזהו ג"כ הטעם דכאשר א"ל המלאך לאברהם "אל תשלח ידך אל הנער" אמר אברהם "אעשה בו חבלה ואוציא ממנו מעט דם"[ftnref\_673\_35] — דלכאורה, מהי
+
+## 81
+
+התועלת בהוצאת מעט דם, הרי גם בזה לא יקיים הציווי[ftnref\_639\_3] ד"העלהו. . לעולה"? — אלא מפני שעי"ז יורגש בו הענין דמסירה בפועל[ftnref\_675\_36].
+ולכן, כאשר ענהו המלאך "אל תעש לו מאומה", "אל תעש בו מום"[ftnref\_669\_32] — ורצה אברהם שבמעשה העקידה יהי' בו העילוי של קרבן — הקריב את האיל "תחת בנו", ובכל עבודה ועבודה שעשה בהאיל התפלל ואמר "יהי רצון שתהא זו כאילו היא עשוי' בבני":
+כאשר אברהם שחט את האיל, חשב והרגיש בנפשו שהוא שוחט את יצחק (ועד"ז בשאר העבודות שעשה בהאיל), באופן שבהקרבת האיל הי' מעורר בעצמו המדה ד"כובש את רחמיו" בפועל, שהרי בעת מעשה השחיטה הי' מורגש במחשבתו[ftnref\_677\_37] שהוא שוחט את יצחק.
+וע"ז התפלל אברהם, שע"י מחשבה והתעוררות זו יהי' נחשב "כאילו היא עשוי' בבני", העילוי שבהקרבה בפועל;
+וע"ז בא מענה השם (על ידי המלאך) — "בי נשבעתי נאום ה' כי יען אשר עשית את הדבר הזה גו' כי ברך אברכך והרבה ארבה את זרעך גו' וירש זרעך את שער אויביו",
+שזה יקויים ובמילואו "בגאולה העתידה לנו"[ftnref\_678\_38], במהרה בימינו ממש.
+[quotation](משיחת ש"פ וירא תשל"ז) [/quotation]
+
+**English:**
+
+## Sicha 3
+
+### 76
+
+1. Regarding the verse, "And Avraham lifted his eyes and saw, and behold, a ram... and he offered it up as an olah in place of his son," Rashi explains: "'In place of his son'—since it is written 'and he offered it up as an olah,' the verse lacks nothing. What is the meaning of 'in place of his son'? For every act of service he performed with it, he would pray and say: 'May it be Your will that this be considered as if it were done to my son—as if my son were slaughtered, as if his blood were dashed, as if my son were flayed, as if he were burned and became ashes.'"
+
+This requires understanding:
+Earlier, regarding the verse, "Take now your son... and offer him up there as an olah," Rashi explains: "'And offer him up'—He did not tell him to slaughter him, because the Holy One, Blessed be He, did not desire that he slaughter him, but rather that he bring him up to the mountain to make him an olah, and once he brought him up, He told him to bring him down." The Holy One, Blessed be He, informed Avraham of this afterward, as cited in Rashi on the verse, "And He said, 'Do not stretch out your hand against the lad, and do not do anything to him, for now I know...'"—that the Holy One, Blessed be He, said to Avraham, "I will not profane My covenant, and that which has gone out of My lips I will not alter. When I said to you 'take,' I did not tell you to slaughter him, but to bring him up; I said 'bring him up,' [and then] 'bring him down.'"
+
+Since Avraham already knew that "the Holy One, Blessed be He, did not desire that he slaughter him, but rather that he bring him up"—and it was impossible for it to be otherwise, because "that which has gone out of My lips I will not alter," for the Holy One, Blessed be He, had promised Avraham, "For in Yitzchak shall your seed be called"—it requires clarification: How could Avraham offer the ram "in place of his son," praying, "as if my son were slaughtered," when the Holy One, Blessed be He, "did not desire... to slaughter him"?
+
+And one cannot answer that because the ram was provided to him at that moment (especially according to Rashi, "that the ram ran to Avraham"), he understood that the Holy One, Blessed be He, wanted him to sacrifice it on the altar—for that is proof that the will of the Holy One, Blessed be He, is to sacrifice it on the altar, but not to create a new will to sacrifice it "in place of his son."
+
+### 77
+
+Furthermore: From Rashi’s words—"and he would pray and say, 'May it be Your will that this be considered as if it were done to my son'"—it is proven that Avraham did this (sacrificing the ram "in place of his son") not because of a command from the Holy One, Blessed be He (or because he understood that this was the will of the Holy One, Blessed be He), but rather that this was the will (and "innovation") of Avraham. That is why he needed to pray to the Holy One, Blessed be He, that this sacrifice be accepted "as if it were done to my son."
+
+The wonder remains: The Holy One, Blessed be He, told Avraham, "That which has gone out of My lips I will not alter; I did not tell you to slaughter him, but to bring him up"—and Avraham wanted and strove to add a sacrifice "in place of his son"?!
+
+2. Some commentators suggest that this was "in exchange for what he had in his heart to slaughter his son, along the lines of 'and speaks truth in his heart,'" because since "it was in his mind to complete the act... he thought he was obligated to provide a ransom and exchange for this, in place of that."
+
+That is to say: Even though the command of Hashem was only "bring him up" and not "slaughter him," nevertheless, since Avraham had resolved in his heart to slaughter his son, an obligation rested upon him to fulfill what was in his heart (at least by way of an exchange)—due to "and speaks truth in his heart."
+
+But it is a great strain to explain Rashi this way—for we find no hint of this explanation in Rashi; and on the other hand, the explanation is not so "simple" that we could say Rashi did not need to write it explicitly (assuming the student would arrive at it himself)—for there is room to say the opposite: that in this case, the principle of "speaks truth in his heart" does not apply at all, because since "the Holy One, Blessed be He, did not desire to slaughter him," there is no room to say that Avraham should strive to fulfill his previous thought (even in the manner of "as if" his son were slaughtered), as it is not the will of the Holy One, Blessed be He.
+
+Therefore, even if one were to say that Rashi holds there is room for this explanation, he should have written it explicitly (as has been discussed many times, that Rashi wrote his commentary in clear language without the student needing to search for explanations in other commentators to understand his intent).
+
+3. This can be understood by first addressing another wonder in these verses—for which we do not find that Rashi provides a resolution:
+The verses recount that when "Avraham stretched out his hand... to slaughter his son," an angel of Hashem called to him, "And said, 'Do not stretch out your hand against the lad... for now I know that you are a G-d-fearing man, and you have not withheld your son, your only one, from Me.'" And after Avraham saw the ram, "and he offered it up as an olah in place of his son," an angel of Hashem called to him "a second time from heaven, and said, 'By Myself I have sworn, says Hashem, because you have done this thing, and have not withheld your son, your only one, that I will surely bless you, and I will greatly multiply your seed... and in your seed shall all the nations of the earth be blessed.'"
+
+And it is not understood (as the commentators have asked):
+
+### 78
+
+Why did the angel need to call to him "a second time from heaven" to convey all the blessings due to him "because you have done this thing, and have not withheld your son, your only one," and not tell him all of this in the first call?
+The implication of the verses is that although Avraham was blessed with these blessings "because you have done this thing, and have not withheld your son, your only one," nevertheless, he was not actually blessed with them until after the sacrifice of the ram—and this requires a reason.
+
+4. The explanation for this is:
+The innovation in these blessings—"I will greatly multiply your seed as the stars of the heaven and as the sand... and your seed shall inherit... and in your seed shall all the nations of the earth be blessed"—even though Avraham had already been blessed with similar content many times previously (as recounted in Parshas Lech Lecha)—is (as is explicit in the verse) that here the Holy One, Blessed be He, swore regarding them—"By Myself I have sworn, says Hashem, because you have done... that I will surely bless you..." (that through the oath, it was promised that nothing would nullify these blessings).
+
+Based on this, there is no wonder why Rashi did not explain the reason why the oath came specifically in the "second" call, after the sacrifice of the ram—for this is understood from what is recounted in the Chumash regarding the oath of the Holy One, Blessed be He, the first time:
+In the verses after the Flood, it is said, "And Noach built an altar to Hashem... and offered olos... and Hashem smelled the pleasing aroma, and He said... I will not again curse... and I will not again strike..." and Rashi explains: "'I will not again... and I will not again'—the matter is doubled for an oath, which is what is written, 'that I have sworn that the waters of Noach should no more pass,' and we do not find an oath regarding it except for this." It is explicit that the fact that the Holy One, Blessed be He, swore that He would not again bring a flood came about through the pleasing aroma of Noach’s sacrifices.
+
+And the same is true in our case: The fact that the Holy One, Blessed be He, swore regarding the blessings came about through Avraham’s sacrifice (by offering the ram). Therefore, this oath came only in the "second" call, after the offering of the ram.
+And this is also the reason why Avraham wanted to sacrifice the ram "in place of his son"—because in order for his sacrifice to cause the blessings regarding the trial of the Akeidah (which are essential matters for the existence of the Jewish people) to be guaranteed to him by an oath, there had to be a connection and bond between the sacrifice and the trial. Just as we find with Noach’s sacrifices (which caused Hashem’s oath "I will not again"), that in addition to the fact that he offered them immediately after leaving the ark (in proximity and continuation to the flood), the sacrifices themselves were from those animals that were saved from
+
+### 79
+
+the flood—so too in our case, in order to connect this sacrifice with the Akeidah of Yitzchak, Avraham offered the ram "in place of his son."
+
+5. Based on this, the lengthiness of Rashi on the verse "in place of his son" is also understood—"for every act of service he performed with it, he would pray and say, 'May it be Your will that this be considered as if it were done to my son' (and he proceeds to detail all the acts of service—) 'as if my son were slaughtered... his blood dashed... flayed... burned and became ashes'"—because this highlights most strongly the connection between the sacrifice of the ram and the act of the Akeidah, that through the sacrifice of the ram "in place of his son," Avraham caused Yitzchak himself to be in the category of a sacrifice.
+
+That is to say: Regarding the intent of the verse that the sacrifice of the ram was "in place of his son," one could have interpreted that the sacrifice of the ram was instead of the sacrifice of his son, meaning that through the sacrifice of the ram, the category of "sacrifice" was removed from his son and applied to the ram; but Rashi innovates that the meaning of "in place of his son" is the opposite: that through the sacrifice of the ram, it is "as if it were done to my son," and thereby the category of sacrifice was applied to Yitzchak. And this matter—the application of the category of sacrifice to Yitzchak through the sacrifice of the ram—was Avraham’s "innovation," and therefore he needed to pray to the Holy One, Blessed be He, for it: "May it be Your will that this be considered as if it were done to my son."
+
+The explanation of the matter: The intent of the Holy One, Blessed be He, in the act of the Akeidah was seemingly only to test Avraham (as is explicit in the verse), that he should be prepared with absolute resolve to sacrifice his only son to Hashem, but not that Yitzchak would actually become a sacrifice (for, on the contrary, "that which has gone out of My lips I will not alter," and therefore He said "bring him up" and not "slaughter him," because "the Holy One, Blessed be He, did not desire to slaughter him");
+But Avraham, who wanted to bring about the oath of the Holy One, Blessed be He (through the "pleasing aroma" of sacrifices, as above), strove to have the category of sacrifice apply to Yitzchak, so that in the act of the Akeidah there would also be
+
+### 80
+
+the quality of a "sacrifice" (and thereby the blessings regarding the act of the Akeidah would be guaranteed to him in the manner of an oath); therefore, he sacrificed the ram "in place of his son," and prayed to the Holy One, Blessed be He, "May it be Your will that this be considered as if it were done to my son."
+[And with this, the continuation of the verse is sweetened: "By Myself I have sworn... because you have done this thing, and have not withheld your son, your only one," which implies that (also) the oath after the sacrifice of the ram is "because" (a result of) the fact that "you have done... and have not withheld your son, your only one"—because (also) through the sacrifice of the ram, Avraham showed that he did not withhold his only son from Hashem, since he prayed then that "this be considered as if it were done to my son."]
+
+6. But there is still a lack of explanation: It is true that we find regarding Noach that Hashem’s oath came about through the "pleasing aroma" of sacrifices—nevertheless, in our case, how is it possible to say that the trial of the Akeidah itself, in which Avraham revealed that he was prepared to sacrifice his only son to Hashem, does not have within it the power to bring about Hashem’s oath, and only the sacrifice of the ram "in place of his son" is what causes Hashem’s oath?
+
+The explanation for this is:
+Although in the act of the Akeidah Avraham revealed that he was prepared and ready to surrender his only son to Hashem, nevertheless, this is not yet in the category of a certain sacrifice, because it did not come to actual sacrifice. For even after the decision with a whole heart, and all the preparations he made in order to sacrifice Yitzchak as a sacrifice, that he "suppressed his mercy" in order to surrender him to Hashem—nevertheless, since he did not do "anything" to him and this sacrifice did not come about in actuality, it is not certain. And it is understood simply, that suppressing mercy in the preparations "to slaughter his son" is not at all comparable to the suppression of mercy required at the time of the act in actual reality.
+[And similar to the quality of a person who surrenders his soul to Hashem in actual reality, compared to one whose surrender of soul is only in potential (even though he decided in his thought to be prepared (when it comes to him) to surrender his soul to Hashem). For when a person must surrender himself in actuality, he must awaken in his soul firmness and powers with greater intensity and strength than the powers he awakens to be prepared for this in thought alone, and this is understood simply.]
+
+Consequently: Regarding the trial of the Akeidah, the "suppressed his mercy" that was in Avraham’s preparation was sufficient, for in this "now I know that you are a G-d-fearing man" etc.—nevertheless, there is still not in this the elevation of a sacrifice, a drawing near to Hashem (in actuality).
+
+7. And this is also the reason that when the angel said to Avraham, "Do not stretch out your hand against the lad," Avraham said, "I will inflict a blemish on him and draw from him a little blood"—for seemingly, what is
+
+### 81
+
+the benefit in drawing a little blood, for even with this he would not fulfill the command of "bring him up... as an olah"?—rather, it is because through this, the matter of surrender in actuality would be felt in him.
+
+Therefore, when the angel answered him, "Do not do anything to him," "do not inflict a blemish on him"—and Avraham wanted the act of the Akeidah to have the elevation of a sacrifice—he sacrificed the ram "in place of his son," and for every act of service he performed with the ram, he prayed and said, "May it be Your will that this be considered as if it were done to my son":
+When Avraham slaughtered the ram, he thought and felt in his soul that he was slaughtering Yitzchak (and similarly for the other acts of service he performed with the ram), in such a way that in the sacrifice of the ram, he was awakening in himself the quality of "suppressing his mercy" in actuality, for at the time of the act of slaughter, it was felt in his thought that he was slaughtering Yitzchak.
+And for this Avraham prayed, that through this thought and awakening, it would be considered "as if it were done to my son," the elevation that is in a sacrifice in actuality;
+And to this came the answer of Hashem (through the angel)—"By Myself I have sworn, says Hashem, because you have done this thing... that I will surely bless you, and I will greatly multiply your seed... and your seed shall inherit the gate of his enemies,"
+That this will be fulfilled and in its fullness "in the future redemption for us," speedily in our days, truly.
+
+(From the Sicha of Shabbos Parshas Vayeira, 5737)
+
+---
+
+
+## חיי שרה
+
+_Section: חיי שרה_
+
+**Hebrew:**
+
+## שיחה א
+
+## 82
+
+### שיחה א
+
+א. איתא בפרקי דר' אליעזר[ftnref\_679\_1], שכאשר בא אברהם לקנות את מערת המכפלה מאת בני חת "אמרו לו אנו יודעים שהקב"ה עתיד ליתן לך ולזרעך את כל הארצות האל כרות עמנו שבועה[ftnref\_680\_2] שאין בני ישראל יורשים את עיר יבוס כי אם ברצונם של בני יבוס (ש"חתיים היו"[ftnref\_681\_3]) — וכרת עמהם ברית[ftnref\_682\_4] — ואח"כ קנה את מערת המכפלה".
+וצריך ביאור:
+א) איך הסכים אברהם לכרות עמהם שבועה שלא ירשו בני ישראל את עיר היבוס — היפך הבטחת הקב"ה אליו "את כל הארץ גו' לך אתננה ולזרעך עד עולם"[ftnref\_683\_5].
+ב) הרי עשיריות בשנים לפני זה כרת ה' את אברם ברית לזרעך נתתי את הארץ הזאת[ftnref\_684\_6].
+וביותר יש לתמוה ע"פ המפורש בהמשך דברי הפרקי דר"א ד"כשבאו ישראל לארץ. . לא היו יכולין ליכנס (בעיר היבוסי) מפני אות ברית שבועת אברהם. . וכשמלך דוד ורצה ליכנס. . לא הניחו אותו. . מכח ברית שבועת אברהם". וכן הוא בספרי[ftnref\_685\_7] דמש"נ גבי יהושע[ftnref\_686\_8] "ואת היבוסי יושבי ירושלים לא יכלו בני יהודה להורישם", פירושו "יכולים היו אבל אינן רשאים" (וכמפורש ברש"י[ftnref\_687\_9] שהאיסור הוא "לפי שכרת להם אברהם ברית כשלקח מהם מערת המכפלה"), הרי ששבועת אברהם הטילה איסור[ftnref\_688\_10] על בנ"י לכבוש את ירושלים[ftnref\_689\_11].
+ב. להלן שם בפרקי דר"א מסופר, דכאשר לא הניחו את דוד ליכנס בעיר ו"אמרו לו אין אתה יכול ליכנס בעיר היבוסי עד שתסיר כל הגלולים הללו שכתוב עליהם אותו שבועת אברהם, אמר דוד לאנשיו כל מי שיעלה בראשונה ויסיר את הגלולים הללו שכתוב עליהם אות ברית שבועת אברהם יהי' לראש ועלה בראשונה יואב בן צרוי'
+
+## 84
+
+לאו אהי' תושב ואטלנה מן הדין[ftnref\_702\_24] שאמר לי הקב"ה[ftnref\_703\_25] לזרעך אתן את הארץ הזאת".
+וצריך ביאור:
+א) מכיון שביכלתו ליטלנה "מן הדין" — למה השתדל כ"כ לקנות את מערת המכפלה (ובכסף מלא[ftnref\_704\_26])?
+ב) כשאמר אברהם לבני חת "אטלנה מן הדין" התכוון בודאי שיאמינו לדבריו[ftnref\_705\_27] שהקב"ה הבטיח לו הארץ הזאת, וא"כ אין תועלת בסירובם ויתנוה לו מרצונם הטוב — ולמה אמר "אטלנה" שמשמעו בע"כ?
+ג) באם הי' לוקחה בחוזק יד ובע"כ[ftnref\_706\_28] — יש בזה משום חילול השם אצל בני חת (שאברהם הי' מוכר אצלם כ"נשיא אלקים"[ftnref\_707\_29], ומפורסם כאיש שהנהגתו היא בתכלית החסד, היושר והצדק[ftnref\_708\_30]).
+ד) מדיוק לשונו "אם תרצו הריני גר ואם לאו אהי' תושב"[ftnref\_709\_31] משמע, שהיותו גר או תושב תלוי ברצונם של בני חת. כלומר: אם ירצו בני חת למכור את מערת המכפלה, אזי "הריני גר" שאי אפשר לו ליטלנה מן הדין, ורק כשאין רצונם בכך ("ואם לאו"), אזי — "אהי' תושב ואטלנה מן הדין".
+ותמוה: איך יתכן לומר שה"דין", אם מותר לאברהם ליטול את מערת המכפלה או לא, יהי' תלוי ברצונם[ftnref\_710\_32] של בני חת?
+ה) מדוע הביא אברהם את ההוכחה (שהוא יכול ליטלנה מן הדין) מהבטחת הקב"ה "לזרעך אתן את הארץ הזאת" — שהנתינה היא לזרעו של אברהם — ולא מהבטחת הנתינה לאברהם עצמו — "את כל הארץ גו' לך אתננה"[ftnref\_711\_33]?
+לפי המדרש[ftnref\_712\_34], שההוכחה היא מזה שא"ל הקב"ה "לזרעך נתתי את הארץ הזאת"[ftnref\_713\_35], אתי שפיר — כי כתוב זה אינו הבטחה על העתיד, אלא ל' עבר, בלשון הירושלמי[ftnref\_714\_36] "לזרעך נתתי — כבר נתתי", וכדאיתא גם במדרש[ftnref\_715\_37] על כתוב זה, ש"מאמרו של הקב"ה מעשה". וא"כ עדיפא אמירה זו של הקב"ה ("לזרעך נתתי") גם לגבי האמירה "לך אתננה" שהיא רק הבטחה על העתיד;
+אבל לפי פרש"י, שההוכחה היא מ"לזרעך אתן את הארץ הזאת" — קשה, כנ"ל: מדוע לא הביא ההבטחה "לך אתננה"[ftnref\_716\_38]?
+
+## 85
+
+ד. וי"ל הביאור בכל זה:
+בבעלות בנ"י על ארץ ישראל יש שני פרטים: בעלות כללית — זה שכל הארץ שייכת לכלל ישראל, ובעלות פרטית — זה שכל אחד מישראל יש לו חלק פרטי בארץ השייך (רק) אליו.
+ושני אופני בעלות אלו דבנ"י בארץ ישראל באו בפועל[ftnref\_717\_39] על ידי שני קנינים: הבעלות הכללית באה ע"י כיבוש הארץ ע"י יהושע כו', שעי"ז נקנית כללות א"י לכלל ישראל, והבעלות הפרטית דכאו"א מישראל בחלקו הפרטי נעשית על ידי ישיבה וחזקה, שכ"א ישב והחזיק בחלקו[ftnref\_718\_40].
+זאת ועוד: שני אופנים אלה בבעלות אינם תלויים זב"ז; אפשר להיות בעלות כללית בלי בעלות פרטית ובעלות פרטית בלי בעלות כללית.
+הסברת הדבר:
+בעלות כללית אינה שוללת הבעלות הפרטית, וכמו בעלות המלך על המדינה שלו, דעם היות שכל הארץ כולה היא ברשות המלך[ftnref\_719\_41], מ"מ אין זה שולל בעלותו הפרטית של כאו"א מבני המדינה על רכושו הפרטי (ביתו, שדהו וכו'), אלא שמצד בעלותו של המלך על כל הארץ חלים כמה דינים גם על הרכוש הפרטי של כאו"א — דדינא דמלכותא דינא[ftnref\_720\_42], ולכן מוטל עליו לשלם מסים למלך על רכוש זה, ועד שבתנאים מסויימים יכול המלך ליטול גם את רכושו של האיש הפרטי[ftnref\_721\_43], וכהדין ד"מלך פורץ גדר. . ואין ממחין בידו"[ftnref\_722\_44], וכו'.
+ולאידך, בעלות הפרטית אינה מביאה (בהכרח) בעלות כללית[ftnref\_723\_45]. וכמו שמצינו לאחרי חורבן הראשון, דאף את"ל שבטלה בעלותם הכללית של בנ"י על הארץ[ftnref\_724\_46] — ד"כיון שנלקחה הארץ מידיהם בטל הכיבוש" ועד ש"נפטרה מן התורה ממעשרות ומשביעית שהרי אינה מן ארץ ישראל"[ftnref\_725\_47] — מ"מ נשארה בעלות היחיד על קרקעו, וכמש"נ בירמי'[ftnref\_726\_48] "שדות בכסף יקנו וכתוב בספר וחתום", כי אין הבעלות הפרטית תלוי' בבעלות הכללית.
+ה. ועפ"ז מובנים דברי אברהם לבני חת — "אם תרצו הריני גר ואם לאו אהי'
+
+## 86
+
+תושב ואטלנה מן הדין": החילוק בין האופן ד"הריני גר" (עי"ז שבני חת ימכרו לו את מערת המכפלה) להאופן ד"אהי' תושב ואטלנה מן הדין" — הוא בגדר הבעלות של אברהם על מערת המכפלה:
+מערת המכפלה, כמו כל הארץ סביב לה, היתה אז ברשותם ובבעלותם הכללית של בני חת, ובקשת אברהם לקנותה מעפרון היתה רק לרכוש את הבעלות הפרטית (דעפרון) של מקום זה, אבל גם אח"כ תשאר בעלותה הכללית בידי בני חת (שלא מצינו שאברהם כבש מלכות בני חת).
+וזהו "הריני גר" — כי הארץ נשארה בבעלותם הקודמת של בני חת, ואברהם הוא "גר" הקונה רכוש פרטי במדינת — במלכות בני חת.
+אמנם כל זה הוא אם יסכימו בני חת למכור לו את מערת המכפלה, אבל "אם לאו — אהי' תושב ואטלנה מן הדין", שנטילת המערה תהי' תוצאה (והמשך) מהבעלות הכללית על ארץ ישראל.
+והביאור: אברהם ידע שאדם וחוה קבורים במערת המכפלה[ftnref\_727\_49], ובאם לא יסכימו בני חת למוכרה לו (באופן שתגיע לו הבעלות הפרטית), וירצו להכריחו לקבור שרה במק"א לא אצל חוה צלע מצלעותיו דיציר כפיו של הקב"ה, הרי איגלאי מילתא שכבר הגיע זמן קיום ההבטחה "לזרעך אתן את הארץ הזאת", ותנתן לו (גם) הבעלות הכללית — "אטלנה מן הדין"[ftnref\_728\_50].
+ו. עפ"ז מתורץ ג"כ מדוע הובא ע"ז בפרש"י הכתוב "לזרעך אתן את הארץ הזאת" (או במדרש "לזרעך נתתי את הארץ הזאת") — ולא הכתוב "לך אתננה", ובהקדים:
+שני אופני בעלות הנ"ל לישראל בארץ ישראל הובטחו לאברהם אבינו: הכתובים "לזרעך אתן את הארץ הזאת", "לזרעך נתתי את הארץ", ענינם בעלות הכללית של עם ישראל על הארץ, ואילו בהכתוב "לך אתננה" מדובר בבעלות הפרטית של ישראל על חלקו בארץ.
+וההסברה בזה — יש לומר:
+ההבטחה "לזרעך אתן את הארץ הזאת" (וכן הכתוב "לזרעך נתתי את הארץ הזאת") כוללת את כל הארץ בלשון "כללי", "הארץ הזאת". והוא לפי שהנידון הוא "הארץ" — ארץ ישראל השייכת בכללותה לכללות עם ישראל;
+בההבטחה ד"לך אתננה" הרי הכתוב מאריך בה ומפרט ואומר[ftnref\_729\_51] "ראה מן המקום אשר אתה שם צפונה ונגבה וקדמה וימה גו' לך אתננה ולזרעך עד עולם ושמתי את זרעך כעפר הארץ אשר אם יוכל איש למנות את עפר הארץ גם זרעך ימנה. קום התהלך בארץ לארכה ולרחבה גו'".
+כלומר:
+א) בכתובים אלו מודגש גודל שטח הארץ וגם פרטיו ("וראה גו' צפונה ונגבה וקדמה וימה גו'") וריבוי זרעו של אברהם ומנין בו — שמשמעות המשך הכתובים היא, שנתינת ארץ רחבת ידים כזו מתאימה לההבטחה ד"ושמתי את זרעך כעפר הארץ", שלכן זקוקים הם לארץ גדולה ביותר וחלק זרעך יהי' בצפונה, חלקו בנגבה וכו'; וענין זה קשור עם הבעלות הפרטית של כאו"א מישראל על חלקו בארץ.
+
+## 87
+
+ב) "קום התהלך בארץ לארכה ולרחבה" — שאברהם יחזיק בארץ, קנין חזקה (כמבואר בגמ'[ftnref\_730\_52]) — קאי ג"כ על קנין השייך לבעלות פרטית, כנ"ל שחזקה היא (בעיקרה) בקנין הפרטי.
+ז. ויש לומר, שזהו גם טעם החילוק שבין הכתובים — דבפסוקים המדברים אודות הבעלות הכללית נאמר רק "לזרעך", ואילו בהכתובים ע"ד הבעלות הפרטית נאמר "לך אתננה ולזרעך עד עולם", בהדגשת הנתינה לאברהם בפ"ע:
+אברהם אבינו הי': (א) ראש לאומה הישראלית, הכוללת את כל בנ"י, ומצד זה הנה כל ענין שנאמר אליו (או ניתן לו) הרי זה ענין ד"כלל ישראל"[ftnref\_731\_53]; והוא גם (ב) ה"אב" של כאו"א מישראל באופן פרטי, כתוארו "אברהם אבינו", אביהם של כאו"א מישראל.
+ולפי זה: ההבטחה לאברהם ע"ד הבעלות הכללית דא"י היא לאברהם בתור ראש האומה (כלל ישראל), וההבטחה בנוגע להבעלות הפרטית — היא לאברהם בתור ה"אב" של כאו"א מישראל[ftnref\_732\_54].
+ולכן בהכתובים שבהם באה הבטחה לאברהם ע"ד הבעלות הכללית, נאמר בהם רק "לזרעך אתן" (לזרעך נתתי), כי זה אינו בגדר ירושה באופן פרטי מאב לבן, אלא ניתן לכלל ישראל (ולהעיר שהוא הוא אותו ה"כלל" במשך כל הדורות[ftnref\_733\_55]); משא"כ בהבעלות הפרטית שנאמרה לאברהם בתור "אב", שמוריש לכאו"א מבניו, נאמר "לך אתננה[ftnref\_734\_56] ולזרעך", שבזה מודגש היחס ד"אב" ו"בן" שבין אברהם וזרעו, שעי"ז באה הארץ בירושה מהאב — אברהם — לזרעו עד עולם[ftnref\_735\_57].
+
+## 88
+
+ח. ע"פ כל הנ"ל יש לבאר ג"כ ענין שבועת אברהם לבני חת "שאין בני ישראל יורשים את עיר יבוס כי אם ברצונם":
+אף שבנ"י נצטוו[ftnref\_698\_20] "והורשתם את כל יושבי הארץ גו' וישבתם בה גו' והתנחלתם את הארץ", שבזה נכלל לא רק מעשה הכיבוש של הבעלות כללית, כ"א גם "וישבתם בה", שזהו חזקת כ"א בקרקע שלו, בעלות הפרטית — מ"מ שאני הבעלות הכללית מבעלות הפרטית, דהבעלות הכללית ניתנה כולה לעם ישראל, מבלי שום נתינת מקום לשליטת זר; משא"כ בנוגע לישיבה בארץ, הרי בתנאים מסויימים מותרים גם האומות להשאר בארץ, וגם מז' האומות. וכמו שנצטווינו[ftnref\_737\_58] "כי תקרב אל עיר להלחם עלי' וקראת אלי' לשלום", שדין זה הוא גם בנוגע לז' האומות[ftnref\_738\_59], וכמו שעשה יהושע ד"שלשה[ftnref\_739\_60] כתבים שלח יהושע עד שלא נכנס לארץ הראשון שלח להם מי שרוצה לברוח יברח וחזר ושלח מי שרוצה להשלים ישלים כו'"[ftnref\_740\_61].
+ועפ"ז יש לבאר בנדו"ד: שבועת אברהם לא היתה שבנ"י לא ירשו את הבעלות הכללית דעיר (ארץ) היבוס — כי אא"פ להשבע נגד הבטחת הקב"ה "לזרעך אתן (נתתי) את הארץ הזאת"; אלא המדובר בשייכות להבעלות הפרטית, דאף שבנ"י ישלטו על ארץ יבוס כי היא חלק מארצם, מ"מ בקשו לכרות ברית שלא יחזיקו בה ישראל בבעלות פרטית "כי אם ברצונם" (של בני יבוס). והיינו, שגם בני חת הסכימו להשאר תחת שליטת וממשלת בנ"י, וכל כוונתם היתה רק שלא תושלל מהם בעלותם הפרטית על עיר יבוס — שבאופן זה אין איסור (וכההודעה ה"רוצה להשלים ישלים")[ftnref\_741\_62].
+[וענין זה מודגש גם בלשון בקשת בני חת — "אנו יודעים שהקב"ה עתיד ליתן לך ולזרעך את כל הארצות האל, כרות עמנו שבועה כו'", היינו שגם הם יודעים שהקב"ה עתיד ליתן הארץ (כולל עיר היבוס) לישראל, ולכאורה מה מקום לכרות ברית לעשות ההיפך — "שאין בנ"י יורשים כו'"? אלא שגם לדעת בני חת, השבועה "שאין בנ"י יורשים את עיר יבוס" אינה בסתירה לזה "שהקב"ה עתיד ליתן לך ולזרעך את כל הארצות האל"].
+ובזה יומתק הקשר בין שבועה זו לקניית מערת המכפלה: לאחרי שהסכימו למסור (למכור) לאברהם את בעלותו הפרטית של מקום מערת המכפלה — ביקשו מאברהם, מדה כנגד מדה, שישבע להם דגם כאשר הבעלות הכללית
+
+**English:**
+
+## Sicha 1
+
+### 82
+
+A. It is stated in *Pirkei D’Rabbi Eliezer* that when Avraham came to purchase the Cave of Machpelah from the Bnei Chet, "They said to him, 'We know that the Holy One, blessed be He, is destined to give you and your seed all these lands. Make a covenant with us, and swear that the Bnei Yisrael will not inherit the city of Yevus except with the consent of the Bnei Yevus (who were Hittites)' — and he made a covenant with them — and afterwards he purchased the Cave of Machpelah."
+
+This requires clarification:
+1) How could Avraham agree to swear to them that the Bnei Yisrael would not inherit the city of Yevus, which is the opposite of Hashem’s promise to him, "All the land... to you I will give it, and to your seed forever" ?
+2) After all, decades earlier, Hashem had already made a covenant with Avram, "To your seed I have given this land".
+
+Moreover, it is even more puzzling based on what is explicitly stated later in *Pirkei D’Rabbi Eliezer*: "When Yisrael came to the land... they were unable to enter (the city of Yevus) because of the sign of the covenant of Avraham’s oath... And when David became king and wanted to enter... they did not allow him... by virtue of the covenant of Avraham’s oath." Similarly, it is stated in the *Sifri* regarding what is written concerning Yehoshua, "But the Yevusi, the inhabitants of Yerushalayim, the Bnei Yehudah could not drive them out." The explanation is: "They were able, but they were not permitted" (as is explicitly stated in Rashi that the prohibition is "because Avraham made a covenant with them when he took the Cave of Machpelah from them"). Thus, Avraham’s oath imposed a prohibition on the Bnei Yisrael against conquering Yerushalayim.
+
+B. Further on in *Pirkei D’Rabbi Eliezer*, it is recounted that when they did not allow David to enter the city and "said to him, 'You cannot enter the city of Yevus until you remove all these idols upon which that oath of Avraham is written,' David said to his men, 'Whoever goes up first and removes these idols upon which the sign of the covenant of Avraham’s oath is written shall be the leader.' And Yoav ben Tzeruyah went up first."
+
+## 84
+
+"...I will be a resident, and I will take it by right that the Holy One, blessed be He, said to me, 'To your seed I will give this land.'"
+
+This requires clarification:
+1) Since it was in his power to take it "by right," why did he exert such effort to purchase the Cave of Machpelah (and for full price)?
+2) When Avraham said to the Bnei Chet, "I will take it by right," he certainly intended for them to believe his words that Hashem had promised him this land. If so, there would be no benefit in their refusal, and they should have given it to him of their own free will. Why then did he say "I will take it," which implies taking it against their will?
+3) If he were to take it by force and against their will, this would result in a *Chillul Hashem* among the Bnei Chet (as Avraham was recognized by them as a "Prince of Elokus", and was famous as a man whose conduct was the epitome of kindness, honesty, and justice).
+4) From the precision of his language, "If you wish, I am a *ger*, and if not, I will be a *toshav* and take it by right", it implies that his status as a *ger* or a *toshav* depended on the will of the Bnei Chet. That is to say: If the Bnei Chet were willing to sell the Cave of Machpelah, then "I am a *ger*," meaning he could not take it by right; and only when they were unwilling ("and if not"), then — "I will be a *toshav* and take it by right."
+This is puzzling: How can it be that the "right"—whether or not Avraham was permitted to take the Cave of Machpelah—would depend on the will of the Bnei Chet?
+5) Why did Avraham bring the proof (that he could take it by right) from Hashem’s promise, "To your seed I will give this land"—where the giving is to Avraham’s seed—and not from the promise of the giving to Avraham himself, "All the land... to you I will give it" ?
+According to the *Midrash*, that the proof is from the fact that Hashem said to him, "To your seed I have given this land", this is well-explained—because this verse is not a promise for the future, but in the past tense. In the language of the *Yerushalmi*, "To your seed I have given—I have already given," as is also found in the *Midrash* on this verse, that "the word of the Holy One, blessed be He, is an act." If so, this statement of Hashem ("To your seed I have given") is superior even to the statement "To you I will give it," which is only a promise for the future.
+However, according to Rashi, that the proof is from "To your seed I will give this land," it is difficult, as mentioned above: Why did he not bring the promise "To you I will give it" ?
+
+## 85
+
+D. The explanation for all of this can be said to be as follows:
+Regarding the ownership of the Bnei Yisrael over Eretz Yisrael, there are two details: general ownership—that the entire land belongs to the collective of Yisrael; and private ownership—that every individual of Yisrael has a private portion in the land that belongs (only) to him.
+These two modes of ownership of the Bnei Yisrael in Eretz Yisrael came into effect through two acquisitions: General ownership came about through the conquest of the land by Yehoshua, etc., whereby the entirety of Eretz Yisrael was acquired for the collective of Yisrael. Private ownership for each individual of Yisrael in his private portion was achieved through settlement and *chazakah*, as each one settled and took possession of his portion.
+Furthermore, these two modes of ownership are not dependent upon one another; it is possible to have general ownership without private ownership, and private ownership without general ownership.
+The explanation of this:
+General ownership does not negate private ownership, similar to the king’s ownership of his country. Even though the entire land is under the authority of the king, this does not negate the private ownership of each member of the country over his private property (his house, his field, etc.). Rather, because of the king’s ownership over the entire land, several laws apply even to the private property of each individual—*dina d’malchusa dina*. Therefore, he is obligated to pay taxes to the king on this property, and to the point that under certain conditions, the king can even take the property of the private individual, as per the law that "a king may breach a fence... and no one may protest him", etc.
+Conversely, private ownership does not (necessarily) bring about general ownership. As we find after the first destruction, even if we say that the general ownership of the Bnei Yisrael over the land was nullified —for "once the land was taken from their hands, the conquest was nullified," and it was even "exempted from the Torah’s laws of *maasros* and *shevi'is*, for it is no longer Eretz Yisrael" —nevertheless, the individual’s ownership over his land remained, as it is written in Yirmiyahu, "Fields shall be bought for money, and written in a deed, and sealed," because private ownership is not dependent on general ownership.
+
+E. Based on this, the words of Avraham to the Bnei Chet are understood—"If you wish, I am a *ger*, and if not, I will be a
+
+## 86
+
+*toshav* and take it by right": The difference between the mode of "I am a *ger*" (by the Bnei Chet selling him the Cave of Machpelah) and the mode of "I will be a *toshav* and take it by right" lies in the nature of Avraham’s ownership of the Cave of Machpelah:
+The Cave of Machpelah, like all the land surrounding it, was at that time under the authority and general ownership of the Bnei Chet. Avraham’s request to purchase it from Efron was only to acquire the private ownership (of Efron) of this place, but even afterwards, the general ownership would remain in the hands of the Bnei Chet (as we do not find that Avraham conquered the kingdom of the Bnei Chet).
+This is "I am a *ger*"—because the land remained in the previous ownership of the Bnei Chet, and Avraham is a "*ger*" purchasing private property in the state—in the kingdom of the Bnei Chet.
+However, all of this applies if the Bnei Chet agree to sell him the Cave of Machpelah. But "if not—I will be a *toshav* and take it by right," meaning that the taking of the cave would be a result (and a continuation) of the general ownership over Eretz Yisrael.
+The explanation: Avraham knew that Adam and Chavah were buried in the Cave of Machpelah. If the Bnei Chet were unwilling to sell it to him (in a way that he would obtain private ownership), and they wanted to force him to bury Sarah in another place—not next to Chavah, the rib from the ribs of the creation of the hands of the Holy One, blessed be He—then it would be revealed that the time had already arrived for the fulfillment of the promise, "To your seed I will give this land," and he would be given (also) the general ownership—"I will take it by right".
+
+F. Based on this, it is also resolved why Rashi cites the verse "To your seed I will give this land" (or the *Midrash* cites "To your seed I have given this land")—and not the verse "To you I will give it." To preface:
+The two aforementioned modes of ownership for Yisrael in Eretz Yisrael were promised to Avraham Avinu: The verses "To your seed I will give this land" and "To your seed I have given this land" concern the general ownership of the people of Yisrael over the land, whereas the verse "To you I will give it" speaks of the private ownership of Yisrael over his portion in the land.
+The explanation for this is as follows:
+The promise "To your seed I will give this land" (and likewise the verse "To your seed I have given this land") includes the entire land in the general term, "this land." This is because the subject is "the land"—Eretz Yisrael, which belongs in its entirety to the collective of the people of Yisrael.
+In the promise "To you I will give it," the verse elaborates and details, saying, "Lift up your eyes from the place where you are, northward and southward and eastward and westward... to you I will give it, and to your seed forever. And I will make your seed as the dust of the earth, so that if a man can count the dust of the earth, then your seed shall also be counted. Arise, walk through the land in its length and in its breadth..."
+That is to say:
+1) In these verses, the size of the land’s area is emphasized, as well as its details ("Lift up your eyes... northward and southward..."), and the multiplication of Avraham’s seed and their counting—the implication of the continuation of the verses being that the giving of such a vast land is appropriate for the promise, "And I will make your seed as the dust of the earth," for which reason they require an extremely large land, and a portion of your seed will be in the north, a portion in the south, etc. This matter is connected with the private ownership of each individual of Yisrael over his portion in the land.
+
+## 87
+
+2) "Arise, walk through the land in its length and in its breadth"—that Avraham should take possession of the land, an acquisition of *chazakah* (as explained in the *Gemara*)—also refers to an acquisition pertaining to private ownership, as mentioned above, that *chazakah* is (primarily) an acquisition of private property.
+
+G. It can be said that this is also the reason for the distinction between the verses—that in the verses speaking about general ownership, only "to your seed" is said, whereas in the verses about private ownership, "to you I will give it and to your seed forever" is said, emphasizing the giving to Avraham himself:
+Avraham Avinu was: (a) The head of the Yisraelite nation, which includes all the Bnei Yisrael, and in this respect, any matter said to him (or given to him) is a matter of "the collective of Yisrael" ; and he was also (b) the "father" of each individual of Yisrael in a private sense, as his title is "Avraham Avinu," the father of each individual of Yisrael.
+According to this: The promise to Avraham regarding the general ownership of Eretz Yisrael is to Avraham as the head of the nation (the collective of Yisrael), and the promise regarding private ownership is to Avraham as the "father" of each individual of Yisrael.
+Therefore, in the verses where the promise to Avraham regarding general ownership appears, only "to your seed I will give" (to your seed I have given) is said, because this is not in the category of an inheritance privately from father to son, but is given to the collective of Yisrael (and it should be noted that it is the same "collective" throughout all generations). This is unlike the private ownership, which was said to Avraham as a "father" who bequeaths to each of his sons, where it says, "To you I will give it and to your seed," in which the relationship of "father" and "son" between Avraham and his seed is emphasized, through which the land comes as an inheritance from the father—Avraham—to his seed forever.
+
+## 88
+
+H. Based on all of the above, we can also explain the matter of Avraham’s oath to the Bnei Chet, "that the Bnei Yisrael will not inherit the city of Yevus except with their consent":
+Even though the Bnei Yisrael were commanded, "And you shall drive out all the inhabitants of the land... and you shall dwell in it... and you shall inherit the land," which includes not only the act of conquest of general ownership, but also "and you shall dwell in it," which is the *chazakah* of each one in his own land—private ownership—nevertheless, general ownership is different from private ownership. General ownership was given entirely to the people of Yisrael, without any room for the rule of a stranger. This is not the case regarding dwelling in the land, for under certain conditions, the nations are permitted to remain in the land, even from the seven nations. As we were commanded, "When you approach a city to wage war against it, you shall call out to it for peace," and this law applies also to the seven nations, as Yehoshua did: "Yehoshua sent three proclamations before he entered the land. The first: Whoever wants to flee, let him flee; he then sent: Whoever wants to make peace, let him make peace...".
+Based on this, we can explain the case at hand: Avraham’s oath was not that the Bnei Yisrael would not inherit the general ownership of the city (land) of Yevus—for it is impossible to swear against Hashem’s promise, "To your seed I will give (have given) this land." Rather, it refers to the connection to private ownership. Even though the Bnei Yisrael would rule over the land of Yevus because it is part of their land, they requested to make a covenant that Yisrael would not hold it in private ownership "except with their consent" (of the Bnei Yevus). That is, the Bnei Chet also agreed to remain under the rule and government of the Bnei Yisrael, and their entire intent was only that their private ownership over the city of Yevus not be negated—and in such a case, there is no prohibition (similar to the announcement, "Whoever wants to make peace, let him make peace").
+[And this matter is also emphasized in the language of the Bnei Chet’s request—"We know that the Holy One, blessed be He, is destined to give you and your seed all these lands. Make a covenant with us..."—meaning that they also know that Hashem is destined to give the land (including the city of Yevus) to Yisrael. Seemingly, what room is there to make a covenant to do the opposite—"that the Bnei Yisrael will not inherit..."? Rather, even according to the Bnei Chet, the oath "that the Bnei Yisrael will not inherit the city of Yevus" is not in contradiction to the fact "that the Holy One, blessed be He, is destined to give you and your seed all these lands."]
+With this, the connection between this oath and the purchase of the Cave of Machpelah is sweetened: After they agreed to hand over (sell) to Avraham the private ownership of the site of the Cave of Machpelah, they requested from Avraham, measure for measure, that he swear to them that even when the general ownership
+
+---
+
+_Section: חיי שרה_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 90
+
+### שיחה ב
+
+א. מן הפסוק[ftnref\_745\_1] "ואבא היום אל העין גו'" מעתיק רש"י "ואבא היום" ומפרש "היום יצאתי והיום באתי מכאן שקפצה לו הארץ". היינו, דמיתור לשון הכתוב "ואבא היום" — דלכאורה, "היום למה לי"[ftnref\_746\_2] — ילפינן, שכוונת אליעזר היתה, "היום יצאתי והיום באתי. . שקפצה לו הארץ".
+והנה נת' כמ"פ, דכאשר רש"י כותב "מכאן" (ואינו מסתפק בכתיבת הפירוש) — כוונתו בזה לדייק ולשלול, שדבר זה נלמד "מכאן" דוקא ולא ממקום אחר לפני זה (אף שלכאורה קס"ד ללמוד משם דבר זה).
+ויש להבין בנדו"ד (שהוסיף "מכאן") — איזה "מקום אחר" שולל רש"י בכתבו "מכאן שקפצה לו הארץ"?
+והנה מקורו של פרש"י זה הוא בסנהדרין[ftnref\_747\_3], דאיתא שם "שלשה קפצה להם הארץ אליעזר עבד אברהם. . דכתיב ואבא היום אל העין למימרא דההוא יומא נפק" (וכ"ה בפרקי דר"א[ftnref\_748\_4] ומדרש תנחומא[ftnref\_749\_5]). אבל במדרש רבה פרשתנו[ftnref\_750\_6] עה"פ[ftnref\_751\_7] "ויקם וילך אל ארם נהרים" איתא "ר' יצחק אמר בן יומו" ("בו ביום שיצא משם בו ביום בא לעין"[ftnref\_752\_8]), הרי שהענין דקפיצת הדרך של אליעזר כבר נרמז, לדעת המדרש, במ"ש לעיל "ויקם וילך אל ארם נהרים", שהכניסה אל "ארם נהרים" היתה "בו ביום" ש"ויקם וילך".
+ועפ"ז הי' אפשר לומר, שכוונת רש"י במ"ש "מכאן שקפצה לו הארץ" היא לשלול דעת המדרש שילפינן זה מהכתוב "ויקם וילך אל ארם נהרים", ומובן גם טעמו בזה — כי בפשוטו של מקרא אין הכרח בפסוק "ויקם וילך" שהלך בקפיצת הדרך (משא"כ "כאן" שיש יתור לשון דתיבת "היום" כנ"ל).
+אמנם אין ביאור זה מספיק, כי זה שרש"י צריך לשלול מקומות אחרים הוא רק כשיש קס"ד בפשוטו של מקרא ללמוד דבר זה ממק"א, אבל בנדו"ד הרי מפשטות הלשון "ויקם וילך" אין משמעות והכרח שקפצה לו הארץ[ftnref\_753\_9] — ולכאורה אין צורך לרש"י לשלול זה[ftnref\_754\_10].
+[ובפרט שגם במדרש ממשיך "הוא דעתי'
+
+## 91
+
+דר' יצחק ואבא היום אל העין היום יצאתי והיום באתי", שי"ל שכוונת המדרש היא[ftnref\_755\_11], שעיקר הלימוד שקפצה לו הארץ הוא ממש"נ "ואבא היום" — ומזה ראי' לפרש דמ"ש כאן "ויקם וילך" היינו "בן יומו"].
+ב. אח"כ ממשיך רש"י: "אמר רבי אחא יפה שיחתן של עבדי אבות לפני המקום מתורתן של בנים שהרי פרשה של אליעזר כפולה בתורה והרבה גופי תורה לא נתנו אלא ברמיזה".
+ותמוה — ענין זה מאי בעי הכא, באמצע דברי אליעזר? לכאורה, הו"ל לרש"י לכתוב ביאור זה (המוסב על כללות ה"פרשה של אליעזר") תיכף בתחילת דברי אליעזר (שהוכפלו) או בסיומם; ועוד למה הביאו רש"י בכתוב זה דוקא?
+וביותר תמוה: במדרש רבה[ftnref\_756\_12] — כן הובא מאמר ר"א בקשר לתחילת הכפלת סיפור אליעזר[ftnref\_757\_13], ואילו רש"י משנה[ftnref\_758\_14] ומביאו בהמשך הסיפור עה"פ ואבא היום גו'!
+לכאורה אפשר להסביר, כי דברי אליעזר שלפני פסוק זה ("ואבא היום גו'") הם סיפור של דברי אברהם, ולכן אין לתמוה (כ"כ) מדוע חוזרת התורה עליהם; ורק בפסוק "ואבא היום גו'" שבו מתחיל סיפורו (ודבריו) של אליעזר עצמו, יש לדייק מדוע בא הכתוב להכפיל (גם) ענין זה — ולכן מתרץ רש"י "יפה שיחתן של עבדי אבות כו'".
+אבל מלבד הדוחק בעצם החילוק (שהקושיא בהכפלת הסיפור היא רק על דברי אליעזר עצמו) — הרי סו"ס גם דבריו הראשונים של אליעזר אינם (דברי אברהם) אלא "שיחתן של עבדי אבות", הם חלק מסיפורו של אליעזר, ופשטות כוונת רש"י ב"יפה שיחתן כו'" היא גם לדיבורים אלו, וכמובן מהמשך לשונו "שהרי פרשה של אליעזר כפולה בתורה", ופשוט שב"פרשה" נכללים גם דיבוריו הראשונים.
+ג. גם צריך להבין:
+א) גם את"ל שעיקר הקושיא בטעם הכפלת הפרשה היא בכתוב זה, ולכן מתרצה רש"י כאן דוקא — עדיין אינו מובן, מדוע כותב רש"י ענין זה בהמשך לפירושו "ואבא היום. . מכאן שקפצה לו הארץ", וה"ז ענין בפ"ע והו"ל לכתבו בדיבור בפ"ע[ftnref\_759\_15]? [וכמו שמצינו במקומות רבים בפרש"י על התורה, דכאשר מפרש שני ענינים נפרדים באותן התיבות, דרכו להעתיק תיבות הכתוב פעמיים[ftnref\_760\_16], לחלק
+
+## 92
+
+שני הענינים בשני ד"ה נפרדים (מאחר שאין קשר ביניהם — בתוכנם)].
+יש מפרשים[ftnref\_761\_17] "דקשה לרש"י מאי בא לנו הקרא לאשמעינן שקפצה לו הארץ. . דאין לומר שבזה נמי הוכיח שמה' יצא הדבר ליתן לו את רבקה, שהרי נס זה נעשה לו אין זה הוכחה על רבקה דלמא בתולה אחרת יש בעיר הזאת שישאנה, א"נ משום שזכותו של אברהם היא שקפצה לו הארץ, אלא על כרחך צ"ל: אף שאין צריך לכתוב ולא אשמעינן כלום אפילו הכי כתבו משום דבא לאשמעינן שחביב לפני הקב"ה כדר' אחא וכו'".
+אבל תירוץ זה צע"ג, שהרי אף אם נאמר שבנס זה (של קפיצת הדרך) אין "הוכחה על רבקה" בפרט[ftnref\_762\_18], הרי פשיטא שהוא מראה בגלוי שה' הצליח דרכו בשליחות זו (בכלל)[ftnref\_763\_19] — והרי זו היתה כוונת אליעזר, להוכיח לבתואל שהשם עמו והצליחו בכל — וכיצד אפשר לומר שדבר זה "לא אשמעינן כלום"?
+ובפרט שדבר זה נוגע גם למבוקש עיקרי בשייכות לרבקה — בקשת אליעזר "אל תאחרו אותי וה' הצליח דרכי"[ftnref\_764\_20], היינו לקחת את רבקה בלי שהי' ועיכוב בטענו "וה' הצליח דרכי", שבפשטות הראי', דכיון שהקב"ה עשה לו נס דקפיצת הדרך, הרי מזה הוכחה שאין לאחר את שילוחה של רבקה[ftnref\_765\_21].
+ב) מדוע מעתיק רש"י שם בעל המאמר — "אמר רבי אחא"? — וכמדובר כמה פעמים, שבהביאו שם האומר כוונתו ליישב שאלה בהענין שיכולה להתעורר אצל "תלמיד ממולח" לאחרי התבוננות כו' (שלכן אין רש"י צריך לתרצה בפירוש, אלא רק ע"י ציון שם בעל המאמר, כלומר, שהתשובה מרומזת בשיטתו (או הנהגתו וכיו"ב) של תנא או אמורא זה).
+ד. ויש לומר, שחדא מתורצת בחבירתה, כלומר, דיוקו של רש"י (הנ"ל סעיף א) "מכאן שקפצה לו הארץ", הוא המכריח המשך פירושו "אמר רבי אחא יפה שיחתן כו'":
+עצם ההכפלה (אפילו כשהיא באופן מפורט ובאריכות) — ע"פ פשוטו של מקרא אינו דבר המוקשה ומכריח ביאור[ftnref\_766\_22], כי מצינו כמ"פ בתורה הכפלת ענין, ולא נחית רש"י לפרש בכל פעם טעם ההכפלה [וע"ד סיפור בריאת אדם הראשון, שנשנה בתורה פעמיים[ftnref\_767\_23] (פעם בדרך כלל ופעם בדרך פרט[ftnref\_768\_24]) ולא פרש"י הטעם שנאמר בב' מקומות (ולא
+
+## 93
+
+כתבה התורה כל הסיפור בהמשך אחד)].
+הקושיא מתעוררת רק בפסוק "ואבא היום" שלמדים "מכאן שקפצה לו הארץ": הכתוב משמיענו אודות נס זה "שקפצה לו הארץ", לא לעיל במקומו — כשמספר גוף המאורעות של הליכת אליעזר לארם נהרים ("ויקם וילך אל ארם נהרים גו'"), אלא רק בסיפורו של אליעזר לבתואל אודותם.
+ועכצ"ל שטעם הדבר הוא: מכיון שבעיקר זה נוגע לדברי אליעזר לבתואל, שבזה רצה להוכיח לו שמהשם יצא הדבר ולא יעכב את השידוך (כנ"ל), לכן כתוב ומודיע שקפצה הדרך דוקא בסיפורו כאן.
+אבל אם כן, מאחר שאנו רואים שהכתוב לא רצה לספר נס זה ב' פעמים, ועד כ"כ שמשמיטו ממקומו (סיפור המאורע עצמו — כדי שלא תהי' הכפלה) ומספרו רק במקום שהוא מוכרח להבנת הענין — מתעוררת תמי' גדולה: מהו טעם האריכות בפרשה של אליעזר, שהיא כפולה בתורה על כל פרטי' שתי פעמים ולא מספיק לספרה רק פעם אחת (ובמכש"כ מסיפור ע"ד נס)?
+וזהו שפרש"י: "ואבא היום כו' מכאן שקפצה לו הארץ (ולא לעיל במקומו[ftnref\_769\_25])" — ועל תמיהת הלומד, א"כ מ"ט הוכפל כללות הסיפור, ממשיך רש"י בהתירוץ: אמר רבי אחא יפה שיחתן של עבדי אבות כו' שהרי פרשה של אליעזר כפולה בתורה והרבה גופי תורה לא נתנו אלא ברמיזה.
+ה. אלא ש"תלמיד ממולח" יכול לשאול: הא גופא טעמא בעי — למה לא ניתנו הרבה גופי תורה אלא ברמיזה, ולא בפירוש ובאריכות (ובפרט שפשוט שע"י נתינת גופי תורה ברמיזה יכולים לבוא לידי טעות בהבנת ההלכה כו')?
+והתירוץ על שאלה זו מרמז רש"י בציינו שם בעל המאמר — רבי אחא:
+על הכתוב[ftnref\_770\_26] "ודברת בם" (בדברי תורה) דרש רבי אחא[ftnref\_771\_27] — "ודברת בם, עשה אותן קבע ואל תעשם עראי". וצריך ביאור: מאי קמ"ל רבי אחא, הלא זו משנה מפורשת[ftnref\_772\_28] "שמאי אומר עשה תורתך קבע"?
+ויש לומר הביאור בזה:
+עיקר כוונת המשנה היא בנוגע לקביעות בזמן[ftnref\_773\_29] וביחס למלאכה, שרוב היום צריך האדם להקדיש ללימוד התורה ולא למלאכה. וזהו "תורתך קבע", שמלאכת האדם צ"ל "עראי", וכלשון הרמב"ם[ftnref\_774\_30] "עשה תורתך קבע ומלאכתך עראי";
+אמנם חידושו של ר"א הוא: "עשה אותן קבע ואל תעשם עראי", הדגשת השלילה אינה ביחס למלאכה אלא בנוגע לדברי תורה עצמם — שאין לעשות דברי תורה ענין של "עראי"[ftnref\_775\_31]. והיינו, כי
+
+## 94
+
+יש והאדם עוסק זמן רב בלימוד התורה, אבל התורה שהוא לומד היא אצלו "עראי", שעניני' אינם נקבעים בנפשו, ועד ששוכח עליהם במהרה. וזהו מה שמשמיענו ר"א "עשה אותן קבע ואל תעשם עראי", שלימוד ד"ת צ"ל באופן שיהיו נקבעים במוחו של האדם, עי"ז שלומד ומשנן כל דבר הלכה כמה פעמים עד שמבינו על בוריו ונקבע במוחו וזוכרו היטב כו'[ftnref\_776\_32].
+ומזה מובן, שלשיטת ר"א לא קשה מדוע ניתנו הרבה גופי תורה ברמיזה — כי לשיטתו, שיש חיוב ללמוד דברי תורה באופן של "קבע", די ברמיזה, כי ע"י הלימוד והשינון בקביעות פעם אחר פעם בודאי ישיגם ויבינם על בורים ויכוין את ההלכה לאמיתתה של תורה[ftnref\_777\_33] (משא"כ כשיהיו דברי תורה — אף שלא ברמיזה — וילמדם עראי).
+ו. אמנם ע"פ הנ"ל, ש"פרשה של אליעזר כפולה" כדי להורות על גודל החביבות שב"שיחתן של עבדי אבות" — אינו מובן לאידך גיסא: מדוע לא הוכפל גם פרט זה, הנס של קפיצת הדרך, ולא עוד אלא ש"לא ניתן אלא ברמיזה" (ביתור לישנא דקרא)?
+ע"ד הפשט אין זו קושיא, כי לבד זאת שאם הי' נכפל גם פרט זה, שוב לא הי' ניתן לדייק בטעם הכפלת הפרשה (כנ"ל, שכל השאלה מתעוררת דוקא כאשר רואים שהכתוב מדייק להודיע פרט זה רק פעם אחת במקום שנוגע) — הנה עוד זאת: כשם שב"גופי תורה" ש"לא ניתנו אלא ברמיזה", אין הפירוש שכל גופי תורה ניתנו ברמיזה, אלא רק (כדיוק לשון רש"י) "הרבה גופי תורה", ויש הרבה שאכן נאמרו בפירוש, וגם הוכפלו (וכמובן, שאין קושיא בלימוד ע"ד הפשט מדוע אלה נתפרשו ואלה ניתנו ברמיזה) — כמו"כ לאידך, ב"שיחתן של עבדי אבות", שאין הכוונה שהכתוב נחית לכפול כל הפרטים של "פרשה של אליעזר", כי אף הכפלת רובה של הפרשה די' להדגיש את החביבות שב"שיחתן של עבדי אבות" (וגם בזה אין קושיא בלימוד ע"ד הפשט מדוע נבחרו פרטים אלה דוקא).
+אבל בפנימיות הענין יש מקום לדייק, מדוע דוקא נס זה שבפרשת אליעזר, שהוא הנס הכי גלוי בפרשה זו — לא זו בלבד שלא נכפל בתורה, אלא עוד זאת, ש"לא ניתן אלא ברמיזה" (ביתור לישנא דקרא)!
+ויש לבאר טעם הדבר, משום שהנס ד"קפצה לו הארץ" שייך במיוחד ל"תורתן של בנים", ולכן בא ברמיזה דוקא.
+ז. ויובן זה בהקדם משנ"ת במק"א[ftnref\_778\_34] הטעם (הפנימי) בזה שגופי תורה לא ניתנו אלא ברמיזה, ע"פ המבואר בכתבי הצ"צ פרשתנו[ftnref\_779\_35], שישנו ענין ה"שיחה" גם למעלה כביכול, והוא דיבורו ית', שבו נברא העולם ("בעשרה מאמרות נברא העולם"[ftnref\_780\_36]) וכמאמר[ftnref\_781\_37] "הוא שח ויהי".
+וההבדל למעלה בין "שיחה" לתורה
+
+## 95
+
+הוא:
+"שיחה" מורה על מה שהקב"ה משפיל כביכול ומצמצם את עצמו בעשרה מאמרות לברוא על ידם את העולם ולהחיותו, ומזה באה ההנהגה הטבעית;
+משא"כ תורה היא למעלה מן העולם, כמחז"ל[ftnref\_782\_38] שתורה קדמה לעולם, וממנה נמשכת ההנהגה הנסית של הקב"ה לשדד מערכות הטבע [וכדיוק הלשון[ftnref\_783\_39] "אין כל חדש תחת השמש", דרק "תחת השמש" אא"פ להיות חידוש במעשה בראשית, משא"כ ע"י התורה, שהיא "לעילא מן שמשא"[ftnref\_784\_40], יכולים לעשות חידוש במעשה בראשית[ftnref\_785\_41]], "ולכן[ftnref\_786\_42] התנאים ואמוראים היו עושים נסים מופלאים כמו גינאי[ftnref\_787\_43] חלוק לי נהרא, וזוטרא[ftnref\_788\_44] דבכו מחי' מתים" — שזהו בכח התורה שלהם.
+וזהו הטעם שהרבה גופי תורה לא ניתנו אלא ברמיזה — כי[ftnref\_789\_45] מכיון שהתורה ענינה להמשיך "אור חדש" שלמעלה מן העולם, לכן לא ניתנה למטה אלא ברמיזה דוקא, ע"ד "(די) לחכימא ברמיזא"[ftnref\_790\_46], שענין עמוק ביותר נמסר ע"י רמז דוקא[ftnref\_791\_47].
+ועד"ז מובן גם בעניננו, שהנס דקפיצת הדרך של אליעזר — שהי' באופן של שידוד מערכות הטבע, לא נתפרש בתורה (באריכות) אלא "ברמיזה" דוקא, כמו "גופי תורה" [משא"כ שאר כל פרטי הסיפור של אליעזר המפורשים בתורה באריכות, אף שמהם נראה בעליל שהשם הצליח דרכו באופן ש"אותה הוכחת לעבדך ליצחק"[ftnref\_792\_48], מ"מ, לא הי' בהם ענין של שידוד מערכות הטבע].
+ויש לומר הטעם שב"פרשה של אליעזר" ("שיחתן של עבדי אבות") נכלל גם הנס דקפיצת הדרך השייך ל"תורתן של בנים": מבואר בכ"מ[ftnref\_793\_49] הטעם לגודל החביבות שב"פרשה של אליעזר" עד ש"יפה כו' מתורתן של בנים" — כי שליחותו של אליעזר בענין נישואי יצחק ורבקה היתה שייכת לכללות ענין נתינת התורה [וכנרמז גם בנתינת "שני צמידים. . עשרה זהב משקלם"[ftnref\_794\_50] לרבקה, וכפרש"י[ftnref\_795\_51] שהם "רמז לשני לוחות. . לעשרת הדברות"]; שמזה מובן שגם ב"פרשה של אליעזר" עצמה צ"ל מעין ה"אור חדש" שלמעלה מטבע העולם, המתגלה על ידי התורה — וזה הי' בנס דקפיצת הדרך[ftnref\_796\_52].
+
+## 96
+
+ח. ויש לקשר זה עם פירוש הבעש"ט[ftnref\_797\_53] עה"פ, וז"ל: "מפסוק ואבוא היום אל העין יצא שם של קפיצת הארץ", ומבואר בס' עבודת ישראל[ftnref\_798\_54] (להמגיד מקאזניץ) ד"זהו פירוש (לשון רש"י) היום יצאתי והיום באתי מכאן שקפצה, פירוש מכאן גופא, מדברים אלה שבזה המאמר", ד"מפסוק זה גופא יוצא שם לקפיצת הארץ"[ftnref\_799\_55].
+וע"פ משנת"ל שהנס דקפיצת הדרך שייך ל"תורתן של בנים", י"ל, שלכן נרמז השם של קפיצת הארץ בפסוק זה דוקא (ולא לעיל בפסוק "ויקם וילך") — כי במ"ש "ואבא היום אל העין" נרמז ענין התורה, כמבואר בזהר[ftnref\_800\_56] ד"עין המים" שבסיפור זה רומז למעיין החכמה, מקור התורה, "וז"ש[ftnref\_801\_57] ותרד העינה[ftnref\_802\_58], שירדה לשאוב מי החכמה דתורה, בכדה שעל שכמה כו' ותמלא כדה[ftnref\_803\_59] הן כ"ד ספרים[ftnref\_804\_60] דאורייתא";
+ונמצא שהפסוק "ואבוא היום אל העין" שייך למקור ענין התורה, ולכן מפסוק זה יוצא השם של קפיצת הארץ, הנהגה נסית שלמעלה מן הטבע.
+[quotation](משיחת ש"פ ח"ש תשל"ו) [/quotation]
+
+**English:**
+
+## Sicha 2
+
+### 90
+
+1. Regarding the verse, "And I came today to the spring, etc.," Rashi quotes "And I came today" and explains: "I left today and I arrived today; from here [we learn] that the earth shrank for him." That is, from the superfluous phrasing of the verse "And I came today"—for seemingly, "Why do I need [the word] 'today'?"—we learn that Eliezer’s intent was: "I left today and I arrived today... that the earth shrank for him."
+
+It has been explained many times that when Rashi writes "from here" (and does not settle for merely writing the explanation), his intent is to be precise and to exclude, indicating that this matter is learned specifically "from here" and not from any other place preceding it (even though, on the face of it, one might have thought to learn this from there).
+
+We must understand in this instance (where he added "from here")—what "other place" is Rashi excluding by writing "from here [we learn] that the earth shrank for him"?
+
+The source for this Rashi is in Sanhedrin, where it states: "Three for whom the earth shrank: Eliezer, the servant of Avraham... for it is written, 'And I came today to the spring,' to imply that he left that very day" (and this is likewise in Pirkei D’Rabbi Eliezer and Midrash Tanchuma). However, in Midrash Rabbah on our parsha, regarding the verse "And he arose and went to Aram Naharayim," it states: "Rabbi Yitzchak said: In one day" ("On the day he left there, on that day he arrived at the spring"), implying that the matter of Eliezer’s journey shrinking was already hinted at, according to the Midrash, in what was written earlier: "And he arose and went to Aram Naharayim," meaning that the entry into "Aram Naharayim" was "on that day" that he "arose and went."
+
+Based on this, one could say that Rashi’s intent in writing "from here [we learn] that the earth shrank for him" is to exclude the opinion of the Midrash that we learn this from the verse "And he arose and went to Aram Naharayim." The reason for this is also understood: in the plain meaning of the verse, there is no necessity in the verse "And he arose and went" that he traveled via a shrinking of the earth (unlike "here," where there is a superfluous word, "today," as mentioned above).
+
+However, this explanation is insufficient, because Rashi only needs to exclude other places when there is a plausible assumption in the plain meaning of the verse to learn this from elsewhere. But in this case, from the plain language of "And he arose and went," there is no implication or necessity that the earth shrank for him—and seemingly, there is no need for Rashi to exclude this.
+
+[Especially since the Midrash itself continues: "This is the opinion of Rabbi Yitzchak, 'And I came today to the spring'—I left today and I arrived today," which suggests that the Midrash’s intent is that the primary proof that the earth shrank for him is from what is written, "And I came today"—and from this, there is proof to interpret that what was written earlier, "And he arose and went," means "in one day."]
+
+### 91
+
+2. Rashi then continues: "Rabbi Acha said: The conversation of the servants of the Patriarchs is more beautiful before the Omnipresent than the Torah of the children, for the section of Eliezer is doubled in the Torah, while many fundamental laws of Torah were given only by hint."
+
+This is puzzling: what does this matter have to do with this point, in the middle of Eliezer’s words? Seemingly, Rashi should have written this explanation (which refers to the entire "section of Eliezer") immediately at the beginning of Eliezer’s words (which were repeated) or at their conclusion. Furthermore, why did Rashi bring it specifically at this verse?
+
+Even more puzzling: in Midrash Rabbah, this statement of Rabbi Acha is brought in connection with the beginning of the repetition of Eliezer’s story, whereas Rashi deviates and brings it later in the story, at the verse "And I came today, etc."!
+
+Seemingly, one could explain that Eliezer’s words before this verse ("And I came today, etc.") are a retelling of Avraham’s words, and therefore one should not be (so) puzzled as to why the Torah repeats them. Only at the verse "And I came today, etc.," where the story (and words) of Eliezer himself begins, must one be precise as to why the verse comes to repeat (also) this matter—and therefore Rashi answers, "The conversation of the servants of the Patriarchs is more beautiful, etc."
+
+But aside from the strain in this distinction itself (that the difficulty in the repetition of the story is only regarding Eliezer’s own words)—after all, even Eliezer’s first words are not (Avraham’s words) but rather "the conversation of the servants of the Patriarchs"; they are part of Eliezer’s story. The plain intent of Rashi in "The conversation is more beautiful, etc." is also for those words, as is understood from the continuation of his language: "for the section of Eliezer is doubled in the Torah." It is simple that the "section" includes his first words as well.
+
+### 92
+
+3. It is also necessary to understand:
+a) Even if you say that the primary difficulty regarding the reason for the repetition of the section is at this verse, and therefore Rashi answers specifically here—it is still not understood why Rashi writes this matter as a continuation of his explanation "And I came today... from here [we learn] that the earth shrank for him." This is a separate matter, and he should have written it in a separate entry! [As we find in many places in Rashi on the Torah, when he explains two separate matters in the same words, his custom is to quote the words of the verse twice, to divide the two matters into two separate entries (since there is no connection between them—in their content).]
+
+Some commentators explain: "Rashi is bothered by what the verse comes to teach us, that the earth shrank for him... for one cannot say that through this he also proved that the matter came from Hashem to give him Rivkah, for this miracle was performed for him, and it is no proof regarding Rivkah—perhaps there is another maiden in this city for him to marry? Alternatively, perhaps it is because of Avraham’s merit that the earth shrank for him. Rather, it must be that: even though it is not necessary to write it and it teaches us nothing, nevertheless, it was written because it comes to teach us that he is beloved before the Holy One, Blessed be He, as per Rabbi Acha, etc."
+
+But this answer is very difficult, for even if we say that in this miracle (of the shrinking of the earth) there is no "proof regarding Rivkah" specifically, it is obvious that it shows clearly that Hashem caused his mission to succeed (in general)—and this was Eliezer’s intent, to prove to Besuel that Hashem is with him and has caused him to succeed in everything. How can one say that this "teaches us nothing"?
+
+Especially since this matter also touches upon a primary request regarding Rivkah—Eliezer’s request, "Do not delay me, and Hashem has caused my way to succeed," meaning to take Rivkah without delay, claiming "Hashem has caused my way to succeed." The plain proof is that since the Holy One, Blessed be He, performed for him the miracle of the shrinking of the earth, from this there is proof that one should not delay the sending of Rivkah.
+
+b) Why does Rashi quote the name of the author of the statement—"Rabbi Acha said"? As discussed several times, when he brings the name of the speaker, his intent is to resolve a question in the matter that could arise for a "sharp student" after contemplation, etc. (which is why Rashi does not need to answer it explicitly, but only by citing the name of the author of the statement, meaning that the answer is hinted at in the approach (or conduct, etc.) of this Tanna or Amora).
+
+### 93
+
+4. It can be said that one is answered by the other. That is, Rashi’s precision (mentioned in section 1) "from here [we learn] that the earth shrank for him" is what necessitates the continuation of his explanation, "Rabbi Acha said: The conversation of the servants of the Patriarchs is more beautiful, etc."
+
+The repetition itself (even when it is detailed and lengthy)—according to the plain meaning of the verse, is not a matter that is difficult and necessitates explanation, because we find many times in the Torah the repetition of a matter, and Rashi does not set out to explain the reason for the repetition every time [similar to the story of the creation of the first man, which is repeated in the Torah twice (once in general and once in detail), and Rashi does not explain the reason it was said in two places (and the Torah did not write the whole story in one sequence)].
+
+The difficulty arises only at the verse "And I came today," from which we learn "from here [we learn] that the earth shrank for him": the verse informs us about this miracle, "that the earth shrank for him," not earlier in its place—when it recounts the body of events of Eliezer’s journey to Aram Naharayim ("And he arose and went to Aram Naharayim, etc."), but only in Eliezer’s story to Besuel about them.
+
+And it must be that the reason for this is: since this is primarily relevant to Eliezer’s words to Besuel, through which he wanted to prove to him that the matter came from Hashem and he should not delay the match (as mentioned above), therefore it is written and informs us that the way shrank specifically in his story here.
+
+But if so, since we see that the verse did not want to recount this miracle twice, to the point that it omits it from its place (the story of the event itself—so that there would not be a repetition) and recounts it only in the place where it is necessary for the understanding of the matter—a great wonder arises: what is the reason for the length in the section of Eliezer, which is doubled in the Torah in all its details twice, and it is not enough to recount it only once (and all the more so from the story about the miracle)?
+
+This is what Rashi explains: "And I came today, etc.—from here [we learn] that the earth shrank for him (and not earlier in its place)"—and to the student’s wonder: if so, why was the entire story doubled? Rashi continues with the answer: Rabbi Acha said, "The conversation of the servants of the Patriarchs is more beautiful, etc., for the section of Eliezer is doubled in the Torah, and many fundamental laws of Torah were given only by hint."
+
+### 94
+
+5. However, a "sharp student" could ask: This itself requires a reason—why were many fundamental laws of Torah given only by hint, and not explicitly and at length (especially since it is simple that by giving fundamental laws of Torah by hint, one can come to a mistake in the understanding of the Halacha, etc.)?
+
+Rashi hints at the answer to this question by citing the name of the author of the statement—Rabbi Acha:
+
+Regarding the verse "And you shall speak of them" (the words of Torah), Rabbi Acha expounded: "And you shall speak of them—make them permanent and do not make them temporary." And this requires explanation: what does Rabbi Acha teach us? Is this not an explicit Mishnah: "Shammai says, make your Torah permanent"?
+
+It can be said that the explanation for this is:
+The primary intent of the Mishnah is regarding permanence in time and in relation to work, that a person must dedicate most of the day to the study of Torah and not to work. This is "your Torah permanent," that a person’s work should be "temporary," and in the language of the Rambam: "Make your Torah permanent and your work temporary."
+
+However, Rabbi Acha’s innovation is: "Make them permanent and do not make them temporary." The emphasis of the negation is not in relation to work, but regarding the words of Torah themselves—that one should not make the words of Torah a matter of "temporary." That is, because there are times when a person engages for a long time in the study of Torah, but the Torah he studies is "temporary" for him, for its matters are not fixed in his soul, to the point that he forgets them quickly. This is what Rabbi Acha teaches us: "Make them permanent and do not make them temporary," that the study of words of Torah must be in a manner that they are fixed in a person’s mind, through studying and reviewing every point of Halacha several times until he understands it thoroughly and it is fixed in his mind and he remembers it well, etc.
+
+From this it is understood that according to Rabbi Acha, it is not difficult why many fundamental laws of Torah were given by hint—because according to his view, that there is an obligation to study words of Torah in a manner of "permanence," a hint is sufficient, for through study and review with permanence time after time, he will certainly grasp them and understand them thoroughly and will direct the Halacha to the truth of Torah (unlike when words of Torah are—even if not by hint—and he studies them temporarily).
+
+### 95
+
+6. However, according to the above, that "the section of Eliezer is doubled" in order to instruct on the greatness of the belovedness in "the conversation of the servants of the Patriarchs"—it is not understood on the other hand: why was this detail, the miracle of the shrinking of the earth, not also doubled? And not only that, but "it was given only by hint" (by the superfluous language of the verse)?
+
+According to the plain meaning, this is not a difficulty, because aside from the fact that if this detail had also been doubled, it would no longer be possible to be precise about the reason for the doubling of the section (as mentioned above, that the whole question arises specifically when one sees that the verse is precise to inform us of this detail only once in the place where it is relevant)—there is also this: just as in "fundamental laws of Torah" that "were given only by hint," it does not mean that all fundamental laws of Torah were given by hint, but only (as per Rashi’s precise language) "many fundamental laws of Torah," and there are many that were indeed stated explicitly, and were also doubled (and it is obvious that there is no difficulty in study according to the plain meaning as to why these were explained and these were given by hint)—likewise, on the other hand, regarding "the conversation of the servants of the Patriarchs," it does not mean that the verse sets out to double all the details of "the section of Eliezer," for even the doubling of most of the section is enough to emphasize the belovedness in "the conversation of the servants of the Patriarchs" (and in this too, there is no difficulty in study according to the plain meaning as to why these details specifically were chosen).
+
+But in the inner dimension of the matter, there is room to be precise: why specifically this miracle in the section of Eliezer, which is the most open miracle in this section—not only was it not doubled in the Torah, but furthermore, "it was given only by hint" (by the superfluous language of the verse)!
+
+The reason for this can be explained: because the miracle of "the earth shrank for him" belongs especially to "the Torah of the children," and therefore it came specifically by hint.
+
+7. This will be understood by prefacing what has been explained elsewhere regarding the (inner) reason why fundamental laws of Torah were given only by hint, based on what is explained in the writings of the Tzemach Tzedek on our parsha, that there is a matter of "conversation" above as well, so to speak, and it is His utterance, may He be blessed, through which the world was created ("The world was created with ten utterances") and as the saying goes, "He spoke and it was."
+
+And the difference above between "conversation" and Torah is:
+"Conversation" points to that which the Holy One, Blessed be He, lowers, so to speak, and constricts Himself in ten utterances to create through them the world and to sustain it, and from this comes the natural conduct;
+Unlike Torah, which is above the world, as our Sages said that Torah preceded the world, and from it is drawn the miraculous conduct of the Holy One, Blessed be He, to overturn the systems of nature [and as per the precision of the language, "There is nothing new under the sun," for only "under the sun" is it impossible for there to be a novelty in the act of creation, unlike through the Torah, which is "above the sun," one can make a novelty in the act of creation], "and therefore the Tannaim and Amoraim would perform wondrous miracles like Ginai, 'Split for me the river,' and Zutra, who would resurrect the dead"—for this is through the power of their Torah.
+
+This is the reason that many fundamental laws of Torah were given only by hint—for since the Torah’s matter is to draw down a "new light" that is above the world, therefore it was given below only by hint, similar to "to the wise by a hint," that a most deep matter is transmitted specifically by hint.
+
+Similarly, it is understood in our matter, that the miracle of Eliezer’s journey shrinking—which was in a manner of overturning the systems of nature, was not explained in the Torah (at length) but only "by hint," like "fundamental laws of Torah" [unlike all the other details of Eliezer’s story which are explained in the Torah at length, even though from them it is seen clearly that Hashem caused his way to succeed in a manner that "you have proven for your servant for Yitzchak," nevertheless, there was no matter of overturning the systems of nature in them].
+
+It can be said that the reason why in "the section of Eliezer" ("the conversation of the servants of the Patriarchs") the miracle of the shrinking of the earth is also included, which belongs to "the Torah of the children": it is explained in many places the reason for the greatness of the belovedness in "the section of Eliezer" to the point that "it is more beautiful, etc., than the Torah of the children"—for Eliezer’s mission regarding the marriage of Yitzchak and Rivkah belonged to the general matter of the giving of the Torah [as hinted also in the giving of "two bracelets... ten gold [shekels] their weight" to Rivkah, and as Rashi explains that they are "a hint to the two tablets... to the Ten Commandments"]; from which it is understood that also in "the section of Eliezer" itself there must be a semblance of the "new light" that is above the nature of the world, which is revealed through the Torah—and this was in the miracle of the shrinking of the earth.
+
+### 96
+
+8. This can be connected with the interpretation of the Baal Shem Tov on the verse, and his words are: "From the verse 'And I came today to the spring,' the name of the shrinking of the earth emerges," and it is explained in the book Avodas Yisrael (by the Maggid of Kozhnitz) that "this is the interpretation (of Rashi’s language) 'I left today and I arrived today; from here [we learn] that the earth shrank,' an interpretation: from here itself, from these words that are in this statement," that "from this verse itself, the name for the shrinking of the earth emerges."
+
+And according to what was explained above that the miracle of the shrinking of the earth belongs to "the Torah of the children," it can be said that this is why the name of the shrinking of the earth is hinted at in this verse specifically (and not earlier in the verse "And he arose and went")—for in what is written, "And I came today to the spring," the matter of Torah is hinted at, as explained in the Zohar that the "spring of water" in this story hints at the fountain of wisdom, the source of Torah, "and this is what is said, 'And she went down to the spring,' that she went down to draw the waters of the wisdom of Torah, in the pitcher that was on her shoulder, etc., and she filled her pitcher—these are the twenty-four books of the Torah";
+
+And it turns out that the verse "And I came today to the spring" belongs to the source of the matter of Torah, and therefore from this verse the name of the shrinking of the earth emerges, a miraculous conduct that is above nature.
+
+(From a Sicha of Shabbos Parshas Chayei Sarah, 5736)
+
+---
+
+_Section: חיי שרה_
+
+**Hebrew:**
+
+## שיחה ג
+
+## 97
+
+### שיחה ג
+
+א. בהפטורת פרשתנו (בריש ספר מלכים) מסופר[ftnref\_805\_1] ע"ד השתלשלות הדברים שהביאו לשבועת דוד לבת שבע "כי כאשר נשבעתי לך בה' אלקי ישראל לאמר כי שלמה בנך ימלוך אחרי והוא ישב על כסאי תחתי כי כן אעשה היום הזה"[ftnref\_806\_2].
+ובהמשך הכתובים[ftnref\_807\_3] מסופר שדוד צוה לצדוק הכהן ולנתן הנביא ובניהו בן יהוידע להרכיב את "שלמה בני על הפרדה אשר לי" ("סימן לו שימלוך ותחלת הגדולה שאין הדיוט רוכב על סוסו של מלך"), "ומשח אותו שם צדוק הכהן ונתן הנביא למלך על ישראל גו' ואמרתם יחי המלך שלמה"[ftnref\_808\_4], וכן עשו בפועל בחיי דוד, וכמ"ש בהמשך הכתובים[ftnref\_809\_5], ועד שיונתן בן אביתר הכהן סיפר לאדוני' איך ששלמה מלך, "וגם ישב שלמה על כסא המלוכה", "וגם ככה אמר המלך ברוך ה' אלקי ישראל אשר נתן היום יושב על כסאי ועיני רואות"[ftnref\_810\_6], ואדוני' ירא את המלך שלמה ואחז בקרנות המזבח שלא יהרגהו שלמה ע"ז שמורד במלכותו[ftnref\_811\_7].
+ומזה נראה, שמה שאמר דוד "כי כן אעשה היום הזה" היינו (לא רק הבטחה ששלמה ימלוך לאחרי פטירת דוד, אלא) ששלמה הוכתר למלך בחיי דוד[ftnref\_812\_8].
+וצריך ביאור: א) הרי אמר לו הקב"ה לדוד[ftnref\_813\_9] "כבר הגיעה מלכות שלמה בנך ואין מלכות נוגעת בחברתה אפילו כמלא נימא", דמשמע מזה שמלכות שלמה לא הותחלה עד לאחרי פטירת דוד. ב) ובכלל הרי אי אפשר לשני מלכים שישתמשו בכתר אחד[ftnref\_814\_10] (וכמאמר[ftnref\_815\_11] דבר אחד לדור כו'), וכנ"ל ש"אין מלכות נוגעת בחברתה אפילו כמלא נימא"[ftnref\_816\_12]?
+מצינו אכן כמה שמלכו בחיי אבותיהם (כמו יהושפט שהמליך את יורם בחייו שנתיים[ftnref\_817\_13], אחזיהו שמלך בחיי יהורם אביו[ftnref\_818\_14], עוזי' בימי אביו אמציהו[ftnref\_819\_15], ועוד כיו"ב), אבל שם עברה המלוכה מהאב אל הבן, ונתבטלה מלוכת האב
+
+## 99
+
+קיסר ופלגי קיסר, ולפ"ז אפשר לומר מעין זה גם בתחלת מלכות בית דוד, במלכות שלמה ודוד, ששניהם היו מלכים, אלא שהם ע"ד קיסר ופלגי קיסר.
+אבל גם זה דוחק, כי פשוט ששני "מלכים" אלו אינם שוים בתוקף מלכותם, וכלשון הגמ' "ופלגי קיסר" (חצי קיסר), "ושני לו", ולא מצינו שבאותו הזמן הי' אחד משניהם (דוד או שלמה) באופן ד"שני לו".
+ג. ויש לומר בזה, בהקדם ביאור דברי הרמב"ם בנוגע לירושת המלכות, וז"ל[ftnref\_835\_31]: "מאחר שמושחין המלך הרי זה זוכה לו ולבניו עד עולם שהמלכות ירושה שנאמר[ftnref\_836\_32] למען יאריך ימים על ממלכתו הוא ובניו בקרב ישראל. . ולא המלכות בלבד אלא כל השררות וכל המינויין שבישראל ירושה לבנו ולבן בנו עד עולם, והוא שיהי' הבן ממלא מקום אבותיו בחכמה וביראה", ואח"כ ממשיך הרמב"ם בנוגע למלכות בית דוד "כיון שנמשח דוד זכה בכתר מלכות והרי המלכות לו ולבניו הזכרים עד עולם שנאמר[ftnref\_837\_33] כסאך יהי' נכון עד עולם ולא זכה אלא לכשרים כו' אע"פ שלא זכה אלא לכשרים לא תכרת המלוכה מזרע דוד לעולם, הקב"ה הבטיחו בכך כו'".
+ולכאורה דברי הרמב"ם צריכים ביאור: מאי קמ"ל הרמב"ם באריכות דבריו אודות מלכות דוד, "כיון שנמשח דוד זכה בכתר מלכות והרי המלכות לו ולבניו הזכרים עד עולם כו' ולא זכה אלא לכשרים כו'" — הרי הן הן הדברים שכתב לעיל בנוגע לכל מלך (ולא רק מלכות אלא כל שררה ומינוי שבישראל), ומהו החידוש בדוד המלך לגבי שאר המלכים?
+לכאורה יש לומר, דאף ש"המלכות ירושה", מ"מ אפשר להיות שהמלכות תפסק מזרעו כי לא יהי' לו בן הראוי למלא מקום אבותיו בחכמה וביראה, וזהו החידוש במלכות בית דוד, שהקב"ה הבטיחו ש"לא תכרת המלוכה מזרע דוד לעולם", משא"כ בשאר מלכים (וכן בשאר שררות), שאף שהיא ירושה, אין הכרח והבטחה שלא תפסק מזרעו.
+אבל קשה לומר שזו בלבד היא כוונת הרמב"ם — שהרי תוכן ענין זה כותב הרמב"ם בהמשך הפרק[ftnref\_838\_34], וז"ל "מלכי בית דוד הם העומדים לעולם שנאמר כסאך יהי' נכון עד עולם אבל אם יעמוד מלך משאר ישראל תפסק המלכות מביתו", ואמאי הכפיל את דבריו עוה"פ אודות הבטחה זו לדוד, שמלכותו תכון לעולם?
+ועוד זאת: מזה שהרמב"ם כייל הך ענין ש"לא תכרת המלוכה מזרע דוד לעולם" עם פרטי דיני ירושת המלכות, משמע, שאין זה ענין צדדי (שהקב"ה הבטיחו שבפועל תכון מלכותו לעולם), אלא זה נוגע לעצם גדר ירושת המלכות אצל מלכי בית דוד. והיינו שיש חילוק עיקרי בין ירושת מלכות בית דוד לירושת המלכות בשאר מלכים (ושאר עניני שררה ומינויין שבישראל).
+ונת' בזה במ"א[ftnref\_839\_35] ע"פ דיוק לשון הרמב"ם "כיון שנמשח דוד זכה בכתר מלכות והרי המלכות לו ולבניו הזכרים עד עולם", והיינו שדוד זכה לא רק
+
+## 100
+
+ל"מלכות" אלא ל"כתר מלכות", ש"כתר מלכות" לא נמצא אלא במלכי בית דוד בלבד. ועד"ז כותב הרמב"ם אח"כ[ftnref\_840\_36] "נביא שהעמיד מלך משאר שבטי ישראל כו' ה"ז מלך וכל מצות המלכות נוהגות בו אע"פ שעיקר המלכות לדוד כו'" — הרי שאף שחלים כל דיני המלך על המלך משאר שבטי ישראל, מ"מ אין בו "עיקר המלכות" שזה שייך לזרע דוד בלבד.
+ולכן כותב הרמב"ם בספר המצות[ftnref\_841\_37] שכל מלך שאינו מ"זה הזרע הנכבד, לענין מלכות נכרי קרינא בי' כמו שכל זרע אחר בלתי זרע אהרן לענין עבודה זר קרינא בי'" — כי מלכות בית דוד היא חפצא אחרת בענין המלוכה.
+ד. וההסברה בזה:
+ענין המלכות יכול להיות בשני אופנים: א) התפקיד של מלוכה, שהן הפעולות והנהגות המלוכה (בלשון הכתוב[ftnref\_842\_38] "אשר יצא. . ואשר יבא לפניהם", וכן הפרטים שביארם שמואל הנביא[ftnref\_843\_39]). ב) מלך בעצם[ftnref\_844\_40], היינו שהוא איש מנושא בעצם (ובדרך ממילא הוא מתנהג כמלך).
+וזהו הענין ד"כתר מלכות" שזכה בו דוד, "לו ולבניו הזכרים עד עולם" — לא רק שהם ימלכו בפועל, אלא שהם יהיו מלכים בעצם. והוא "עיקר המלכות" השייך לזרע דוד בלבד, כי אינו רק הנהגת המלוכה, אלא ההתנשאות שבנפש, שניתן בדוד וזרעו עד עולם.
+ועפ"ז מובן קשר הדברים ברמב"ם, שבהמשך לדיני ירושת המלכות (ושאר שררות ומינויין שבישראל), כותב ע"ד ירושת מלכות בית דוד, ומדייק שהיא באופן ש"לא תכרת המלוכה מזרע דוד לעולם" — שאין זו הבטחה צדדית, אלא ענין המוכרח מצד עצם גדר דמלכות בית דוד:
+כאשר המלוכה היא רק באופן של מינוי למילוי תפקיד, הרי זה דבר נוסף על מציאות האדם, ובמילא שייך בזה הפסק; משא"כ במלכות בית דוד, ה"ז שהם מלכים בעצם, זה נעשה מהותם ועיקרם, שכח המלוכה וההתנשאות מוטבע בעצם נפשם, ובמילא אין שייך בזה הפסק, והוא עובר בדרך ממילא מאב לבנו.
+ה. ע"פ כל הנ"ל מובן, שיש חילוק יסודי בגדר ירושת המלכות בין מלכי בית דוד ושאר מלכים (וכן כל השררות והמינויין) שבישראל:
+בשאר מלכים שאינו אלא ירושת תפקיד ה"ז דומה לכל ירושת נחלה, שהמוריש יש לו "בעלות" על תפקיד פלוני (ע"ד שאר רכושו ונכסיו שהוא הבעלים עליהם), שהוא מוריש לבניו (וכהדגשת הרמב"ם כאן[ftnref\_845\_41] "כל הקודם בנחלה קודם לירושת המלוכה");
+משא"כ אצל מלכות בית דוד אין זו כמו ירושת נכס, אלא הוא ענין הבא בדרך ממילא, שע"י ש"זכה דוד בכתר מלכות", "הרי המלכות לו ולבניו הזכרים עד עולם", שבדרך ממילא נטבע בהם כח המלוכה עד עולם.
+[ועפ"ז י"ל, דמ"ש הרמב"ם[ftnref\_845\_41] בנוגע למלכי בית דוד "ולא זכה אלא לכשרים" אינו ענין לתנאי ירושת המלכות
+
+## 101
+
+שכתב לפנ"ז "והוא שיהי' הבן ממלא מקום אבותיו בחכמה וביראה" — אלא הם שני דברים שונים: התנאי ד"ממלא מקום אבותיו בחכמה וביראה" נוגע לירושת תפקיד המלוכה, דרק מי שיש בו חכמה ויראה יכול להנהיג המלוכה כראוי; אבל כוונת הרמב"ם "ולא זכה אלא לכשרים" היא לענין ירושת "כתר מלכות", שכח המלוכה המיוחד למלכי בית דוד אינו עובר אלא לזרעו הכשרים, ולא לזרעו שאינם כשרים, שהם אינם זוכים בכתר מלכות ("שלא זכה אלא לכשרים")].
+ו. והנה ע"פ הנ"ל נחתינן לעוד הפרש יסודי בין מלכי ישראל ומלכי בית דוד — בנוגע למצב הבן בחיי האב:
+אצל שאר מלכים (וכל השררות) שגדר מלכותם אינו אלא התפקיד דמלוכה, מובן, שכל זמן שהאב חי וקיים, א"א שיחול על הבן שום גדר של מלכות (כ"ז שאביו עדיין מולך), כי תפקיד המלוכה לא יתכן אלא לאחד. וגם אם הוא בן הראוי למלא מקום אבותיו — הרי כל זמן שאביו מולך אין להבן כלום בענין המלכות (כמו בירושת נכסים, שכ"ז שהמוריש בחיים אין להבן שום בעלות על נכסי האב), והוא רק בגדר ראוי ליורשו[ftnref\_847\_42].
+משא"כ אצל מלכי בית דוד, כיון שיש אצלם כתר מלכות, שכח המלוכה מוטבע בעצם נפשם, הרי זהו ענין הקיים גם בחיי אביו[ftnref\_848\_43].
+ועפ"ז י"ל שזו היתה פעולתו של דוד בהמליכו את שלמה בחייו:
+אע"פ שזכה שלמה בכתר מלכות תיכף משנולד, להיותו זרע כשר, והי' לו כח המלוכה בעצם, מ"מ, כל זמן שדוד הי' בחיים ומלך בפועל, הרי כח המלוכה של שלמה הוא רק "בכח" ולא "בפועל", כי אין הכרח שימלוך בפועל [דלא מיבעי אצל שלמה שהיו לו עוד אחים ואין וודאות שהוא יהי' המלך, אלא גם אם הי' מדובר בבן יחיד, הרי אפשר שימות בן בחיי האב ולעולם לא ימלוך בפועל];
+אבל על ידי בחירת דוד בשלמה בנו וציוויו למושחו, חל עי"ז על שלמה שם מלך, היינו לא רק שעתיד הוא לירש את המלוכה מדוד, אלא יש עליו שם מלך בפועל (כיון שזכה ב"כתר מלכות").
+ואין זו סתירה להכלל שאין שני מלכים משתמשים בכתר אחד — כי הדיוק בזה הוא "משתמשים בכתר אחד", דהיינו הנהגת המלוכה בפועל, שזה אינו שייך להיות על ידי שנים בבת אחת (ובפרט שאין דיעותיהן שוות וכו'[ftnref\_849\_44]), ואין מלכות אחת נוגעת בחברתה אפילו כמלא נימא; אבל עצם שם מלך, שתלוי ב"כתר מלכות" וכח המלוכה שניתן לדוד ולזרעו עד עולם, אפשר לחול על שנים בזמן אחד.
+[ובעומק יותר יש לומר, ש"שם מלך" החל על שלמה אינו בסתירה לשם מלך דדוד — כי היינו הך, ד"כתר מלכות" של שלמה אינו אלא "כתר מלכות" של דוד (וכן בכל מלכי בית דוד, ש"כתר מלכות"
+
+## 102
+
+שלהם הוא אותו הכתר, וכמרומז בחז"ל[ftnref\_850\_45] שהסימן למלכי בית דוד הוא שכתר דוד "הולמתו"), כי כתר מלכות של מלכי בית דוד הוא עצם אחד, וי"ל שהוא עצם כח המלוכה, שלמעלה מהתחלקות].
+וכן בעניננו, שהנהגת המלוכה היתה בפועל (רק) על ידי דוד[ftnref\_851\_46] (ואם מצינו ענינים של הנהגת המלכות אצל שלמה בחיי דוד, אין זה אלא בשליחותו של דוד אביו[ftnref\_852\_47], ולא כמלכות נפרדת)[ftnref\_853\_\*47]; אבל מ"מ חל שם מלך על שלמה בחיי דוד (לאחרי שנמשח[ftnref\_854\_48]), כיון שיש אצלו "כתר מלכות".
+ז. ויש להוסיף ביאור בזה שמצינו ענין כזה — מלך בחיי האב (כשלא נפקע המלכות מן האב) — רק אצל דוד ושלמה:
+ידועים דברי הרמב"ם[ftnref\_855\_49] "אין מלך למי שמאמין תורת משה רבינו אלא מזרע דוד ומזרע שלמה דוקא" (והוא בכלל העיקר הי"ב מהי"ג עיקרים[ftnref\_856\_50]). ובזה מתורץ לשון הגמ'[ftnref\_857\_51] "דוד ושלמה שנמשחו בקרן נמשכה מלכותן", דלכאורה איך מתאים להוסיף "ושלמה" (כאילו זוהי מלכות נפרדת), והרי מלכות שלמה היתה ירושה דמלכות דוד (ומשיחת שלמה היתה רק "לסלק המחלוקת" מפני אדוני')? אלא משום שמלכות שלמה (ומשיחתו) יש בה גם התחלת ענין חדש, כי הנצחיות דמלכות בית דוד "עד עולם" נפעלת דוקא ע"י דוד ושלמה יחד[ftnref\_858\_52].
+ועפ"ז יש לומר, שמטעם זה היו שניהם מלכים בזמן אחד[ftnref\_859\_53], כי בזמן זה בא לידי ביטוי ענין זה שבמלכותם, שבגלל שניהם היא מלכות נצחית.
+[quotation](משיחות י"ב וט"ו תמוז תשמ"ה) [/quotation]
+
+**English:**
+
+## Sicha 3
+
+1. The Haftorah of our Parsha (at the beginning of the Book of Melachim) recounts the sequence of events that led to David’s oath to Batsheva: "As I swore to you by Hashem, the G-d of Israel, saying: 'Surely Shlomo your son shall reign after me, and he shall sit upon my throne in my stead,' so will I do this day."
+
+The subsequent verses relate that David commanded Tzadok the Kohen, Natan the prophet, and Benayahu ben Yehoyada to mount "Shlomo my son on my own mule" ("a sign to him that he would reign, and the beginning of his greatness, for a commoner does not ride on the king’s mule"), "and Tzadok the Kohen and Natan the prophet anointed him there as king over Israel... and you shall say, 'Long live King Shlomo!'" This was indeed carried out during David’s lifetime, as the verses continue to describe how Yonatan ben Evyatar the Kohen told Adoniyahu that Shlomo had been made king, "and also Shlomo sits on the throne of the kingdom," and "also thus said the king: 'Blessed be Hashem, the G-d of Israel, who has given one to sit on my throne this day, and my eyes see it.'" Adoniyahu feared King Shlomo and grasped the horns of the altar, lest Shlomo kill him for rebelling against his kingdom.
+
+From this, it is evident that when David said, "so will I do this day," he meant (not merely a promise that Shlomo would reign after David’s passing, but) that Shlomo was crowned king during David’s lifetime.
+
+This requires clarification: a) The Ribono shel Olam said to David, "The kingdom of your son Shlomo has already arrived, and one kingdom does not encroach upon another, not even by a hairbreadth," which implies that Shlomo’s kingdom did not begin until after David’s passing. b) Furthermore, it is generally impossible for two kings to utilize one crown (as the saying goes, "There is only one leader for a generation," etc.), as mentioned above, that "one kingdom does not encroach upon another, not even by a hairbreadth."
+
+We do find instances where kings reigned during their fathers' lifetimes (such as Yehoshafat, who made Yehoram king during his own lifetime for two years, Achazyahu, who reigned during the lifetime of his father Yehoram, Uziyahu in the days of his father Amatzyahu, and others similar to this). However, in those cases, the kingdom passed from father to son, and the father’s reign was nullified.
+
+***
+
+One might suggest something similar regarding the beginning of the Davidic dynasty, in the kingdom of Shlomo and David—that both were kings, but in the manner of a "Caesar and a sub-Caesar." But this is also forced, as it is obvious that these two "kings" were not equal in the strength of their sovereignty. As the Gemara phrases it, "sub-Caesar" (half-Caesar) is "secondary to him," and we do not find that at that time, either one of them (David or Shlomo) was in the status of "secondary to him."
+
+3. We can explain this by first clarifying the Rambam’s words regarding the inheritance of the kingdom. He writes: "Once a king is anointed, he acquires it for himself and his sons forever, for the kingdom is an inheritance, as it is stated: 'In order that he may prolong his days in his kingdom, he and his sons in the midst of Israel.'... And not only the kingdom, but all positions of authority and all appointments in Israel are an inheritance for his son and his son’s son forever, provided that the son fills his father’s place in wisdom and fear [of Hashem]." The Rambam then continues regarding the Davidic dynasty: "Once David was anointed, he acquired the crown of kingdom, and the kingdom belongs to him and his male descendants forever, as it is stated: 'Your throne shall be established forever.' And he only acquired it for the righteous, etc. Even though he only acquired it for the righteous, the kingdom shall never be cut off from the seed of David, for the Ribono shel Olam promised him this, etc."
+
+Seemingly, the Rambam’s words require explanation: What is he teaching us by elaborating on the kingdom of David—"Once David was anointed, he acquired the crown of kingdom, and the kingdom belongs to him and his male descendants forever... and he only acquired it for the righteous, etc."—when these are the very same things he wrote earlier regarding every king (and not only the kingdom, but all authority and appointments in Israel)? What is the novelty regarding King David compared to other kings?
+
+On the face of it, one could say that although "the kingdom is an inheritance," it is still possible for the kingdom to cease from his seed if he does not have a son worthy of filling his father’s place in wisdom and fear. This is the novelty of the Davidic dynasty: the Ribono shel Olam promised that "the kingdom shall never be cut off from the seed of David forever." This is not the case for other kings (and other positions of authority), where, although it is an inheritance, there is no necessity or promise that it will not cease from his seed.
+
+However, it is difficult to say that this alone is the Rambam’s intent, for the Rambam writes the essence of this matter later in the chapter: "The kings of the Davidic dynasty are those who stand forever, as it is stated, 'Your throne shall be established forever.' But if a king arises from the rest of Israel, the kingdom will cease from his house." Why, then, did he repeat his words regarding this promise to David, that his kingdom would be established forever?
+
+Furthermore: from the fact that the Rambam included the matter of "the kingdom shall never be cut off from the seed of David forever" with the specific laws of the inheritance of the kingdom, it implies that this is not a peripheral matter (that the Ribono shel Olam promised that his kingdom would actually stand forever), but rather that it relates to the very definition of the inheritance of the kingdom for the kings of the Davidic dynasty. This means there is a fundamental difference between the inheritance of the Davidic kingdom and the inheritance of the kingdom for other kings (and other matters of authority and appointments in Israel).
+
+This has been explained elsewhere based on the precision of the Rambam’s language: "Once David was anointed, he acquired the **crown of kingdom**, and the kingdom belongs to him and his male descendants forever." This means that David acquired not only "kingdom" but a "crown of kingdom," and a "crown of kingdom" is found only among the kings of the Davidic dynasty. Similarly, the Rambam writes later: "A prophet who appointed a king from the other tribes of Israel, etc., he is a king, and all the mitzvos of the kingdom apply to him, even though the **essence of the kingdom** belongs to David, etc." Thus, even though all the laws of a king apply to a king from the other tribes of Israel, he does not possess the "essence of the kingdom," which belongs to the seed of David alone.
+
+Therefore, the Rambam writes in *Sefer HaMitzvos* that any king who is not from "this honored seed, regarding the kingdom, we call him a stranger, just as any seed other than the seed of Aharon is called a stranger regarding the *avodah*." This is because the Davidic kingdom is a different *cheftza* (entity) in the matter of sovereignty.
+
+4. The explanation for this is:
+The matter of kingdom can exist in two ways: a) The function of kingdom, which consists of the actions and conduct of the kingdom (in the language of the verse, "who goes out... and who comes in before them," and the details explained by Shmuel the prophet). b) A king *be'etzem* (in essence), meaning that he is a person who is inherently exalted (and he conducts himself as a king as a matter of course).
+
+This is the concept of the "crown of kingdom" that David acquired, "for him and his male descendants forever"—not only that they will reign in practice, but that they will be kings *be'etzem*. This is the "essence of the kingdom" that belongs to the seed of David alone, because it is not merely the conduct of the kingdom, but the exaltation within the soul, which was granted to David and his seed forever.
+
+Based on this, the connection of the matters in the Rambam is understood: following the laws of the inheritance of the kingdom (and other authorities and appointments in Israel), he writes about the inheritance of the Davidic kingdom and emphasizes that it is in a manner where "the kingdom shall never be cut off from the seed of David forever." This is not a peripheral promise, but a matter necessitated by the very definition of the Davidic kingdom:
+When the kingdom is only a matter of an appointment to fulfill a function, it is something external to the person’s existence, and consequently, a cessation is possible. This is not the case with the Davidic kingdom; since they are kings *be'etzem*, it becomes their essence and core. The power of kingdom and exaltation is imprinted in the very essence of their souls, and consequently, a cessation is not possible, and it passes from father to son as a matter of course.
+
+5. Based on all the above, it is understood that there is a fundamental difference in the definition of the inheritance of the kingdom between the kings of the Davidic dynasty and other kings (as well as all authorities and appointments) in Israel:
+Regarding other kings, where it is nothing more than the inheritance of a function, it is similar to any inheritance of property, where the bequeather has "ownership" over a certain function (similar to his other possessions and assets over which he is the owner), which he bequeaths to his sons (as the Rambam emphasizes here, "Whoever has priority in inheritance has priority in the inheritance of the kingdom").
+This is not the case with the Davidic kingdom; it is not like the inheritance of assets, but rather a matter that comes about as a matter of course. Because "David acquired the crown of kingdom," "the kingdom belongs to him and his male descendants forever," such that the power of kingdom is imprinted in them as a matter of course forever.
+
+[Based on this, one can say that what the Rambam writes regarding the kings of the Davidic dynasty, "and he only acquired it for the righteous," is not related to the condition for the inheritance of the kingdom that he wrote previously, "provided that the son fills his father’s place in wisdom and fear." Rather, these are two different things: the condition of "filling his father’s place in wisdom and fear" relates to the inheritance of the *function* of the kingdom, as only one who possesses wisdom and fear can lead the kingdom properly. However, the Rambam’s intent in "and he only acquired it for the righteous" relates to the inheritance of the "crown of kingdom," meaning that the power of kingdom unique to the kings of the Davidic dynasty only passes to his righteous descendants, and not to his descendants who are not righteous, for they do not acquire the crown of kingdom ("for he only acquired it for the righteous").]
+
+6. Now, based on the above, we arrive at another fundamental difference between the kings of Israel and the kings of the Davidic dynasty—regarding the status of the son during the father’s lifetime:
+Regarding other kings (and all authorities), where the definition of their kingdom is nothing but the function of kingdom, it is understood that as long as the father is alive and existing, it is impossible for any definition of kingdom to apply to the son (as long as his father is still reigning), because the function of kingdom cannot exist for two simultaneously. Even if he is a son worthy of filling his father’s place, as long as his father is reigning, the son has nothing in the matter of the kingdom (similar to the inheritance of assets, where as long as the bequeather is alive, the son has no ownership over the father’s assets), and he is only in the category of being "fit" to inherit him.
+
+This is not the case with the kings of the Davidic dynasty. Since they possess a "crown of kingdom," where the power of kingdom is imprinted in the very essence of their souls, this is a matter that exists even during his father’s lifetime.
+
+Based on this, it can be said that this was the purpose of David’s action in making Shlomo king during his lifetime:
+Although Shlomo acquired the "crown of kingdom" immediately upon his birth, by virtue of being a righteous descendant, and he possessed the power of kingdom *be'etzem*, nevertheless, as long as David was alive and reigning in practice, Shlomo’s power of kingdom was only "in potential" and not "in actuality," because there is no necessity that he will reign in practice [this is not only true for Shlomo, who had other brothers and there was no certainty that he would be the king, but even if it were an only son, it is possible that the son would die during the father’s lifetime and never reign in practice].
+However, through David’s choice of his son Shlomo and his command to anoint him, the title of "king" was applied to Shlomo. This means not only that he was destined to inherit the kingdom from David, but that he possessed the title of king in actuality (since he had acquired the "crown of kingdom").
+
+This does not contradict the rule that two kings do not use one crown, for the precision in that rule is "using one crown," meaning the conduct of the kingdom in practice, which cannot be done by two simultaneously (especially since their opinions are not identical, etc.), and one kingdom does not encroach upon another, not even by a hairbreadth. But the essence of the title "king," which depends on the "crown of kingdom" and the power of kingdom granted to David and his seed forever, can apply to two at one time.
+
+[In a deeper sense, one can say that the "title of king" that applied to Shlomo does not contradict the title of king of David—because they are one and the same. Shlomo’s "crown of kingdom" is nothing other than David’s "crown of kingdom" (and this is true for all kings of the Davidic dynasty, that their "crown of kingdom" is the same crown, as hinted at by Chazal that the sign of the kings of the Davidic dynasty is that David’s crown "fits him"), for the crown of kingdom of the kings of the Davidic dynasty is one essence. It can be said that this is the essence of the power of kingdom, which is above division.]
+
+Thus, in our case, the conduct of the kingdom was (only) in practice through David (and if we find matters of the conduct of the kingdom with Shlomo during David’s lifetime, it is only as an emissary of his father David, and not as a separate kingdom). Nevertheless, the title of king applied to Shlomo during David’s lifetime (after he was anointed), since he possessed the "crown of kingdom."
+
+7. We should add an explanation as to why we find such a phenomenon—a king during the father’s lifetime (when the kingdom has not been vacated by the father)—only with David and Shlomo:
+The words of the Rambam are well known: "There is no king for one who believes in the Torah of Moshe Rabbeinu except from the seed of David and from the seed of Shlomo specifically" (and this is included in the twelfth of the thirteen principles). This resolves the language of the Gemara: "David and Shlomo, who were anointed with the horn, their kingdom was extended." Seemingly, how is it appropriate to add "and Shlomo" (as if this is a separate kingdom), when Shlomo’s kingdom was an inheritance of David’s kingdom (and Shlomo’s anointing was only "to remove the dispute" caused by Adoniyahu)? Rather, it is because Shlomo’s kingdom (and his anointing) also contains the beginning of a new matter, for the eternity of the Davidic kingdom "forever" is brought about specifically by David and Shlomo together.
+
+Based on this, it can be said that for this reason, both were kings at the same time, because at that time, this aspect of their kingdom was expressed—that because of both of them, it is an eternal kingdom.
+
+(From the *Sichos* of 12 and 15 Tammuz, 5745)
+
+---
+
+
+## תולדות
+
+_Section: תולדות_
+
+**Hebrew:**
+
+## שיחה א
+
+## 102
+
+### שיחה א
+
+א. ואלה תולדות יצחק בן אברהם אברהם הוליד את יצחק. וביארו חז"ל[ftnref\_860\_1] שכפל לשון הכתוב בא ללמדנו, שנוסף על שהי' "יצחק בן אברהם", הי' מודגש אשר "אברהם הוליד את יצחק", כי הי' דומה לאברהם בקלסתר פניו — "לפי[ftnref\_861\_2] שהיו ליצני הדור אומרים מאבימלך נת­עברה שרה. . הקב"ה צר קלסתר פניו של יצחק דומה לאברהם".
+וכבר הקשו במפרשים[ftnref\_862\_3]: ענין זה, ביטול דברי ליצני הדור "מאבימלך נת­עברה שרה", הי' מתאים להשמיענו ב­סמיכות לסיפור לידת יצחק[ftnref\_863\_4] — ולמה חיכה הכתוב עד עתה — פרשת תולדות — לבטל אמירה זו?
+ומשמע, דעם היות שסיבת יצירת "קלסתר פניו של יצחק דומה לאברהם" היתה כדי לבטל דברי ליצני הדור — זה נוגע (גם) לענין עקרי ולענין הקיים גם לאחרי ביטול דבריהם — נוגע לעצם ענינו ועבודתו של יצחק.
+ולכן בא ענין זה דוקא ב(תחילת) פ' תולדות, לפי שעיקרה של פרשה זו — "אלה" — הוא סיפור "תולדות יצחק", קורותיו של יצחק[ftnref\_864\_5]
+(בפ' חיי שרה המדובר הוא בהמשך לעניניו של אברהם; מפ' ויצא מתחיל הסיפור ע"ד יעקב; ובפרשת תולדות הוא סיפור קורותיו של יצחק, ועד ש­אחד מהפירושים ב"ואלה תולדות יצחק" הוא — "ילדי ימיו וקורותיו"[ftnref\_865\_6])
+וזוהי הדגשת הכתוב, שבסיפור עניניו של יצחק ("תולדות יצחק") נוגע לדעת ש"אברהם הוליד את יצחק", שיצחק "דומה" לאברהם.
+ב. בנוגע לענינו ועבודתו של יצחק מצינו דבר והיפוכו:
+ידוע שמדתו של יצחק היא מדת היראה, "ופחד יצחק"[ftnref\_866\_7]. שזהו ההפרש בין עבודתו של אברהם לשל יצחק: עבודת אברהם היא במדת האהבה והחסד, "אברהם אוהבי"[ftnref\_867\_8], ושל יצחק — במדת ה­יראה והפחד.
+אמנם לאידך — כמה ענינים ביצחק מורים על קשר ושייכות למדת האהבה והחסד:
+א) תחלתו, (זמן) לידתו: אמרו חז"ל[ftnref\_868\_9] "בפסח נולד יצחק", וידוע[ftnref\_869\_10] אשר שלש
+
+## 103
+
+הרגלים הם כנגד הג' אבות — פסח כנגד אברהם, שבועות כנגד יצחק וסוכות כנגד יעקב. ונמצא, שלידת יצחק היתה ברגל שכנגד אברהם. ומובן בפשטות שאין זה במקרה, אלא מפני שכן הוא הדבר מצד תוכן ענינה של לידת יצחק, דמכיון שמציאותו של יצחק "דומה" ל­אברהם (אהבה וחסד), לכן גם לידתו (כפשוטה) היתה ב"רגל" דאברהם[ftnref\_870\_11].
+ב) שמו: "יצחק" הוא מלשון "צחוק"[ftnref\_871\_12] — ע"ש "צחוק עשה לי אלקים"[ftnref\_872\_13], ענין של שמחה[ftnref\_873\_14]. והרי שמחה היא תנועה הפכית ממדת היראה והפחד[ftnref\_874\_15] — ואעפ"כ נקרא יצחק בשם המורה על שמחה.
+ג) כללות ענינו — ויגדל האיש גו' עד כי גדל מאד[ftnref\_875\_16] — תכלית החסד והגדלות.
+ד) וארבה את זרעו (ע"י אשר) ואתן לו את יצחק[ftnref\_876\_17].
+ועוד.
+ג. לכאורה הי' אפשר לבאר זה ע"פ הידוע[ftnref\_877\_18], דזה שהעבודות של אברהם ו­יצחק היו בשני קוים שונים וגם הפכיים — הכוונה בזה שעיקר עבודתו של אבר­הם היתה במדת החסד, אבל לא שהיתה מוגבלת רק בה אלא היתה כלולה גם ממדת הגבורה והיראה, וכמפורש אצל אברהם[ftnref\_878\_19] — "עתה ידעתי כי ירא אלקים אתה"; וכמו כן הוא ביצחק, שעבודתו היתה כלולה גם ממדת החסד, אלא שעבודתו העיקרית היתה במדת היראה.
+ועפ"ז יש לפרש[ftnref\_879\_20] דזה שאמר הכתוב "אברהם הוליד את יצחק", שהקב"ה "צר קלסתר פניו של יצחק דומה לאברהם" — הכוונה בזה לא רק לתואר פניו ה­גשמי, כ"א גם ל"קלסתר פניו" הרוחני, כלומר — מדתו ועבודתו, ובא ללמדנו כי בעבודתו של יצחק ישנה עבודת ה­אהבה (דאברהם).
+אמנם, לכאורה אין זה ביאור מספיק, כי מאחר ששמו של יצחק בפי כל ותמיד הוא ע"ש השמחה דוקא, עכצ"ל שזהו עיקר ענינו של יצחק[ftnref\_880\_21].
+זאת ועוד: ידוע[ftnref\_881\_22] החילוק בין גילה ושמחה — דגילה מורה על רגש של שמ­חה שאינו באופן גלוי כ"כ [שלכן יכולה להיות ה"גילה" ביחד עם היראה ורעדה, וכמו שנאמר[ftnref\_882\_23] "עבדו את ה' ביראה וגילו ברעדה"], משא"כ שמחה היא —
+
+## 106
+
+שכנגד אברהם) — מאחר שענינה של עבודת יצחק במדת היראה היא התקר­בות להקב"ה; אלא שמכיון שהיא התקר­בות בלתי מוגבלת (שלמעלה ממציאות הנבראים) הרי היא באה ע"י היראה וה­ביטול דוקא[ftnref\_897\_38].
+וענין זה, שעבודתו הרוחנית של יצחק היא שמחה ופתיחת הלב, המורה על תנועה של הרחבה, בא לידי ביטוי גם בחייו דנשמה בגוף, ועד לגשמיות ה­גוף, שמצינו ביצחק במיוחד הרחבה (גם) בגשמיות כפשוטה — ובזה מדובר ברוב הסדרה:
+תחילת הסיפור (אודות יצחק עצמו) היא ציווי השם אליו "אל תרד מצרימה גו' גור בארץ הזאת גו'"[ftnref\_898\_39] שאינו אצל אברהם ויעקב, וטעם הדבר — מפני "ש­אתה (דוקא) עולה תמימה"[ftnref\_899\_40], דוקא יצחק נתקדש בקדושה כזו שבגללה "אין חוצה לארץ כדאי לך"[ftnref\_900\_41] (בהתאם להנת"ל שע"י היראה וביטול של יצחק נעשה כלי לה­קדושה שלמעלה מן העולם).
+ועי"ז נמשך בו ריבוי ברכות השם, ו­כהמשך הסיפור ע"ד הברכות שזכה בהן יצחק בהיותו בגרר, עד שכנ"ל "ויגדל האיש וילך הלוך וגדל עד כי גדל מאד"[ftnref\_901\_42], גדלות שלמעלה ממדידה ו­הגבלה;
+אח"כ בא הסיפור אודות הבארות ש­חפר יצחק, שסיומו וחותמו — "ויקרא שמה רחובות גו' כי עתה הרחיב ה' לנו ופרינו בארץ"[ftnref\_902\_43], רחבות דקדושה;
+ואח"כ[ftnref\_903\_44] — אריכות הסיפור בנוגע לברכות יצחק, שהן ברכות נעלות ביותר ש"לא מצינו ענין ברכות כאלה לא באב­רהם ולא ביעקב"[ftnref\_904\_45], עד שאפילו ברכות משה אינן כברכות יצחק[ftnref\_904\_45] — כי דוקא על ידי מדת היראה והביטול דיצחק נמשכת הרחבה, תגבורת החיות (והשפע) שלמעלה ממדידה והגבלה.
+ח. הסברת השייכות בין מדת היראה דיצחק לענין ה"הרחבה" בעומק יותר י"ל:
+אמרו חז"ל[ftnref\_906\_46] האבות הן הן המרכבה, כי כמו שהמרכבה בטלה לגבי הרוכב המנהיג את המרכבה כרצונו, כן הוא אצל האבות, שכל עניניהם ועשיותיהם היו "מונהגים" מרצון העליון.
+וכן הוא בנוגע למדות האבות — זה בחסד וזה בגבורה כו' — שאין כוונת הדברים שסיבת ומקור מדתם זו מפני שכן הי' טבע נפשם, אלא מפני שהיו "מרכבה" למדה זו שלמעלה[ftnref\_907\_47]: אברהם הי' מרכבה למדת החסד דלמעלה וב­התאם למדה זו היתה כל הנהגתו, ולכן היתה (עיקר) עבודתו במדת האהבה;
+
+## 107
+
+ועד"ז ביצחק שהי' מרכבה למדת ה­גבורה דלמעלה, ולכן היתה (עיקר) עבו­דתו במדת היראה.
+ט. והנה בנוגע למדת הגבורה של­מעלה מבואר[ftnref\_908\_48], שבשרשה ומקורה אין ענינה — דין וצמצום (מניעת ההשפעה), אלא אדרבה, גבורה מלשון תגבורת, תג­בורת החיות (ע"ד גבורות גשמים[ftnref\_909\_49]).
+וההפרש בין מדת החסד למדת ה­גבורה הוא, שמדת החסד, מכיון שענינה השפעה אל הזולת, לכן על ידה באה ה­השפעה באופן שיוכל המקבל לקבלה[ftnref\_910\_50]; משא"כ מדת הגבורה היא השפעה בהת­גברות רבה (השפעה שלפי ערך ה"מש­פיע") [אלא שמזה נמשך ונשתלשל אח"כ ענין הצמצום והגבורה (מניעת השפע) כפשוטה, בפרט כשהמקבל אין ביכלתו להכיל שפע רב כזה].
+ונמצא, שלא זו בלבד שענין הגבורה והדין שלמעלה אינו בשביל הדין עצמו ח"ו, וכל מטרת הדין הוא רק חסד [כ­ידוע[ftnref\_911\_51] בענין עונשי התורה, שאין מטר­תם העונש עצמו ח"ו, אלא כדי למרק ולזכך את האדם עד שיתכפר לו החטא, שלכן כל התורה — כולל עניני העונש שבה — נקראת "תורת חסד"[ftnref\_912\_52]] — אלא עוד זאת, שעצם מדת הגבורה שלמעלה בשרשה ומקורה אינה ענין של דין ומני­עת השפע, אלא אדרבה — תגבורת ה­השפעה דוקא[ftnref\_913\_53].
+י. ומשתי מדותיו יתברך, חסד וגבו­רה, נשתלשלו ונמשכו בהאדם שתי ה­מדות דאהבה ויראה בעבודתו יתברך:
+ממדת החסד דלמעלה, שהיא השפעת חסדו ית' שלפי ערך הנבראים ואשר ב­יכלתם לקבל, נמשך באדם הרגש ה­אהבה, כי כאשר מרגיש חסדו של הקב"ה, הנה כמים הפנים לפנים מתעורר האדם להתקרב אל השם;
+ומדת הגבורה דלמעלה — תגבורת ההשפעה (שלמעלה ממדידה והגבלה של הנבראים) — מעוררת באדם את הרגש היראה והביטול, שעי"ז ביכלתו לקבל גם תגבורת השפע (ע"ד משנת"ל, שהבי­טול ד"ונפשי כעפר לכל תהי'" הוא כלי ל"פתח לבי בתורתך").
+הרי מובן, שאין מדת היראה של יצחק ענין הפכי ממדת האהבה של אברהם — שהרי ענינה ותכליתה של היראה והביטול הוא כדי שתאיר אצלו תגבורת החסד שלמעלה[ftnref\_914\_54], ויתקרב אל השם ביתר שאת ויתר עז[ftnref\_915\_55].
+
+**English:**
+
+## Sicha 1
+
+1. "And these are the generations of Yitzchak, son of Avraham; Avraham begot Yitzchak." Our Sages explained that the Torah’s doubling of the language is intended to teach us that, in addition to the fact that he was "Yitzchak, son of Avraham," it was emphasized that "Avraham begot Yitzchak," because he resembled Avraham in his facial features—"Because the scoffers of the generation were saying that Sarah had conceived from Avimelech... the Holy One, blessed be He, fashioned Yitzchak’s facial features to resemble Avraham."
+
+The commentators have already raised the question : This matter—refuting the words of the scoffers who said "Sarah conceived from Avimelech"—would have been appropriate to state in proximity to the story of Yitzchak’s birth. Why did the Torah wait until now—Parshas Toldos—to refute this claim?
+
+This implies that even though the reason for creating "Yitzchak’s facial features to resemble Avraham" was to refute the words of the scoffers, it pertains (also) to a fundamental matter, one that exists even after their words have been refuted—it pertains to the very essence of Yitzchak’s being and his avodah.
+
+Therefore, this matter appears specifically at the (beginning of) Parshas Toldos, because the essence of this parsha—"And these"—is the story of the "generations of Yitzchak," the life events of Yitzchak.
+
+(In Parshas Chayei Sarah, the discussion is a continuation of the affairs of Avraham; from Parshas Vayeitzei, the story begins regarding Yaakov; and in Parshas Toldos, it is the story of the life events of Yitzchak, to the point that one of the interpretations of "And these are the generations of Yitzchak" is "the offspring of his days and his life events".)
+
+And this is the Torah’s emphasis: that in the story of Yitzchak’s affairs ("the generations of Yitzchak"), it is relevant to know that "Avraham begot Yitzchak," that Yitzchak "resembles" Avraham.
+
+2. Regarding the essence and avodah of Yitzchak, we find a paradox:
+
+It is known that Yitzchak’s attribute is the attribute of yirah, "the Pachad of Yitzchak". This is the difference between the avodah of Avraham and that of Yitzchak: the avodah of Avraham is in the attribute of ahavah and chesed, "Avraham, My lover", and that of Yitzchak—in the attribute of yirah and pachad.
+
+However, on the other hand, several matters in Yitzchak point to a connection and belonging to the attribute of ahavah and chesed:
+
+a) His beginning, the (time of) his birth: Our Sages said, "Yitzchak was born on Pesach," and it is known that the three Regalim correspond to the three Avos—Pesach corresponds to Avraham, Shavuos to Yitzchak, and Sukkos to Yaakov. Thus, Yitzchak’s birth occurred on the Regel that corresponds to Avraham. It is understood simply that this is not by chance, but because that is the reality according to the content of Yitzchak’s birth; since Yitzchak’s existence "resembles" Avraham (ahavah and chesed), therefore his birth (literally) also occurred on the "Regel" of Avraham.
+
+b) His name: "Yitzchak" is from the word "tzchok" (laughter) —on account of "G-d has made laughter for me", a matter of simcha. Yet simcha is a movement opposite to the attribute of yirah and pachad —and nevertheless, Yitzchak is called by a name that indicates simcha.
+
+c) His general state—"And the man grew... until he became very great" —the ultimate of chesed and greatness.
+
+d) "And I multiplied his seed... and I gave him Yitzchak".
+
+And more.
+
+3. Seemingly, one could explain this based on what is known : that the fact that the avodah of Avraham and Yitzchak were in two different, and even opposite, lines means that while the primary avodah of Avraham was in the attribute of chesed, it was not limited only to that, but was also inclusive of the attribute of gevurah and yirah, as is explicit regarding Avraham : "Now I know that you are a G-d-fearing man." Likewise, it is the same with Yitzchak, whose avodah was also inclusive of the attribute of chesed, though his primary avodah was in the attribute of yirah.
+
+Based on this, one can explain that when the Torah says "Avraham begot Yitzchak," and that the Holy One, blessed be He, "fashioned Yitzchak’s facial features to resemble Avraham"—the intention is not only to his physical facial features, but also to his spiritual "facial features," meaning his attribute and his avodah, and it comes to teach us that in Yitzchak’s avodah, there is the avodah of ahavah (of Avraham).
+
+However, seemingly this is not a sufficient explanation, because since Yitzchak’s name is on everyone’s lips and is always associated specifically with simcha, we must conclude that this is the primary essence of Yitzchak.
+
+Furthermore: It is known the distinction between gilah and simcha—that gilah indicates a feeling of joy that is not so overt [which is why "gilah" can exist together with yirah and trembling, as it is said, "Serve Hashem with yirah and rejoice with trembling"], whereas simcha is...
+
+7. (Regarding the Regel that corresponds to Avraham)—since the essence of Yitzchak’s avodah in the attribute of yirah is closeness to the Holy One, blessed be He; but because it is an unlimited closeness (that is above the existence of created beings), it comes specifically through yirah and bitul.
+
+This matter—that Yitzchak’s spiritual avodah is simcha and an opening of the heart, which indicates a movement of expansion—finds expression also in his life of soul within body, and even to the physicality of the body, for we find in Yitzchak a special expansion (also) in physicality in the literal sense—and this is discussed in most of the parsha:
+
+The beginning of the story (about Yitzchak himself) is Hashem’s command to him, "Do not descend to Egypt... dwell in this land...", which is not found with Avraham and Yaakov, and the reason for this is because "you (specifically) are a perfect offering" ; specifically Yitzchak was sanctified with such holiness that because of it, "the outside of the land is not worthy of you" (in accordance with the above, that through Yitzchak’s yirah and bitul, he became a vessel for the holiness that is above the world).
+
+Through this, a multitude of Hashem’s blessings were drawn into him, as the story continues regarding the blessings that Yitzchak merited while he was in Gerar, until, as mentioned, "And the man grew and continued to grow until he became very great", a greatness that is above measurement and limitation.
+
+Afterwards comes the story about the wells that Yitzchak dug, whose conclusion and seal is, "And he called its name Rechovos... for now Hashem has expanded for us and we have been fruitful in the land", a spaciousness of holiness.
+
+And afterwards —the lengthy story regarding Yitzchak’s blessings, which are the most exalted blessings, such that "we do not find such a matter of blessings either in Avraham or in Yaakov", to the point that even the blessings of Moshe are not like the blessings of Yitzchak —because specifically through Yitzchak’s attribute of yirah and bitul, expansion is drawn down, a reinforcement of vitality (and abundance) that is above measurement and limitation.
+
+8. An explanation of the connection between Yitzchak’s attribute of yirah and the matter of "expansion" in greater depth:
+
+Our Sages said that the Avos are the Chariot, because just as a chariot is nullified to the rider who leads the chariot according to his will, so it is with the Avos, that all their affairs and actions were "led" by the Divine Will.
+
+And so it is regarding the attributes of the Avos—this one in chesed and this one in gevurah, etc.—that the meaning is not that the cause and source of their attribute was because that was the nature of their soul, but because they were a "chariot" for that attribute from Above : Avraham was a chariot for the attribute of chesed from Above, and in accordance with this attribute was all his conduct, and therefore his (primary) avodah was in the attribute of ahavah.
+
+Likewise with Yitzchak, who was a chariot for the attribute of gevurah from Above, and therefore his (primary) avodah was in the attribute of yirah.
+
+9. Now, regarding the attribute of gevurah from Above, it is explained that in its root and source, its essence is not din and tzimtzum (withholding of influence), but on the contrary, gevurah is from the word tigbores (strengthening), a strengthening of vitality (similar to "the gevuros of rain").
+
+The difference between the attribute of chesed and the attribute of gevurah is that the attribute of chesed, since its essence is influence to another, therefore through it the influence comes in a way that the recipient can receive it ; whereas the attribute of gevurah is influence in great strength (influence according to the value of the "Influencer") [although from this, the matter of tzimtzum and gevurah (withholding of influence) is subsequently drawn and descends in the literal sense, especially when the recipient does not have the capacity to contain such great abundance].
+
+Thus, not only is the matter of gevurah and din from Above not for the sake of din itself, Heaven forbid, and the entire goal of din is only chesed [as is known regarding the punishments of the Torah, that their goal is not the punishment itself, Heaven forbid, but to cleanse and refine the person until the sin is atoned for, which is why the entire Torah—including the matters of punishment within it—is called "Toras Chesed"]—but furthermore, the very attribute of gevurah from Above in its root and source is not a matter of din and withholding of abundance, but on the contrary—a strengthening of influence specifically.
+
+10. And from His two attributes, chesed and gevurah, two attributes were descended and drawn into man—the attributes of ahavah and yirah in his avodah of Him:
+
+From the attribute of chesed from Above, which is the influence of His chesed that is according to the value of the created beings and which they have the capacity to receive, the feeling of ahavah is drawn into man, for when he feels the chesed of the Holy One, blessed be He, then like water reflecting a face, man is awakened to draw close to Hashem.
+
+And the attribute of gevurah from Above—the strengthening of influence (that is above the measurement and limitation of the created beings)—awakens in man the feeling of yirah and bitul, through which he has the capacity to receive also the strengthening of abundance (similar to what was explained above, that the bitul of "let my soul be as dust to all" is a vessel for "open my heart in Your Torah").
+
+Thus it is understood that Yitzchak’s attribute of yirah is not an opposite matter to Avraham’s attribute of ahavah—for the essence and goal of yirah and bitul is so that the strengthening of the chesed from Above should shine within him, and he should draw close to Hashem with greater intensity and greater strength.
+
+---
+
+_Section: תולדות_
+
+**Hebrew:**
+
+## שיחה ג
+
+## 116
+
+### שיחה ג
+
+א. ברמב"ן על התורה[ftnref\_955\_1] כ' ע"ד ה­בארות דיצחק: "יספר הכתוב ויאריך בענין הבארות ואין בפשוטי הספור תוע­לת ולא כבוד גדול ליצחק, והוא ואביו עשו אותם בשוה, אבל יש בדבר ענין נסתר בתוכו כי בא[ftnref\_956\_2] להודיע דבר ה­עתיד, כי באר מים חיים[ftnref\_957\_3] ירמוז לבית אלקים אשר יעשו בניו של יצחק ולכן הזכיר[ftnref\_957\_3] באר מ"ח כמו שאמר[ftnref\_959\_4] מקור מים חיים את ה', וקרא הראשון עשק ירמוז לבית הראשון. . והשני קרא שמה שטנה. . והוא הבית השני. . והשלישי קרא רחובות הוא הבית העתיד שיבנה במהרה בימינו והוא יעשה בלא ריב ומצה והא­ל ירחיב את גבולנו. . וכתיב בבית ה­שלישי[ftnref\_960\_5] ורחבה ונסבה למעלה למעלה ופרינו[ftnref\_961\_6] בארץ".
+והנה הרמזים ע"ד ג' בתי המקדש אצל האבות מצינו גם במ"א, כדאיתא ב­ספרי[ftnref\_962\_7] (ובמדרש[ftnref\_963\_8]) ש"כן אתה מוצא באב­רהם שראה אותו בנוי וראה אותו חרב וראה אותו. . בנוי ומשוכלל לעת"ל (כמש"נ[ftnref\_964\_9] "ויקרא אברהם שם המקום ה­הוא ה' יראה. . יראה"), וכן אתה מוצא ביצחק שראה אותו בנוי [וראה אותו חרב וראה אותו בנוי] ומשוכלל לעתיד לבוא (כמש"נ[ftnref\_965\_10] "ראה ריח בני כריח שדה אשר ברכו ה'"). . וכן אתה מוצא ביעקב שראה אותו בנוי וראה אותו חרב וראה אותו בנוי ומשוכלל לעולם הבא (כ­מש"נ[ftnref\_966\_11] "מה נורא המקום הזה אין זה כי אם בית אלקים")"[ftnref\_967\_12].
+אולם י"ל שברמז הבארות המבואר ברמב"ן יש חידוש לגבי הראי' דבתי ה­מקדש של האבות המרומזת בכתוב (כדרשת הספרי כו') [בנוסף לעצם הענין, שבפירושו של הרמב"ן מוסבר סיפור ארוך בתורה ש"אין בפשוטי הספור תוע­לת"]:
+א) הרמז שבספרי (ומדרש) משמיענו זה רק באופן כללי "ראה אותו בנוי וחרב ובנוי וכו'", מבלי לפרש ולפרט שראו את ביהמ"ק הא' הב'[ftnref\_968\_13] והג'[ftnref\_969\_14];
+
+## 117
+
+משא"כ ברמז הבארות מפורטים כל ג' בתי המקדש (המרומזים בתוכן שמותיהם של הבארות — עשק, שטנה ורחובות, כמבואר ברמב"ן[ftnref\_970\_15]).
+ב) בספרי (ומדרש) הרמז הוא רק שה­אבות ראו את בתי המקדש, משא"כ בהך דהבארות ה"ז בבחי' "מעשה אבות סימן לבנים"[ftnref\_971\_16], שמעשה יצחק בחפירת ג' ה­בארות הי' סימן וגרם[ftnref\_972\_17] — נתינת כח[ftnref\_973\_18] — לעבודת הבנים, הבנין דג' בתי מקדש.
+ב. ויש לבאר זה ע"פ הידוע שכל מעשי האבות, ובפרט המפורשים בתורה, ה"ה (ככל עניני התורה) בתכלית הדיוק. וא"כ מובן שזה שג' המקדשות נרמזים במעשי אבות גבי יצחק דוקא, אף ש­מצינו (כנ"ל) שכל האבות ראו ביהמ"ק בנוי וחרב ובנוי, הוא לפי שמדובר כאן בענין מיוחד שבביהמ"ק השייך ליצחק דוקא.
+ויש לומר, שענין זה מודגש בזה שב­מעשה יצחק יש רמז פרטי לכל בית מקדש בפ"ע, ולא באופן כללי "בנוי וחרב ובנוי" (כמו בזה שהאבות ראו ה­ביהמ"ק), כי המדובר כאן אינו בענין ה­שווה בכל בתי המקדש אלא בענינם ותוכנם המיוחד של כל אחד מהם, הבא כתוצאה מזה שכל אחד נעשה ונבנה באופן שונה מהשנים, ולכן נרמז דוקא (לא בזה שראו את ביהמ"ק, אלא) ב­מעשה האבות — ובמעשה אבות גופא — בחפירת הבארות דיצחק.
+ג. ויובן זה בהקדם תוס' ביאור בה­שייכות בין בתי המקדש לחפירת בארות דוקא:
+במקוואות מצינו[ftnref\_974\_19] (בכללות) שני אופ­נים: מקוה מים — הנעשה בידי אדם, ומעין שהוא בידי שמים, ואין בו תפיסת ידי אדם.
+בנוגע לבארות הנ"ל מצינו בזה: הם נעשו על ידי חפירת האדם בעבודה ויגיעה, ולאידך — נביעת המים בהבאר (שזהו עיקר ענינו) אינה באה ע"י פעולת האדם, אלא שעל ידי עבודתו בחפירת והסרת העפר פורצים המים הנמצאים תחת האדמה בתוך הבאר[ftnref\_975\_20].
+ולהעיר שזה נוגע להלכה — "ד­בארות העשויים בידי אדם שמים נובעים מהם אף ע"פ שאין מימיהם יוצאין לחוץ
+
+## 118
+
+דין מעין גמור יש לו"[ftnref\_976\_21], כי "אין[ftnref\_977\_22] ב­הווית המים שום תפיסת ידי אדם אלא שחפר בקרקע כדי לגלות המים (אע"ג דע"י אדם נתגלו המים) פשיטא דדין מעיין גמור יש לו"[ftnref\_978\_23].
+וי"ל שאותו הדבר הוא בנוגע לבית המקדש ובנינו: תכליתה של מצות ע­שיית המשכן וביהמ"ק הוא — "ועשו לי מקדש ושכנתי בתוכם"[ftnref\_979\_24] — תוכנם הוא השכינה של הוי' שבהם (שבאה מ­שמיא)[ftnref\_980\_25], ויחד עם זה נצטווינו "ועשו לי מקדש", וצ"ל לפני ה"ושכנתי" עשיית ופעולת האדם — "ועשו"; וי"ל יתירה מזו: חיוב זה של מעשה האדם אינו רק על הבני', והוי (רק) הכנה לקדושה החלה לאחרי זה בדרך ממילא, אלא נצטווינו "ועשו לי מקדש", שגם חלות הקדושה על המשכן והביהמ"ק באה ע"י מעשה בנ"י (כדלקמן) —
+ע"ד חפירת הבארות, שאף שהתהוות עיקר הבאר (המים) הוא בידי שמים[ftnref\_981\_26], מ"מ הכתוב מקשר זה עם פעולת ה­חפירה של האדם[ftnref\_982\_27]. והחפירה עושה ה­בעלות של החופר על המים, "לנו המים"[ftnref\_957\_3].
+ד. ויש לומר, שגדר זה במצות בנין "מקדש" — שבנינו וקדושתו צ"ל ע"י מעשה בנ"י דוקא — נוגע גם להלכה:
+א) פסק הרמב"ם[ftnref\_984\_28] "הכל חייבין לב­נות ולסעד בעצמן ובממונם אנשים ו­נשים כמקדש המדבר". ויש לעיין ב­תוכנו של חיוב זה, שהרי מצות בנין "מקדש" היא מהמצוות שהן חובת הצבור — ולא חובתו של כל איש ואיש[ftnref\_985\_29] — ומה הפירוש ד"הכל חייבין לבנות כו'"? ועוד — ידועה השקו"ט[ftnref\_986\_30] בהא דנשים חייבות
+
+## 119
+
+לבנות ולסעד בעצמם כו' (דכתיב[ftnref\_987\_31] וי­באו האנשים על הנשים וכתיב[ftnref\_988\_32] וכל אשה חכמת לב בידי' טוו[ftnref\_989\_33]) — הרי בנין המקדש הוא מ"ע שהזמן גרמא, ד"אין[ftnref\_990\_34] בונין את המקדש בלילה שנאמר[ftnref\_991\_35] וביום הקים את המשכן, ביום מקימין לא ב­לילה".
+וי"ל שב"הכל חייבין כו'" אין כוונתו של הרמב"ם לומר שזהו חובת גברא, אלא שהוא דין בחפצא דהמקדש, וכעין דין הסמוך באותה ההלכה: "אין מבטלין תינוקות של בית רבן לבנין", דאף ש­כתבו כבר בהל' ת"ת[ftnref\_992\_36], חזר וכפל הדין כאן ללמדנו, דמה שאין מבטלין תינוקות של בית רבן הוא לא רק מחמת חיוב ת"ת שאינה נדחה אפילו בשביל בנין בית המקדש, אלא שזהו דין בבנין ביהמ"ק[ftnref\_993\_\*36], שגם מצד ביהמ"ק אין מקום לבטל תשב"ר לבנין (ובפרט את"ל — שהלימוד של תשב"ר מסייע בקיום בנין הבית) — עד"ז הוא בהדין ד"הכל חייבין לבנות ולסעד בעצמן ובממונם אנשים ונשים", שאינו חובת גברא לקיים מצות ועשו לי מקדש (שעל הציבור), אלא שהוא חיוב מצד המקדש, שגדר בנין ה­מקדש מחייב שבנינו יהי' על ידי הצי­בור "ועשו" עשיית כלל ישראל (ולכן שייך זה לכל ישראל, אנשים ונשים).
+ב) כשם שהוא בנוגע למעשה הבנין, כן הוא גם בשייכות למקום הבנין וצו­רתו וכו', שבזה תלוי' קדושתו — דאף ש"ושכנתי" דהקדושה במקום זה באה משמיא, צ"ל בזה מקודם קיום מצות "ועשו", הכנה ע"י האדם,
+וי"ל שכולל יתרה מזה "שידרוש", יתייגע למצוא את המקום וכו'. וכדאיתא בספרי[ftnref\_994\_37] "יכול תמתין עד שיאמר לך נביא ת"ל לשכנו תדרשו ובאת שמה, דרוש ומוצא[ftnref\_995\_38] ואח"כ יאמר לך הנביא". והיינו לפי שהמכוון והמטרה של הציווי "ועשו לי מקדש" הוא, שהמקדש (לא יהי' מתנת חנם מלמעלה, אלא) יבא ע"י עשי' ויגיעת האדם, באופן של "דרוש"[ftnref\_996\_39] — בדוגמת "באר", שבא ע"י תפיסת ידי אדם באופן של עבודה ויגיעה, חפירת בארות.
+ה. עפ"ז מובן החידוש בבתי המקדש על המשכן שעשה משה במדבר, וכן החילוק בין בתי המקדש עצמם:
+במשכן נאמר[ftnref\_997\_40] "והקמות את המשכן
+
+## 120
+
+כמשפטו אשר הראת בהר", שהקב"ה הראה למשה סדר הקמתו[ftnref\_998\_41]; ונמצא שה­עשי' ("ועשו") שבמשכן לא היתה באופן של "דרוש", כי הקמתו באה ע"י מה ש­(למדו ו)הראהו הקב"ה, ובמילא לא נת­קיים בזה "ועשו" בשלימות — עשי' ב­אופן של יגיעה ו"דרוש" (ע"ד חפירת בארות)[ftnref\_999\_42].
+אבל בבית המקדש הא', אף שנאמר בזה "הכל בכתב מיד ה' עלי השכיל"[ftnref\_1000\_43], הרי בנין הבית נעשה ע"י בנ"א ובריבוי עצום (במספרם ובאריכות הזמן), ועוד זאת — שהבנין נעשה על ידי שלמה ולא על ידי דוד (שאליו היתה הנבואה), וגם בשייכות לדוד שאמר "הכל בכתב מיד ה' עלי השכיל", איתא בספרי שם ב­המשך להדרשה הנ"ל "לשכנו תדרשו. . דרוש ומוצא ואח"כ יאמר לך הנביא" — "וכן אתה מוצא בדוד[ftnref\_1001\_44] זכור ה' לדוד את כל ענותו אשר נשבע לה' נדר ל­אביר יעקב אם אבא באהל ביתי וגו' אם אתן שנת לעיני וגו' עד אמצא מקום לה' משכנות לאביר יעקב", היינו שדוד הש­תדל והתייגע למצוא את מקום המקדש, ורק אח"כ נאמר לו מהנביא (כבהמשך הספרי).
+ויש לומר, שזהו אחד מהטעמים שה­משכן הי' דירת עראי, כמ"ש[ftnref\_1002\_45] "לא ישבתי בבית גו' ואהי' מתהלך באהל וב­משכן", וכלשון הרמב"ם[ftnref\_1003\_46] "וכבר נתפרש בתורה משכן שעשה משה רבינו והי' לפי שעה", משא"כ בית המקדש הי' דירת קבע[ftnref\_1004\_47], וכלשון הרמב"ם[ftnref\_1005\_48] "כיון שנבנה המקדש בירושלים נאסרו כל המקומות כולן כו' ואין שם בית לדורי הדורות אלא בירושלים בלבד ובהר המורי'" — כי ענין הקביעות דמקדש תלוי בעשיית בנ"י, באופן ד"דרוש" — באופן הכשרת הקדושה כנ"ל, ובהבנין גדול מאוד בפו­על, וזה הי' (בעיקר) במקדש לא במשכן.
+ו. והנה בגדר זה דמקדש, פעולת ועשיית האדם, ישנו עילוי במקדש הב' לגבי המקדש הא':
+א) מעשה הבנין לא בא על ידי הת­גלות (ו"הראת" ע"י) ה' (כבמשכן) או על ידי הוראת נביא (כבבית ראשון) כ"א על ידי ציווי של כורש[ftnref\_1006\_49] (וגם הוא השתתף בהבנין[ftnref\_1007\_50]).
+ב) גם צורת הבנין לא היתה ברורה כמו בבית הא', וכמ"ש הרמב"ם[ftnref\_1008\_51] "(בנין שבנה שלמה כבר מפורש במלכים, וכן) בנין העתיד להבנות אע"פ שהוא כתוב ביחזקאל אינו מפורש ומבואר, ואנשי בית שני כשבנו בימי עזרא בנוהו כבנין שלמה ומעין דברים המפורשים ב­יחזקאל"[ftnref\_1009\_52].
+
+## 121
+
+ונמצא, שבבית שני הרי הדרישה ("דרוש ומוצא") של פרטי הבנין היתה יותר מבבית הא' (וי"ל דשם הי' ה"דרוש ומוצא" רק בנוגע למקומו, משא"כ בבית שני) שהוצרכו לדרוש וכו' בנוגע לפרטי הבנין וצורתו[ftnref\_1010\_53].
+וכיון שענין הקביעות במקדש תלוי במעשה ופעולת בנ"י, "ועשו לי מקדש", באופן של עבודה ויגיעה כנ"ל, שזה הי' בבית שני יותר מבית ראשון, לכן גם "גדול יהי' כבוד הבית הזה האחרון מן הראשון"[ftnref\_1011\_54] שהי' גדול בבנין ובשנים[ftnref\_1012\_55], קביעות יותר מבית הראשון.
+ועפ"ז מובן זה שה"סימן לבנים" על ג' בתי המקדש הוא במעשה יצחק דוקא (אף שחפירת בארות היתה לפנ"ז על ידי אברהם, וכמפורש בהכתובים, וכלשון הרמב"ן "הוא ואביו עשו אותם בשוה") — כי עיקר ענין העשי' והיגיעה והעבודה הוא חידושו וענינו של יצחק דוקא, כ­ידוע[ftnref\_1013\_56] שענינם של ג' האבות הם ג' ה­עמודים דתורה עבודה וגמ"ח, אברהם מדתו מדת החסד, יצחק — עבודה, ו­יעקב — תורה, וחסד ותורה הם (בכלל) השפעה מלמעלה, ועבודה היא העלאת והתקרבות האדם לקדושה.
+וי"ל שמטעם זה (כמבואר ברז"ל) ה­בית הא' הוא כנגד אברהם והבית הב' כנגד יצחק[ftnref\_1014\_57], כי עיקר הענין ד"ועשו", עשיית ועבודת האדם, הי' בבית השני[ftnref\_1015\_58] דוקא[ftnref\_1016\_59].
+ז. אמנם צריך להבין:
+איך מתאים משנת"ל, שעיקר ענין הקביעות שבמקדש קשור ותלוי ב"ועשו לי מקדש", מעשה ופעולת האדם דוקא — עם המבואר ברמב"ן שם, שבאר הג' שלא רבו עלי' היא נגד ביהמ"ק השלי­שי, שרק עליו נאמר "ורחבה ונסבה", שיהי' קיים בקיום נצחי (שזוהי אמיתית ושלימות ענין ה"קביעות") — והרי ה­נצחיות של ביהמ"ק הג' היא לפי שהוא (בלשון הזהר[ftnref\_1017\_60]) "בניינא דקוב"ה", וכ­מבואר בבחיי כאן: ומה שהזכיר את ה' בבאר השלישי ולא עשה כן בשתים ה­ראשונות, יתכן לומר טעם מפני שה­ראשונים היו בנין בשר ודם על ידי שלמה וכורש אבל השלישי יהי' מעשה ה' ובנין שמים ולא ישלוט בו חורבן לכך הזכיר בו הש"י.
+והיינו, שביהמ"ק הא' והב', שהם "בנין בשר ודם" ("בניינא דבר נש") אין בהם ענין הנצחיות, ודוקא ביהמ"ק הג' שלא יהי' "בנין בשר ודם" יהי' בו ענין ה­קביעות והנצחיות בשלימות.
+
+## 122
+
+בפשטות הטעם בזה הוא: מכיון ש­אדם יש לו תכלה (ובפרט שמשעה שנו­לד מתחיל להתייבש[ftnref\_1018\_61]), אין מעשי ידיו נצחיים; ומעשה ה', שהקב"ה לא שייך בו שום ענין של שינוי ח"ו, כמ"ש[ftnref\_1019\_62] אני ה' לא שניתי, כן מעשי ידיו הם נצחיים.
+אבל עדיין חסר ביאור: כיצד יתכן, שביהמ"ק הא' והב' שהי' בהם יותר ענין העשי' וקיום מצוה של ישראל ("ועשו לי מקדש") — אין בו עילוי זה (דנצחיות), ובבית הג', שחסר בו לכאורה שלימות קיום מצות "ועשו לי מקדש", יהי' בו עילוי זה?
+ויש לומר הביאור בזה[ftnref\_1020\_63]:
+זה שביהמ"ק הג' "יהי' מעשה ה' ובנין שמים ו(לכן) לא ישלוט בו חורבן" הוא לפי שבא ע"י מעשה ועבודת בנ"י ש­לפנ"ז, במשך (אריכות) זמן הגלות, שזוהי השלימות הנעלית ביותר בענין העשי' ועבודה (וי"ל — עוד למעלה מהעבודה והעשי' שבבנין ביהמ"ק הא' והב'). ולכן דוקא עבודה זו גורמת ומביאה לכך שהמקדש יהי' מעשה ה' הקיים בקיום נצחי.
+וע"ד מחז"ל[ftnref\_1021\_64] (בנוגע לכללות ענין הגאולה העתידה) "זכו — אחישנה", דכאשר עבודת ישראל היא בשלימות, "זכו", אזי באה הגאולה באופן שונה לגמרי, "אחישנה", למעלה מדרך הטבע.
+ועד"ז בנוגע לבנין המקדש דלעתיד — דכיון שבא לאחרי עבודת ישראל במשך אריכות הגלות הזה האחרון[ftnref\_1022\_65], שעי"ז נזדככו בנ"י בזיכוך אחר זיכוך, וכפי שרואים שבנ"י לומדים תורה ומ­קיימים מצוות מתוך מסנ"פ כפשוטה[ftnref\_1023\_66], וגם במקומות שזיכה הקב"ה והצליח ש­אין בהם גזירות על בנ"י, ישנם מניעות ועיכובים מהמלעיגים וצריכים לעמוד בתוקף גדול לא לבוש מפני המלעיגים, ולהתחזק באמונתם ותורתם, גם לעיני העמים — הרי מסירת נפש זו מביאה לידי כך שהקב"ה בעצמו יבנה את ביהמ"ק הג'.
+היינו זה שעשיית האדם ("ועשו") פועלת הקביעות בהמקדש הוא מפני שככל שתגדל עשיית האדם — שורה בזה יותר השכינה[ftnref\_1024\_67].
+ח. וליתר ביאור:
+שלימות עבודת האדם היא כאשר
+
+## 123
+
+עבודתו היא באופן שאינו מחשיב עצמו למציאות בפ"ע, וכל מעשיו הם מעשיו של הקב"ה, ושכינה שורה בשלימותה ב­מעשה ידיו. וע"ד דאיתא בגמ'[ftnref\_1025\_68] "גדולים מעשה צדיקים יותר ממעשה שמים וארץ כו' במעשה ידיהם של צדיקים כתיב[ftnref\_1026\_69] מכון לשבתך פעלת ה' מקדש אדנ­י כוננו ידיך", ופרש"י[ftnref\_1027\_70] "מקדש מעשה ידי צדיקים הוא" — ומ"מ הובא ע"ז הכתוב "מקדש אדנ­י כוננו ידיך", ומבואר בשטה מקובצת[ftnref\_1027\_70] שאי"ז סתירה, כי "מעשה צדיקים קרי מעשיו של הקב"ה"[ftnref\_1029\_71]. די"ל הביאור בזה, שצדיק אינו מציאות בפ"ע ולכן מעשה ידיו של הצדיק הם הם מעשי ידיו של הקב"ה[ftnref\_1030\_72].
+ויש לומר, שענין זה (שמעשה ידיו של האדם (צדיק) נחשבת מעשה ידיו של הקב"ה) הוא בעיקר כאשר עבודת האדם היא כעבודת עבד, שע"פ תורה (תורת אמת) אינו מציאות בפני עצמו, וכל שקנה עבד קנה רבו[ftnref\_1031\_73], עד שכל עבודת העבד נקראת על שם האדון; וכן עבודת העבד — צד השווה בה בכל זמן ובכל מקום (שמזה מוכח שזהו מקורה וכו') היא קבלת עול, לא מפני השגתו במעלת האדון ובתועלת העבודה, או מפני ההרגש בלב אל העבודה, אלא מפני ש­קיבל עליו עול האדון, ועבודתו היא כדי למלאות רצון האדון[ftnref\_1032\_74].
+וזהו החידוש שבבית המקדש הג' לגבי בתי המקדש שלפניו (שלכן דוקא הוא יהי' מעשה ה') — כי אף שגם בבית המקדש הא' והב' הי' עבודה ועשי', מ"מ, כיון שעבודת השם אז היתה מתוך הבנה והשגה עמוקה בגדלות השם, שמביאה לאהבתו ויראתו ית' כו'[ftnref\_1033\_75] ושכל מכסה ומלביש את העצם — הרי היתה העבודה בגלוי עבודה שכליית, מעורבת בזה מציאות האדם (שכלו והרגש לבו), ולכן לא הי' בגלוי "בניינא דקב"ה"; ודוקא על ידי העבודה במשך זמן הגלות, ש­עיקר העבודה היא בדרך קבלת עול מלכות שמים, כעבודת עבד[ftnref\_1034\_76], ה"ז שלי­מות ואמיתית "מעשה צדיקים" שהם מעשה ידיו של הקב"ה, ולכן ה"ז פועל בגילוי שהקב"ה יבנה בית זה, "ה' יבנה בית"[ftnref\_1035\_77].
+ט. פ' תולדות קוראים בכל שנה ב­סמיכות לראש חודש כסלו (בשבת מבר­כים חודש כסלו (כבשנה זו[ftnref\_1036\_\*77]) או בימים ראשונים של החודש) — שסיומו וחותמו של חודש זה הוא ימי חנוכה — וגם בהם רואים תוכן ענין הנ"ל:
+ידועים דברי הרמב"ן[ftnref\_1037\_78] במ"ש הקב"ה לאהרן[ftnref\_1038\_79] "שלך גדולה משלהם שאתה מדליק ומטיב את הנרות", שזה קאי על נרות חנוכה, "שאין בטלים לעולם", ד­
+
+## 124
+
+קרבנות הם רק בזמן שבית המקדש קיים, ואילו נרות חנוכה הם גם בזמן גלותנו.
+והטעם שנרות חנוכה יש בהם ענין הנצחיות, מבואר בכ"מ, משום שנרות אלו באו על ידי מסירת נפשם דבנ"י בז­מן החשמונאים, דאף שמלכות יון "גזרו גזירות על ישראל ובטלו דתם ולא הניחו אותם לעסוק בתורה ובמצות"[ftnref\_1039\_80] מ"מ מסרו ישראל נפשם[ftnref\_1040\_81].
+וכיון שהנרות באו על ידי שלימות עבודת ישראל, מסירת נפש, לכן אין נרות חנוכה בטלים לעולם, שקיימים הם גם בזמן הגלות.
+אלא שבימי חנוכה נפעלה הנצחיות רק בענין נרות המקדש, אבל לאחרי העבודה באריכות גלות זה האחרון, יהי' כן בנוגע לכללות המקדש, שבנין בית השלישי יהי' בתכלית השלימות, באופן שכולו נק' על שם הקב"ה, "ה' יבנה בית", ויהי' בנין נצחי לעולם, "מקדש אדנ­י כוננו ידיך".
+[quotation](משיחות ש"פ חיי שרה תש"ל, תשמ"ז) [/quotation]
+
+**English:**
+
+## Sicha 3
+
+### 116
+
+1. In his commentary on the Torah, the Ramban writes regarding the wells of Yitzchak: "The verse recounts and elaborates on the matter of the wells, and there is no benefit or great honor for Yitzchak in the literal narrative, and he and his father made them equally. However, there is a hidden matter within it, for it comes to inform us of a future event. For the 'well of living water' alludes to the House of Hashem which the children of Yitzchak will build. Therefore, it mentions a 'well of living water,' just as it says, 'The source of living water is Hashem.' He called the first one Esek, which alludes to the First House... and the second he called Sitnah... and it is the Second House... and the third he called Rechovos, which is the future House that will be built speedily in our days, and it will be made without strife or contention, and Hashem will broaden our borders... and it is written regarding the third House, 'And it became wider and wound about upward... and we shall be fruitful in the land.'"
+
+We find this allusion to the three Batei Mikdash through the Patriarchs in other places as well, as it is stated in the Sifri (and in the Midrash): "So you find with Avraham that he saw it built, saw it destroyed, and saw it... built and perfected for the Time to Come (as it is written, 'And Avraham called the name of that place Hashem Yireh... Yireh'). So too you find with Yitzchak that he saw it built [and saw it destroyed and saw it] built and perfected for the Time to Come (as it is written, 'See, the scent of my son is like the scent of a field which Hashem has blessed'). And so too you find with Yaakov that he saw it built, saw it destroyed, and saw it built and perfected for the World to Come (as it is written, 'How awesome is this place; this is none other than the House of Hashem')."
+
+However, it can be said that the allusion of the wells explained by the Ramban contains a novelty compared to the vision of the Batei Mikdash of the Patriarchs alluded to in the verses (as per the teaching of the Sifri, etc.) [in addition to the fundamental point that the Ramban’s commentary explains a lengthy narrative in the Torah for which "there is no benefit in the literal narrative"]:
+
+a) The allusion in the Sifri (and Midrash) informs us of this only in a general way—"he saw it built, destroyed, and built, etc."—without specifying and detailing that they saw the First, Second, and Third Batei Mikdash;
+
+### 117
+
+whereas in the allusion of the wells, all three Batei Mikdash are specified (alluded to in the content of the names of the wells—Esek, Sitnah, and Rechovos, as explained by the Ramban).
+
+b) In the Sifri (and Midrash), the allusion is only that the Patriarchs *saw* the Batei Mikdash. In contrast, regarding the wells, this is in the category of "the deeds of the fathers are a sign for the children," where Yitzchak’s act of digging the three wells was a sign and a cause—a granting of strength—for the avodah of the children, the building of the three Batei Mikdash.
+
+2. This can be explained based on the well-known principle that all the deeds of the Patriarchs, especially those detailed in the Torah, are (like all matters of the Torah) in absolute precision. If so, it is understood that the fact that the three Mikdashos are alluded to in the deeds of the Patriarchs specifically regarding Yitzchak—even though we find (as mentioned above) that all the Patriarchs saw the Beis Hamikdash built, destroyed, and built—is because we are dealing here with a specific aspect of the Beis Hamikdash that pertains to Yitzchak specifically.
+
+It can be said that this matter is emphasized by the fact that in Yitzchak’s deed, there is a specific allusion to each Beis Hamikdash individually, and not in a general way of "built, destroyed, and built" (as in the fact that the Patriarchs saw the Beis Hamikdash). For the discussion here is not about the aspect common to all the Batei Mikdash, but rather about the unique content and essence of each one, which comes as a result of the fact that each one was made and built in a different manner than the others. Therefore, it is alluded to specifically (not in the fact that they saw the Beis Hamikdash, but) in the deeds of the Patriarchs—and within the deeds of the Patriarchs themselves—in the digging of the wells of Yitzchak.
+
+3. This will be understood by first providing further explanation on the connection between the Batei Mikdash and the digging of wells specifically:
+
+Regarding mikvaos, we find (in general) two types: a mikveh of water—which is made by human hands—and a spring, which is from Heaven, and has no human involvement.
+
+Regarding the aforementioned wells, we find the following: they were made through human digging with avodah and toil, and on the other hand—the springing forth of the water in the well (which is its essential purpose) does not come through human action, but rather through his avodah in digging and removing the earth, the water found beneath the ground bursts forth into the well.
+
+It is worth noting that this has halachic implications—"wells made by human hands, if water springs from them, even if their waters do not flow outward,
+
+### 118
+
+have the status of a complete spring," because "there is no human involvement in the existence of the water; rather, he dug in the ground to reveal the water (even though the water was revealed through a person), it is obvious that it has the status of a complete spring."
+
+It can be said that the same is true regarding the Beis Hamikdash and its construction: The purpose of the mitzvah of making the Mishkan and the Beis Hamikdash is—"And they shall make Me a sanctuary, and I will dwell among them"—their content is the Shechinah of Hashem that is within them (which comes from Heaven), and together with this, we were commanded "And they shall make Me a sanctuary." There must be the making and the action of man—"And they shall make"—before the "and I will dwell." It can be said even more: this obligation of human action is not only for the construction, serving (only) as a preparation for the holiness that follows automatically; rather, we were commanded "And they shall make Me a sanctuary," such that even the resting of the holiness upon the Mishkan and the Beis Hamikdash comes through the action of Bnei Yisrael (as follows below)—
+
+Similar to the digging of the wells, where even though the formation of the essence of the well (the water) is from Heaven, nevertheless, the verse links this with the act of digging by man. And the digging creates the ownership of the digger over the water, "The water is ours."
+
+4. It can be said that this definition of the mitzvah of building the "Sanctuary"—that its construction and holiness must be through the action of Bnei Yisrael specifically—has halachic implications:
+
+a) The Rambam rules, "Everyone is obligated to build and support with their own bodies and their own money, men and women, like the Sanctuary in the desert." One must examine the content of this obligation, for the mitzvah of building the "Sanctuary" is one of the mitzvos that is an obligation of the community—not the obligation of every individual—so what is the meaning of "everyone is obligated to build, etc."? Furthermore, the discussion is well-known regarding the fact that women are obligated
+
+### 119
+
+to build and support with their own bodies, etc. (as it is written, "And the men came upon the women," and it is written, "And every woman whose heart stirred her with wisdom spun")—yet the building of the Mikdash is a positive mitzvah that is time-bound, for "one does not build the Mikdash at night, as it is said, 'And on the day he set up the Mishkan,' by day they set it up, not by night."
+
+It can be said that in "everyone is obligated, etc.," the Rambam does not mean to say that this is a personal obligation (*chovas gavra*), but rather that it is a law regarding the object (*cheftza*) of the Mikdash, similar to the law adjacent to it in the same halacha: "One does not cancel the children of the house of the teacher for the building." Even though they already wrote this in the laws of Torah study, he repeated the law here to teach us that the reason one does not cancel the children of the house of the teacher is not only because of the obligation of Torah study, which is not pushed aside even for the building of the Beis Hamikdash, but that this is a law regarding the building of the Beis Hamikdash itself, that even from the perspective of the Beis Hamikdash there is no place to cancel the children for the building (especially if you say that the learning of the children assists in the existence of the building of the House). Similarly, regarding the law that "everyone is obligated to build and support with their own bodies and their own money, men and women," it is not a personal obligation to fulfill the mitzvah of "And they shall make Me a sanctuary" (which is upon the community), but rather an obligation from the perspective of the Mikdash, that the definition of the building of the Mikdash requires that its construction be through the community—"And they shall make," the making of Klal Yisrael (and therefore this applies to all of Israel, men and women).
+
+b) Just as it is regarding the act of building, so it is regarding the place of the building and its form, etc., upon which its holiness depends—that even though the "and I will dwell" of the holiness in this place comes from Heaven, there must first be the fulfillment of the mitzvah of "And they shall make," a preparation by man.
+
+It can be said that it includes even more than this: that he must "seek," toil to find the place, etc. As it is stated in the Sifri, "'Perhaps you should wait until a prophet tells you? The verse says, "To His habitation you shall seek and come there"—seek and you will find, and afterwards the prophet will tell you.'" This is because the intent and goal of the command "And they shall make Me a sanctuary" is that the Sanctuary (should not be a free gift from above, but) should come through the action and toil of man, in the manner of "seeking"—similar to a "well," which comes through human involvement in the manner of avodah and toil, the digging of wells.
+
+5. According to this, the novelty of the Batei Mikdash over the Mishkan that Moshe made in the desert is understood, as well as the difference between the Batei Mikdash themselves:
+
+Regarding the Mishkan, it is said, "And you shall set up the Mishkan according to its manner which you were shown on the mountain," for the Holy One, Blessed be He, showed Moshe the order of its setup; and it turns out that the making ("And they shall make") in the Mishkan was not in the manner of "seeking," for its setup came through what the Holy One, Blessed be He, (taught and) showed him, and consequently, the "And they shall make" was not fulfilled in it completely—making in the manner of toil and "seeking" (similar to the digging of wells).
+
+But in the First Beis Hamikdash, even though it is said regarding it, "Everything in writing from the hand of Hashem, He gave me insight," the building of the House was done by people and in great abundance (in their number and the length of time). Furthermore, the building was done by Shlomo and not by David (to whom the prophecy was directed). And also regarding David, who said "Everything in writing from the hand of Hashem, He gave me insight," it is stated in the Sifri there, continuing the aforementioned teaching "'To His habitation you shall seek... seek and you will find, and afterwards the prophet will tell you'—'And so you find with David, "Remember, Hashem, for David all his affliction, how he swore to Hashem, vowed to the Mighty One of Yaakov: If I enter the tent of my house... if I give sleep to my eyes... until I find a place for Hashem, dwellings for the Mighty One of Yaakov."'" That is, David exerted himself and toiled to find the place of the Mikdash, and only afterwards was he told by the prophet (as the Sifri continues).
+
+It can be said that this is one of the reasons that the Mishkan was a temporary dwelling, as it is said, "I have not dwelt in a house... but I have been walking in a tent and in a Mishkan," and in the words of the Rambam, "It has already been explained in the Torah that the Mishkan which Moshe Rabbeinu made was for the time being." This is unlike the Beis Hamikdash, which was a permanent dwelling, and in the words of the Rambam, "Once the Mikdash was built in Jerusalem, all other places were forbidden, etc., and there is no House for all generations except in Jerusalem alone and on Mount Moriah"—because the matter of the permanence of the Mikdash depends on the action of Bnei Yisrael, in the manner of "seeking"—in the manner of preparing the holiness as mentioned above, and in the very great building in practice, and this was (primarily) in the Mikdash and not in the Mishkan.
+
+6. And here, in this definition of the Mikdash, the action and making of man, there is an elevation in the Second Mikdash over the First Mikdash:
+
+a) The act of building did not come through a revelation (and "being shown" by) Hashem (as in the Mishkan) or through the instruction of a prophet (as in the First House), but rather through the decree of Koresh (and he also participated in the building).
+
+b) Also, the form of the building was not as clear as in the First House, as the Rambam writes: "(The building that Shlomo built is already explained in Melachim, and so too) the building that is to be built in the future, even though it is written in Yechezkel, it is not explained and clarified, and the men of the Second House, when they built in the days of Ezra, built it like the building of Shlomo and according to the things explained in Yechezkel."
+
+It turns out that in the Second House, the "seeking" ("seek and you will find") of the details of the building was greater than in the First House (it can be said that there, the "seek and you will find" was only regarding its place, whereas in the Second House) they needed to seek, etc., regarding the details of the building and its form.
+
+And since the matter of permanence in the Mikdash depends on the action and work of Bnei Yisrael, "And they shall make Me a sanctuary," in the manner of avodah and toil as mentioned above, which was in the Second House more than in the First House, therefore "the glory of this latter House shall be greater than the former," for it was greater in building and in years, more permanent than the First House.
+
+According to this, it is understood why the "sign for the children" regarding the three Batei Mikdash is in the deeds of Yitzchak specifically (even though the digging of wells was done before that by Avraham, as is explicit in the verses, and in the words of the Ramban, "he and his father made them equally")—because the essence of the matter of making, toil, and avodah is the novelty and matter of Yitzchak specifically, as is known that the matters of the three Patriarchs are the three pillars of Torah, Avodah, and Gemillus Chasadim. Avraham’s attribute is the attribute of Chesed, Yitzchak—Avodah, and Yaakov—Torah. Chesed and Torah are (in general) influence from above, and Avodah is the elevation and drawing close of man to holiness.
+
+It can be said that for this reason (as explained by our Sages) the First House corresponds to Avraham and the Second House corresponds to Yitzchak, because the essence of the matter of "And they shall make," the making and avodah of man, was in the Second House specifically.
+
+7. However, one must understand:
+
+How does what was explained above—that the essence of the matter of permanence in the Mikdash is connected and dependent on "And they shall make Me a sanctuary," the action and work of man specifically—fit with what is explained in the Ramban there, that the third well, over which they did not quarrel, is against the Third Beis Hamikdash, of which it is only said "And it became wider and wound about," that it will exist with eternal existence (which is the true and complete matter of "permanence")—yet the eternity of the Third Beis Hamikdash is because it is (in the language of the Zohar) "the building of the Holy One, Blessed be He," and as explained in Rabbeinu Bachya here: "And that he mentioned Hashem in the third well and did not do so in the first two, it is possible to say the reason is because the first ones were a building of flesh and blood by Shlomo and Koresh, but the third will be the work of Hashem and a building of Heaven, and destruction will not rule over it; therefore he mentioned the Holy One, Blessed be He, in it."
+
+That is, the First and Second Batei Mikdash, which are "a building of flesh and blood" ("*binyana devar nash*"), do not have the matter of eternity, and specifically the Third Beis Hamikdash, which will not be "a building of flesh and blood," will have the matter of permanence and eternity in its completeness.
+
+Simply put, the reason for this is: since man has an end (and especially since from the moment he is born he begins to dry up), his handiwork is not eternal; and the work of Hashem, in whom there is no matter of change, Heaven forbid, as it is written, "I, Hashem, have not changed," so too His handiwork is eternal.
+
+But there is still a need for explanation: How is it possible that the First and Second Batei Mikdash, in which there was more of the matter of action and fulfillment of the mitzvah of Israel ("And they shall make Me a sanctuary"), do not have this elevation (of eternity), and in the Third House, in which it seemingly lacks the completeness of the fulfillment of the mitzvah of "And they shall make Me a sanctuary," there will be this elevation?
+
+The explanation for this is:
+
+The fact that the Third Beis Hamikdash "will be the work of Hashem and a building of Heaven and (therefore) destruction will not rule over it" is because it comes through the action and avodah of Bnei Yisrael from before, during the (length of) time of the exile, which is the highest completeness in the matter of action and avodah (it can be said—even higher than the avodah and action in the building of the First and Second Batei Mikdash). And therefore, this avodah specifically causes and brings about that the Mikdash will be the work of Hashem, existing with eternal existence.
+
+Similar to the words of our Sages (regarding the general matter of the future Redemption), "If they merit—I will hasten it," that when the avodah of Israel is in completeness, "they merit," then the Redemption comes in a completely different way, "I will hasten it," above the way of nature.
+
+And similarly regarding the building of the Mikdash of the future—that since it comes after the avodah of Israel during the length of this last exile, through which Bnei Yisrael have been refined, refinement after refinement, and as we see that Bnei Yisrael study Torah and fulfill mitzvos out of *mesiras nefesh* literally, and even in places where the Holy One, Blessed be He, has granted success and there are no decrees against Bnei Yisrael, there are obstacles and hindrances from those who mock, and they must stand with great strength not to be ashamed before the mockers, and to strengthen themselves in their faith and Torah, even before the nations—this *mesiras nefesh* brings about that the Holy One, Blessed be He, Himself will build the Third Beis Hamikdash.
+
+That is, the fact that human action ("And they shall make") effects permanence in the Mikdash is because the greater the human action—the more the Shechinah rests within it.
+
+8. For further explanation:
+
+The completeness of human avodah is when
+
+his avodah is in a manner where he does not consider himself a separate existence, and all his actions are the actions of the Holy One, Blessed be He, and the Shechinah rests in its completeness in his handiwork. Similar to what is stated in the Gemara "The deeds of the righteous are greater than the deeds of Heaven and earth, etc. Regarding the handiwork of the righteous it is written, 'The place for Your dwelling which You have made, Hashem, the Sanctuary, my Master, which Your hands have established,'" and Rashi explains, "The Sanctuary is the handiwork of the righteous"—and yet the verse "The Sanctuary, my Master, which Your hands have established" is brought regarding this, and it is explained in the *Shitah Mekubetzes* that this is not a contradiction, because "the deeds of the righteous are called the deeds of the Holy One, Blessed be He." The explanation for this can be that a *tzaddik* is not a separate existence, and therefore the handiwork of the *tzaddik* is the handiwork of the Holy One, Blessed be He.
+
+It can be said that this matter (that the handiwork of man (a *tzaddik*) is considered the handiwork of the Holy One, Blessed be He) is primarily when the avodah of man is like the avodah of a servant, who according to Torah (the Torah of truth) is not a separate existence, and "whatever a servant acquires, his master acquires," until all the avodah of the servant is called by the name of the Master. And so too the avodah of the servant—the common denominator in it at all times and in all places (from which it is proven that this is its source, etc.) is *kabbalas ol* (acceptance of the yoke), not because of his grasp of the greatness of the Master and the benefit of the avodah, or because of the feeling in the heart for the avodah, but because he accepted upon himself the yoke of the Master, and his avodah is to fulfill the will of the Master.
+
+And this is the novelty in the Third Beis Hamikdash compared to the Batei Mikdash before it (which is why it specifically will be the work of Hashem)—because even though in the First and Second Batei Mikdash there was also avodah and action, nevertheless, since the avodah of Hashem then was out of deep understanding and grasp of the greatness of Hashem, which leads to love and fear of Him, etc., and the intellect covers and clothes the essence—the avodah was in the open, an intellectual avodah, mixed with the existence of man (his intellect and the feeling of his heart), and therefore it was not openly "the building of the Holy One, Blessed be He." And specifically through the avodah during the time of the exile, where the essence of the avodah is in the way of *kabbalas ol malchus shamayim*, like the avodah of a servant, this is the completeness and truth of "the deeds of the righteous" which are the handiwork of the Holy One, Blessed be He, and therefore this effects in the open that the Holy One, Blessed be He, will build this House, "Hashem will build the House."
+
+9. We read *Parshas Toldos* every year in proximity to *Rosh Chodesh Kislev* (on *Shabbos Mevarchim* the month of Kislev (as in this year) or in the first days of the month)—the conclusion and seal of which is the days of *Chanukah*—and in them too we see the content of the aforementioned matter:
+
+The words of the Ramban are well-known regarding what the Holy One, Blessed be He, said to Aharon, "Yours is greater than theirs, for you kindle and tend the lamps," which refers to the *Chanukah* lamps, "which are never nullified," for the sacrifices are only at a time when the Beis Hamikdash exists, whereas the *Chanukah* lamps are even in the time of our exile.
+
+The reason that the *Chanukah* lamps have the matter of eternity is explained in many places, because these lamps came through the *mesiras nefesh* of Bnei Yisrael in the time of the Chashmonaim, for even though the kingdom of Greece "issued decrees against Israel and nullified their religion and did not allow them to engage in Torah and mitzvos," nevertheless, Israel sacrificed their lives.
+
+And since the lamps came through the completeness of the avodah of Israel, *mesiras nefesh*, therefore the *Chanukah* lamps are never nullified, for they exist even in the time of exile.
+
+However, in the days of *Chanukah*, eternity was effected only in the matter of the lamps of the Mikdash, but after the avodah during the length of this last exile, it will be so regarding the Mikdash in general, that the building of the Third House will be in absolute completeness, in a manner that it is all called by the name of the Holy One, Blessed be He, "Hashem will build the House," and it will be an eternal building forever, "The Sanctuary, my Master, which Your hands have established."
+
+(From the Sichos of Shabbos Parshas Chayei Sarah 5730, 5747)
+
+---
+
+
+## ויצא
+
+_Section: ויצא_
+
+**Hebrew:**
+
+## שיחה א
+
+## 126
+
+רש בקבלה שכרו בעולם הזה יתר על השכר הצפון לעולם הבא", אבל השמיט אופן השכר — "נותנין לו נחלה בלי מצרים", וכמפורט אח"כ שהיא נחלת יעקב (לא כאברהם וכיצחק).
+ולכאורה משמע מזה, שאין כוונת הרמב"ם כאן לדרשת הגמרא, אלא לפי­רוש הכתוב כפשוטו[ftnref\_1050\_10] [דפירוש הגמרא "כל המענג כו' נותנין לו נחלה בלי מצרים" י"ל שהוא דרש, ואילו כוונת ה­רמב"ם שכתב "מפורש" היא שזהו פשט הכתוב, וכמו שמצינו בכ"מ שהרמב"ם מפרש כתוב לפי פשוטו, ולא כפי שדר­שוהו חז"ל[ftnref\_1051\_11]].
+וי"ל שלכן כתב "כל השומר את ה­שבת כהלכתה ומכבדה ומענגה כפי כחו" (ולא (בקיצור) "כל המענג את ה­שבת") — כי הכתוב "אז תתענג על ה'" בא בהמשך להפסוק שלפניו[ftnref\_1052\_12], "אם תשיב משבת רגליך עשות חפציך ביום קדשי וקראת לשבת עונג לקדוש ה' מכובד וכבדתו מעשות דרכיך ממצוא חפצך ודבר דבר (וע"ז ממשיך) אז תת­ענג גו'", שההבטחה ד"אז תתענג על ה' גו'" באה בהמשך לכל הנאמר לפנ"ז[ftnref\_1053\_13] (ובפרט שהבבא ד"וקראת לשבת עונג" הוא לא בסיום הכתוב), והיינו (כדברי ה­רמב"ם) "השומר את השבת כהלכתה ומכבדה ומענגה כפי כחו"[ftnref\_1054\_14].
+ולכאורה יש לעיין, מדוע נטה ה­רמב"ם מדרשת הגמרא והביא פירוש הכתוב (רק) לפי פשוטו.
+ב. ויש לבאר זה בהקדם ביאור לשון הרמב"ם "מפורש בקבלה שכרו בעולם הזה יתר על השכר הצפון לעולם הבא" — שדורש ביאור: הרי כבר כתב הרמב"ם בהלכות תשובה[ftnref\_1055\_15] שעיקר שכר המצוות הוא בעוה"ב, ואמאי הוצרך להדגיש ענין זה כאן?
+והנה במדרש[ftnref\_1056\_16] איתא (בהמשך לכמה מעלות בשמירת שבת) "ולא עוד אלא כל מה שאתה אוכל בעולם הזה אינו אלא מן הפירות אבל הקרן קיימת לך לעוה"ב שנאמר והאכלתיך נחלת יעקב אביך כי פי ה' דבר". ומבואר במפרשים[ftnref\_1057\_17], שכוו­נת המדרש ששבת היא בכלל הדברים שאדם אוכל פירותיהן גם בעוה"ז (והא שלא נזכר במשנת[ftnref\_1058\_18] "אלו דברים שאדם
+
+## 127
+
+אוכל פירותיהן כו'" הוא משום דתנא ושייר).
+ולכאורה י"ל שזהו מקור דברי ה­רמב"ם כאן[ftnref\_1059\_19], וכוונתו, ששבת הוי בכלל מצות שאדם אוכל פירותיהן בעולם הזה. ולפ"ז, הפירוש בדברי הרמב"ם "מפורש בקבלה שכרו בעולם הזה יתר על השכר הצפון לעולם הבא שנאמר כו'" הוא, ש­בפסוק "אז תתענג גו'" נכללים שני ה­ענינים, השכר בעולם הזה והשכר הצפון לעולם הבא: "אז תתענג על ה' והרכב­תיך על במתי ארץ" — "שכרו בעוה"ז"; "והאכלתיך נחלת יעקב אביך" — "השכר הצפון לעולם הבא"[ftnref\_1060\_20].
+אבל קשה לומר שזוהי כוונת הרמב"ם כאן — כי [מלבד זאת שאינו מיושב (היטב) מה שהוצרך להוסיף "יתר על השכר הצפון לעולם הבא", דפשיטא ש­עיקר השכר הוא בעוה"ב, כמבואר ב­ארוכה בהלכות תשובה[ftnref\_1055\_15], והחידוש הוא רק שישנו שכר פירותיהן גם בעוה"ז, וא"כ הול"ל "שכרו בעולם הזה" (ואנא ידענא שזהו "יתר על השכר הצפון ל­עולם הבא") — הרי]:
+א) את"ל שכוונת הרמב"ם היא לדברי המדרש הנ"ל, הרי העיקר חסר מן הס­פר, דהו"ל להרמב"ם להדגיש את החי­לוק דשני סוגי השכר, שהשכר בעולם הזה הוא (רק) בגדר "אכילת פירות" ו­אילו השכר בעוה"ב הוא ה"קרן" (שזהו חילוק עיקרי ויסודי); אבל הרמב"ם כתב רק באופן סתמי "מפורש. . שכרו בעו­לם הזה יתר על השכר הצפון לעולם הבא", שאין במשמעות לשון זו שיש הפרש ביניהם במהות השכר.
+ב) ועיקר: בפירוש המשניות לה­רמב"ם[ftnref\_1062\_21] מבואר הטעם שבמשנת "אלו דברים שאדם אוכל פירותיהן בעוה"ז כו'" נקט התנא דוגמאות ד"כבוד אב ואם וגמילות חסדים כו'", כי רק ב"חלק השני במצות התלויות בתועלת בני אדם" אומ­רים שאדם אוכל פירותיהן בעוה"ז (כיון שעל ידן "ימצא טובה בעוה"ז"), והרי ש­מירת שבת אינה בכללן (וכמפורש ב­רמב"ם שם, ששבת היא מ"חלק האחד במצות. . שיש בינו ובין הקב"ה"). ודו­חק לומר שהרמב"ם נקט כאן להלכה כדברי המדרש (שגם בשבת אדם אוכל פירותיהן בעוה"ז) נגד משנה מפורשת[ftnref\_1063\_22].
+ג. ויש לומר הביאור בזה:
+בדיוק לשונו "שכרו בעולם הזה יתר על השכר הצפון לעולם הבא" בא ה­רמב"ם להשמיענו, שיש חידוש עיקרי בשכרה של מצות שבת, שלא מצינו דוגמתו בשכרן של כל מצוות התורה.
+דהנה בענין שכר מצוות ביאר ה­
+
+## 128
+
+רמב"ם בארוכה (בהלכות תשובה[ftnref\_1064\_23]), שיש שני סוגי שכר: (א) "סוף מתן שכרן של מצות" הוא "חיי העולם הבא", שרק חיים אלה ראויים הם להיות תכלית השכר על קיום התורה ומצוות[ftnref\_1065\_24]. (ב) יעודים גש­מיים, שאין הם סוף מתן שכרן של מצוות, וכל ענינם הוא רק כדי לאפשר לאדם לקיים את המצוות כדבעי (בלי בלבולים), "שלא נעסוק כל ימינו ב­דברים שהגוף צריך להן אלא נשב פנויים ללמוד בחכמה ולעשות המצוה כדי שנזכה לחיי העולם הבא".
+וי"ל שבזה שונה מצות שבת משאר כל המצוות: "מפורש בקבלה שכרו ב­עולם הזה יתר על השכר הצפון לעולם הבא", והיינו שהשכר בעוה"ז אינו כמו היעודים הגשמיים (שאינם אלא הסרת המניעה כדי לאפשר את קיום המצות וכו' כדבעי)[ftnref\_1066\_25], אלא השכר בעוה"ז הוא באותו האופן והגדר דהשכר הצפון לעו­לם הבא, והיינו שכר ממש[ftnref\_1067\_26].
+וזהו מה שכתב הרמב"ם "כבר מפורש בקבלה שכרו בעולם הזה יתר על השכר הצפון לעולם הבא שנאמר אז תתענג על ה' גו'", שבפסוק זה מודגש, שהשכר על שמירת שבת בעוה"ז (אינו שכר הדומה ליעודים גשמיים שמצינו בכל התורה כולה[ftnref\_1068\_27], אלא) הוא שכר שגדרו הוא מעין עוה"ב, וכמפורש "אז תתענג על ה'", שזהו בדוגמת ומעין שכר דעוה"ב, ש­"נהנין מזיו השכינה" (וכמ"ש הרמב"ם אודות "הטובה הצפונה לצדיקים. . חיי העולם הבא"[ftnref\_1069\_28], שהיא[ftnref\_1070\_\*28] מה ש"צדיקים יושבים כו' ונהנין מזיו השכינה", וכ­מבואר שם בארוכה)[ftnref\_1071\_29].
+וגם בהמשך הכתוב "והרכבתיך על במותי ארץ", מבואר ומודגש שאין ה­כוונה כאן ליעודים גשמיים — "שיסיר ממנו כל הדברים המונעים אותנו מל­עשותה (את התורה) כגון חולי ומלחמה ורעב וכיוצא בהן וישפיע לנו כל ה­טובות המחזיקות את ידינו לעשות התורה כגון שובע ושלום וריבוי כסף וזהב"[ftnref\_1072\_30], כי יעודים אלה הרי הם בגדר "ארץ", היינו דברים דארץ הלזו ה­
+
+## 129
+
+גשמית, אלא שהם השלימות דארץ ועני­ני עוה"ז; משא"כ תוכן השכר ד"הרכב­תיך על במותי ארץ" היינו למעלה גם מהשלימות דעוה"ז (במתי ארץ), והוא ה­תענוג "על ה'", הנאה מזיו השכינה, ש­הוא למעלה מגדרי ארץ ותענוגי עוה"ז, כפי שהאריך בהל' תשובה שם[ftnref\_1073\_31].
+ד. וע"פ הנ"ל יבואר היטב הטעם ש­פירש כאן הרמב"ם את הכתוב לפי פשו­טו, ולא הביא דרשת רז"ל הנ"ל:
+במס' שבת בא המאמר "כל המענג את השבת" בהמשך הסוגיא העוסקת (לא ב­מעלת כללות הענין דשמירת שבת, אלא) במעלות בענינים פרטיים דשבת: "כל ה­מקיים שלש סעודות בשבת ניצול כו'", "כל המענג את השבת נותנין לו משאלות לבו", "כל המשמר שבת כהלכתו אפי' עובד ע"ז כו' מוחלין לו", ועוד כיו"ב — ולכן הובאה שם דרשה דידן המבארת שכר מסויים ("נחלה בלי מצרים") על פרט מסויים בשבת ("המענג את השבת");
+אבל הרמב"ם הביא כתוב זה בסיום וחותם כל הלכות שבת, כי כוונתו לענין כללי במצות שבת. ולכן נקט הרמב"ם ב­מעשה הגברא (שעבורו מקבלים השכר) "כל השומר את השבת כהלכתה ומכבדה ומענגה כו'" (ולא רק "המענג את ה­שבת"), כיון שכוונתו לתוכן הכללי ד­שמירת שבת, לכל פרטי'. וכן סתם וכתב "מפורש בקבלה שכרו בעולם הזה יתר על השכר הצפון לעולם הבא" (ולא נקט השכר ד"נותנין לו נחלה בלי מצרים") — כי כוונתו כאן (לא לשכר פרטי, אלא) להחידוש הכללי בשכר מצות שבת, ל­גבי שכר שאר כל המצות כולן, שעל ידי שמירת שבת מקבל האדם שכר ב­עוה"ז מעין השכר דעוה"ב.
+ויש לומר, שלכן מדייק הרמב"ם "וכל השומר את השבת כו' ומכבדה ומענגה כפי כחו" (דלכאורה, היכן מרומז פרט זה בכתוב?): הטעם שמצות שבת מיוחדת מכל מצות התורה בזה ששכרה (האמיתי) הוא (גם) בעוה"ז, הוא מפני שעצם השבת (וקדושת שבת) הוי מעין עוה"ב[ftnref\_1074\_32]. והיינו, ששכר זה הוא בגדר תוצאה טבעית, שכ­אשר האדם מתאחד עם השבת, זוכה ב­דרך ממילא ל"מעין עולם הבא" בעוה"ז. ולכן מדייק הרמב"ם, ששכרו בעוה"ז ת­לוי בזה שהאדם "שומר את השבת כהל­כתה ומכבדה ומענגה כפי כחו", שבזה מודגש שיש אצל האדם שלימות קדושת שבת, הן מצד החפצא דשבת, שיש אצלו כל פרטי קיום מצות השבת, "שומר את השבת כהלכתה ומכבדה ומענגה", והן מצד הגברא — שמכניס בזה כל חיי נפשו ("כפי כחו")[ftnref\_1075\_33], שאז השבת והאדם מתאחדים ביחוד גמור.
+ה. בדרך זו יש לבאר גם המשך ה­ענינים בהלכה זו ברמב"ם:
+
+## 131
+
+מ"ש אודות השכר דשמירת שבת, "כבר מפורש בקבלה שכרו בעולם הזה יתר על השכר הצפון לעולם הבא שנאמר אז תתענג על ה' גו'", שכוונתו בזה (כנ"ל) שיש לו שכר בעוה"ז מעין השכר ד­עוה"ב — כי גדר שכר עוה"ב (כמבואר ברמב"ם הל' תשובה) הוא גמר ושלימות הקשר ודביקות ישראל בבורא (שלכן "כמה דוד והתאוה לחיי העולם הבא"[ftnref\_1082\_40] (וכן נתאוו לזה כל ישראל, נביאיהם וחכמיהם כו'[ftnref\_1083\_41])) — וע"י שמירת שבת מקבל שכר זה[ftnref\_1084\_42], היינו שמוסיף תוקף ב­עצם קדושת ישראל שבו[ftnref\_1085\_\*42] (דביקות ב­בורא מעין שלימות הדביקות בעוה"ב)[ftnref\_1086\_43].
+ו. ע"פ כ"ז יש להוסיף ביאור במה שהביא הרמב"ם גם סיום הכתוב "כי פי ה' דבר", שלא הובא בגמרא. בפשטות י"ל שתיבות אלו ("כי פי ה' דבר") באו להורות שכיון שזוהי הבטחה מפורשת מאת ה' בדיבור, הרי בודאי תתקיים[ftnref\_1087\_44], וכמ"ש הרמב"ם בהל' יסודי התורה[ftnref\_1088\_45] דכל דבר טובה שיגזור הא­ל אפילו על תנאי אינו חוזר. אבל צ"ב מדוע הודגש זה דוקא בשכר זה, דבר שלא מצינו ב­שאר עניני שכר?
+וע"פ הנ"ל מובן: בשאר עניני שכר
+
+**English:**
+
+## Sicha 1
+
+126
+
+...explicitly stated in Kabbalah that his reward in this world is greater than the reward stored away for the World to Come,” but he omitted the specific nature of the reward—"they give him an inheritance without boundaries"—as detailed later, that it is the inheritance of Yaakov (unlike that of Avraham and Yitzchak).
+
+Seemingly, this implies that the Rambam’s intention here is not to cite the *derashah* (homiletical interpretation) of the Gemara, but rather to interpret the verse according to its literal meaning [for the Gemara’s interpretation, "Whoever delights in [the Shabbos]... they give him an inheritance without boundaries," can be considered a *derashah*, whereas the Rambam’s intent in writing "it is explicitly stated" is that this is the *peshat* (literal meaning) of the verse, as we find in many places where the Rambam interprets a verse according to its literal meaning, and not as Chazal interpreted it].
+
+It can be said that this is why he wrote, "Whoever observes the Shabbos according to its law, honors it, and delights in it according to his ability" (and not, in short, "Whoever delights in the Shabbos")—because the verse, "Then you shall delight in Hashem," follows the preceding verse : "If you turn away your foot because of the Shabbos, from doing your business on My holy day, and call the Shabbos a delight, the holy of Hashem honorable, and shall honor it, not doing your own ways, nor finding your own business, nor speaking your own words (and upon this it continues), then you shall delight in Hashem, etc." The promise of "then you shall delight in Hashem, etc." comes as a continuation of everything stated previously (especially since the clause "and call the Shabbos a delight" is not at the end of the verse). This is (as the Rambam says) "observing the Shabbos according to its law, honoring it, and delighting in it according to his ability".
+
+Seemingly, one must examine why the Rambam deviated from the *derashah* of the Gemara and brought the interpretation of the verse (only) according to its literal meaning.
+
+B. This can be explained by first clarifying the Rambam’s language: "It is explicitly stated in Kabbalah that his reward in this world is greater than the reward stored away for the World to Come"—which requires explanation: Has the Rambam not already written in *Hilchos Teshuvah* that the primary reward for mitzvos is in the World to Come? Why was it necessary to emphasize this matter here?
+
+Now, in the Midrash it states (following several virtues of Shabbos observance), "And not only that, but everything you eat in this world is only from the fruits, but the principal remains for you for the World to Come, as it is said, 'And I will feed you with the inheritance of Yaakov your father, for the mouth of Hashem has spoken.'" It is explained in the commentaries that the intent of the Midrash is that Shabbos is among the things whose fruits a person eats in this world as well (and the fact that it is not mentioned in the Mishnah of "These are the things whose fruits a person eats..." is because the Tanna listed some and omitted others).
+
+Seemingly, it can be said that this is the source of the Rambam’s words here, and his intent is that Shabbos is included among the mitzvos whose fruits a person eats in this world. According to this, the interpretation of the Rambam’s words, "It is explicitly stated in Kabbalah that his reward in this world is greater than the reward stored away for the World to Come, as it is said, etc.," is that the verse "Then you shall delight, etc." includes both matters: the reward in this world and the reward stored away for the World to Come: "Then you shall delight in Hashem and I will cause you to ride upon the high places of the earth"—"his reward in this world"; "And I will feed you with the inheritance of Yaakov your father"—"the reward stored away for the World to Come".
+
+However, it is difficult to say that this is the Rambam’s intent here—because [aside from the fact that it is not (well) resolved why he needed to add "greater than the reward stored away for the World to Come," for it is obvious that the primary reward is in the World to Come, as explained at length in *Hilchos Teshuvah*, and the novelty is only that there is a reward of fruits in this world as well, and if so, he should have said "his reward in this world" (and I would know that this is "greater than the reward stored away for the World to Come")—for]:
+
+1) If you say that the Rambam’s intent is the words of the aforementioned Midrash, then the main point is missing from the text, for the Rambam should have emphasized the distinction between the two types of reward: that the reward in this world is (only) in the category of "eating fruits," whereas the reward in the World to Come is the "principal" (which is a fundamental and essential distinction); but the Rambam wrote only in a general way, "It is explicitly stated... his reward in this world is greater than the reward stored away for the World to Come," which does not imply that there is a difference between them in the essence of the reward.
+
+2) And most importantly: In the Rambam’s Commentary on the Mishnah, it is explained that the reason the Tanna in the Mishnah, "These are the things whose fruits a person eats in this world, etc.," chose examples like "honoring father and mother and acts of kindness, etc.," is because only in the "second part, regarding mitzvos that depend on the benefit of human beings," do we say that a person eats their fruits in this world (since through them "he will find goodness in this world"), and Shabbos observance is not among them (as is explicitly stated in the Rambam there, that Shabbos is from the "first part of the mitzvos... which exist between him and the Holy One, blessed be He"). It is forced to say that the Rambam here ruled according to the words of the Midrash (that even regarding Shabbos a person eats its fruits in this world) against an explicit Mishnah.
+
+C. It can be said that the explanation for this is:
+
+By the precision of his language, "his reward in this world is greater than the reward stored away for the World to Come," the Rambam intends to inform us that there is a fundamental novelty in the reward for the mitzvah of Shabbos, the likes of which we do not find in the reward for all the other mitzvos of the Torah.
+
+For regarding the matter of the reward for mitzvos, the Rambam explained at length (in *Hilchos Teshuvah*) that there are two types of reward: (a) "The ultimate reward for mitzvos" is "the life of the World to Come," for only this life is worthy of being the ultimate reward for the fulfillment of Torah and mitzvos. (b) Physical blessings, which are not the ultimate reward for mitzvos, and their entire purpose is only to enable a person to fulfill the mitzvos properly (without distractions), "so that we do not occupy ourselves all our days with the things the body needs, but rather sit free to study wisdom and perform the mitzvah so that we may merit the life of the World to Come."
+
+It can be said that in this, the mitzvah of Shabbos differs from all other mitzvos: "It is explicitly stated in Kabbalah that his reward in this world is greater than the reward stored away for the World to Come," meaning that the reward in this world is not like the physical blessings (which are only the removal of obstacles to enable the fulfillment of mitzvos, etc., properly), but rather the reward in this world is in the same manner and category as the reward stored away for the World to Come, meaning it is a reward in the true sense.
+
+This is what the Rambam wrote, "It is already explicitly stated in Kabbalah that his reward in this world is greater than the reward stored away for the World to Come, as it is said, 'Then you shall delight in Hashem, etc.,'" for in this verse it is emphasized that the reward for Shabbos observance in this world (is not a reward similar to the physical blessings that we find throughout the entire Torah, but rather) is a reward whose category is a "taste" of the World to Come, as is explicitly stated, "Then you shall delight in Hashem," which is in the likeness of and a "taste" of the reward of the World to Come, where "they enjoy the radiance of the Shechinah" (as the Rambam wrote regarding "the goodness stored away for the righteous... the life of the World to Come", which is that "the righteous sit... and enjoy the radiance of the Shechinah," as is explained there at length).
+
+And also in the continuation of the verse, "And I will cause you to ride upon the high places of the earth," it is explained and emphasized that the intent here is not physical blessings—"that He will remove from us all the things that prevent us from performing it (the Torah), such as illness, war, and famine, and the like, and will bestow upon us all the good things that strengthen our hands to perform the Torah, such as plenty, peace, and an abundance of silver and gold", for these blessings are in the category of "earth," meaning things of this physical earth, but rather they are the perfection of the earth and the matters of this world; whereas the content of the reward of "I will cause you to ride upon the high places of the earth" is above even the perfection of this world (the high places of the earth), and it is the delight "in Hashem," enjoyment of the radiance of the Shechinah, which is above the categories of earth and the delights of this world, as he elaborated in *Hilchos Teshuvah* there.
+
+D. And according to the above, the reason the Rambam interpreted the verse here according to its literal meaning, and did not bring the aforementioned *derashah* of our Sages, is well explained:
+
+In Tractate Shabbos, the statement "Whoever delights in the Shabbos" appears as a continuation of the *sugya* dealing (not with the virtue of the general matter of Shabbos observance, but) with virtues regarding specific details of Shabbos: "Whoever keeps three meals on Shabbos is saved, etc.," "Whoever delights in the Shabbos, they give him his heart's desires," "Whoever observes Shabbos according to its law, even if he worships idols, etc., they forgive him," and more of the like—and therefore our *derashah* was brought there, which explains a specific reward ("an inheritance without boundaries") for a specific detail of Shabbos ("delighting in the Shabbos");
+
+But the Rambam brought this verse at the conclusion and seal of all the *Hilchos Shabbos*, because his intent is toward a general matter in the mitzvah of Shabbos. Therefore, the Rambam chose for the *maaseh hagever* (the action of the person for which they receive the reward) "Whoever observes the Shabbos according to its law, honors it, and delights in it, etc." (and not just "Whoever delights in the Shabbos"), because his intent is toward the general content of Shabbos observance, in all its details. And likewise, he stated generally, "It is explicitly stated in Kabbalah that his reward in this world is greater than the reward stored away for the World to Come" (and did not cite the reward of "they give him an inheritance without boundaries")—because his intent here is (not for a specific reward, but) for the general novelty in the reward for the mitzvah of Shabbos, regarding the reward for all other mitzvos combined, that through Shabbos observance a person receives a reward in this world that is a "taste" of the reward of the World to Come.
+
+It can be said that this is why the Rambam specifies, "And whoever observes the Shabbos, etc., and honors it, and delights in it according to his ability" (for seemingly, where is this detail hinted at in the verse?): The reason that the mitzvah of Shabbos is unique among all the mitzvos of the Torah in that its (true) reward is (also) in this world is because the essence of Shabbos (and the holiness of Shabbos) is a "taste" of the World to Come. This means that this reward is in the category of a natural consequence, that when a person unites with the Shabbos, he merits, by way of necessity, a "taste of the World to Come" in this world. And therefore, the Rambam specifies that his reward in this world depends on the fact that the person "observes the Shabbos according to its law, honors it, and delights in it according to his ability," in which it is emphasized that the person possesses the perfection of the holiness of Shabbos, both from the side of the *cheftza* (object) of Shabbos, that he possesses all the details of the fulfillment of the mitzvah of Shabbos, "observes the Shabbos according to its law, honors it, and delights in it," and from the side of the *gavra* (person)—that he puts into this all the life of his soul ("according to his ability"), at which point the Shabbos and the person unite in complete unity.
+
+E. In this way, one must also explain the continuation of the matters in this *halachah* in the Rambam:
+
+131
+
+What he wrote regarding the reward for Shabbos observance, "It is already explicitly stated in Kabbalah that his reward in this world is greater than the reward stored away for the World to Come, as it is said, 'Then you shall delight in Hashem, etc.,'" his intent in this (as above) is that he has a reward in this world that is a "taste" of the reward of the World to Come—for the category of the reward of the World to Come (as explained in the Rambam, *Hilchos Teshuvah*) is the completion and perfection of the connection and *dveikus* (cleaving) of Yisrael to the Creator (which is why "David yearned and desired for the life of the World to Come" (and likewise all of Yisrael, their prophets, and their sages yearned for this, etc.))—and through Shabbos observance he receives this reward, meaning that he adds strength to the very holiness of Yisrael within him (*dveikus* to the Creator, a "taste" of the perfection of *dveikus* in the World to Come).
+
+F. According to all this, one must add an explanation as to why the Rambam also brought the conclusion of the verse, "For the mouth of Hashem has spoken," which was not brought in the Gemara. Simply, it can be said that these words ("For the mouth of Hashem has spoken") came to teach that since this is an explicit promise from Hashem by speech, it will certainly be fulfilled, as the Rambam wrote in *Hilchos Yesodei HaTorah* that any matter of goodness that the Almighty decrees, even conditionally, does not return void. But it requires study why this was emphasized specifically regarding this reward, a matter that we do not find regarding other matters of reward?
+
+And according to the above, it is understood: regarding other matters of reward...
+
+---
+
+_Section: ויצא_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 136
+
+ביתו, בית ישראל, שכאו"א מהם יש לו נשמה קדושה[ftnref\_1128\_24] וכלולה בנשמת יעקב[ftnref\_1129\_25] — שזוהי מעלתו של יעקב[ftnref\_1130\_26], בחיר ה­אבות שהיתה "מטתו שלימה"[ftnref\_1131\_27], דלא כאברהם ויצחק ש"יצאו מהם" ישמעאל ועשו[ftnref\_1132\_28].
+שאינו מובן: איך זה שלהצלחה ה­רוחנית הגיע יעקב (לא בזמן עסקו בתורה כו' אלא) דוקא בהיותו פועל ובבית לבן!
+ד. ויש לומר נקודת הביאור בזה:
+אמרו חז"ל[ftnref\_1133\_29] "צדיקים. . דומין ל­בוראן", דמזה מובן, שהסברת ענין "עי­קר דירתו" של יעקב היא בהתאם ל­המבואר בענין "דירתו" של הקב"ה[ftnref\_1134\_30].
+והנה ידוע מה שאמרו חז"ל[ftnref\_1135\_31] "נתאוה הקב"ה להיות לו דירה בתחתונים", כלו­מר, "דירתו" של הקב"ה אינה בעולמות עליונים, שהם עולמות רוחניים, אלא דוקא בעולם הזה הגשמי התחתון, ועד, כמ"ש רבינו הזקן[ftnref\_1136\_32], ש"הוא התחתון ב­מדריגה שאין תחתון למטה ממנו".
+וזוהי הכוונה והמטרה של עבודת בנ"י בכלל, ובפרט בכל משך זמן ה­גלות, שע"י עבודתם בבירור וזיכוך ה­עולם (בעשיית מצוות בדברים גשמיים, וכן עשיית "כל מעשיך לשם שמים" — שעי"ז מקדשים דברים הגשמיים שבהם עובדים את השם) נעשה העולם כלי הראוי לקדושה העליונה, ובגמר עבודה זו (בביאת המשיח) יהי' כל העולם כולו "דירה" להקב"ה[ftnref\_1137\_33].
+ובזה מובן הקשר בין שני הענינים שב"זבולון" — (א) השם זבולון, מלשון "בית זבול", דירת קבע, (ב) ענינו של זבולון: בעל עסק (ולא יושב אהל) — כי המשכת הקדושה בגשמיות העולם היא בעיקר ע"י עבודתם של בעלי עסקים[ftnref\_1138\_34], שע"י שעוסקים בענינים גשמיים של העולם לש"ש ומקיימים בהם מצות כו', עושים את העולם הזה הגשמי "דירה" להקב"ה; בעבודת זבולון נעשה ה"בית זבול" — דירה לו ית'.
+וזהו הטעם של הקדמת זבולון (בעלי עסק) ליששכר (יושבי אהל) — "שמח זבולון בצאתך (ואח"כ) ויששכר באהלך" (כנ"ל ס"ב) — לפי שבענין עשיית דירה להקב"ה, שזהו "בתחתונים" דוקא, בגש­מיות העולם "שאין תחתון למטה ממנו" —
+
+## 138
+
+והי' מסתבר לומר שדירת קבע של הקב"ה תהי' ע"י ובענין תורה[ftnref\_1152\_46], שהתורה היא נצחית ולא תהי' מוחלפת[ftnref\_1153\_\*46], "עומדת לעולם ולעולמי עולמים"[ftnref\_1154\_47].
+ו. ויש לומר הביאור בזה:
+"דירה" באופן של קבע ונצחיות אמנם לא יתכן אלא בדבר שהוא נצחי, כ­ישראל[ftnref\_1155\_48] ותורה, שלהיותם דבוקים בה' הם נצחיים[ftnref\_1156\_49]; ומה שה"דירה" נעשית דוקא על ידי עבודת זבולון, הוא (לא מצד עצם פעולת הזיכוך ובירור של ה­עולם, שזהו רק ענין עראי, כנ"ל, אלא) מפני שעל ידי עבודה זו בא לידי גילוי התוקף והנצחיות שבישראל ותורה.
+ובהקדם תוכן הכתוב[ftnref\_1157\_50] "מנסה ה"א אתכם לדעת הישכם אוהבים את ה"א גו'", שע"י נסיונות בא לידי גילוי — תוקף האהבה לה'.
+וע"ד המבואר במ"א[ftnref\_1158\_51] בביאור דברי הרמב"ם[ftnref\_1159\_52] בענין בעל תשובה ש"טעם טעם החטא ופירש ממנו וכבש יצרו" ומעלתו על צדיקים "שלא חטאו מעולם" — דמי שלא טעם טעם חטא אינו מובטח שהוא יעמוד בצדקתו בכל המצבים, גם אם יהי' בנסיונות שאינו רגיל בהם כו', ובמילא לא בא לפועל וגם לא לגילוי תוקפו הדרוש לעמידה בנסיונות אלה;
+משא"כ בעל תשובה ש"טעם טעם ה­חטא ופירש ממנו וכבש יצרו", הרי נת­גלה ובא לפועל תוקפו ולא יכשל עוד הפעם (ובלשון הרמב"ם[ftnref\_1160\_53] "יעיד עליו יודע תעלומות שלא ישוב כו' לעולם").
+וכן בעניננו: כל זמן שאין לבנ"י מו"מ בעניני העולם לבררם ולזככם, אף ש­עוסקים בתורה ועבודת ה' — בכ"ז הרי התוקף והנצחיות שבנשמתם לא בא ע­דיין לידי גילוי ועאכו"כ לא לידי פועל בעבודתם, ולכן אין זו עבודה שתעשה בפועל דירה להקב"ה.
+דוקא בעבודת זבולון, שעוסק ב"תח­תונים" — "שאין תחתון למטה ממנו בענין הסתר אורו ית'"[ftnref\_1161\_54] — ומ"מ עוסקים ב­תורה ומקיימים מצוות וכו', ה"ז מגלה וכו' את התוקף[ftnref\_1162\_55], להיותם דבוקים
+
+## 139
+
+בתכלית עם השם. ובזה נעשים "דירה" לשכינה באופן קבוע ונצחי[ftnref\_1163\_56].
+וזהו הקשר בין ענין ה"דירה" העתי­דה להיות בגמר העבודה (דכל משך זמן הגלות), עם זה שאז "לא יהי' עסק כל העולם אלא לדעת את ה' בלבד. . יהיו ישראל חכמים גדולים כו'", לימוד ה­תורה באופן של תורתו אומנתו — כי ענין ה"דירה", "דירת קבע" של הקב"ה, מתגלה בעסק התורה של ישראל, אלא כדי שעסק זה יהי' בתכלית השלימות ה"ז לאחרי העבודה כל משך זמן הגלות.
+וע"פ הנ"ל מובן שאין סתירה בין שני הענינים שביעקב — (א) שענינו הוא תו­רה, כנ"ל, (ב) שלימות הצלחתו באופן ד"ויפרוץ האיש מאד מאד" והעמדת שבטי ישראל כו' באו דוקא בעת וע"י עבודתו בבית לבן — כי: כדי שהתורה תהי' אצל יעקב בקביעות ולתמיד בלי כל הגבלה ("מאד מאד") — ה"ז בא עי"ז שיעקב הי' ב"חרון אף של מקום (בעו­לם)", ושם הי' רועה צאן (פועלו של לבן), שאז נמשך ונתגלה בתורתו ועבו­דתו של יעקב שיהי' "ויפרוץ האיש מאד מאד", למעלה מכל מדידה והגבלה.
+ז. מענין האמור — שהעילוי הנפעל על ידי עבודת "זבולון" בבירור וזיכוך העולם יבא לידי גילוי בלימוד התורה של ימות המשיח — יש גם נפק"מ ב­מעשה בפועל בעבודתנו עתה:
+אף שבכמות רוב זמנו של "זבולון" הוא בהתעסקות בעניני העולם (לשם שמים כו') — מ"מ, הוא מחוייב לקבוע עתים לתורה, וכן לעסוק בעבודת התפלה.
+וע"פ המבואר לעיל מובן, שאין ה­פירוש בזה שגם בעלי עסק מחוייבים בלימוד התורה ועבודת התפלה, אלא — שלימות העילוי שבזבולון לגבי יששכר (זה שעל ידי עבודתם עושים דירה ל­הקב"ה, דירת קבע ונצחי) מתגלה בהם בעבודתם בתורה ותפלה[ftnref\_1164\_57]. וי"ל דהבחי­נה שבהיותו עסוק בעובדין דחול — עבד עבודתו כדבעי ועשה ה"דירה", וכ"ז מאיר באופן קבוע, היא כאשר לימודו ועבודתו ביום השבת (שאז פנוי מפרק­מטיא) היא באופן נעלה ביותר, גם מ­עבודת יושבי אהל.
+ויש לומר, שזוהי כוונת רבינו הזקן באגרתו הידועה[ftnref\_1165\_58], ש"בשבתות וימים טובים שגם כל בעלי עסקים יש להם פנאי ושעת הכושר להאריך בתפלתם ב­כוונת לבם ונפשם לה' ואדרבה עליהם
+
+## 140
+
+מוטל ביתר שאת ויתר עז" — די"ל ש­כוונתו אינה רק בנוגע להחיוב, שחל עליהם ביתר שאת ויתר עז (מיושבי אהל שיש להם פנאי להאריך בתפלה גם ב­ימות החול), אלא שעבודת התפלה שלהם היא "ביתר שאת ויתר עז" מתפלת יושבי אהל.
+וכמו שביאר אדה"ז במק"א[ftnref\_1166\_59], ש"זהו טעות הבעלי עסקים שבדעתם שאין יכולים להתפלל כ"כ כמו היושבי אוה­לים כי אדרבה נהפוך הוא שהם יכולים להתפלל יותר כי יתרון האור הוא מתוך החושך דוקא", וכמו שמבאר שם, שדוקא משום שבימי החול טרודים בעניני פר­נסה כו', הנה אח"כ בעת התפלה יכולים לעורר בעצמם אהבה בלתי מוגבלת ("ב­כל מאדך").
+ועד"ז הוא בנוגע לקביעות עתים בתורה — שיש יתרון מעלה בקביעות עתים לתורה של הבעלי עסק מפני "ש­הוא בחי' אתכפייא יותר מביושבי אוה­לים"[ftnref\_1167\_60], שזה שהבעל עסק כופה את עצמו כו' (נגד טרדותיו בעניני העולם) לעסוק בתורה, פועל שלימוד התורה שלו הוא באופן נעלה יותר מיושבי אהל.
+וזוהי ההוראה במעשה בפועל לרובם של בנ"י — שאופן עבודתם הוא ע"ד העבודה דבעלי עסקים (וגם עוסקים ב­צרכי ציבור הם בכלל זה): לכל לראש צריכים להוסיף בקביעות עתים לתורה, והקביעות צריכה להיות באופן דקביעות בנפש, וביום השבת צריכים גם לעסוק בעבודת התפלה באריכות,
+ואין זה דבר נוסף על שליחותם ה­עיקרית לעשות את העולם "בית זבול" לו ית', אלא קשורים זב"ז: העילוי של "בית זבול" הנעשה על ידי עבודתם בא לידי גילוי אצלם בלימוד תורתם וב­עבודתם בתפלה ובפרט בהאריכות ביום השבת.
+ועל ידי זה מקרבים עוד יותר בוא יום שכולו שבת ומנוחה לחיי העולמים, במהרה בימינו ממש.
+[quotation](משיחות ש"פ ויקרא תשמ"ב, ליל ה' דסוכות תשמ"ג) [/quotation]
+
+**English:**
+
+their home, the house of Israel, for each of them possesses a holy soul that is included in the soul of Yaakov—which is the unique excellence of Yaakov, the chosen of the Patriarchs, whose "bed was complete," unlike Avraham and Yitzchak, from whom "went forth" Yishmael and Esav.
+
+Seemingly, this is difficult to understand: How is it that Yaakov attained his spiritual success (not while he was occupied with Torah, etc., but) specifically while he was working and in the house of Lavan!
+
+d. The point of explanation here is as follows:
+Our Sages have said, "The righteous are... similar to their Creator." From this, it is understood that the explanation of the matter of Yaakov’s "primary dwelling" corresponds to what is explained regarding the "dwelling" of Hashem.
+
+It is known what our Sages said, "Hashem desired to have a dwelling place in the lower worlds." That is to say, the "dwelling" of Hashem is not in the upper worlds, which are spiritual worlds, but specifically in this lowly, physical world—to the point that, as our Alter Rebbe explains, "It is the lowest in level, than which there is no lower."
+
+This is the intent and goal of the avodah of Bnei Yisrael in general, and specifically throughout the entire duration of the galus: that through their avodah of clarifying and refining the world (by performing mitzvos with physical objects, and likewise by making "all your deeds for the sake of Heaven"—thereby sanctifying the physical things with which they serve Hashem), the world becomes a vessel fit for the supernal holiness. At the completion of this avodah (with the coming of Moshiach), the entire world will be a "dwelling" for Hashem.
+
+With this, we can understand the connection between the two aspects of "Zevulun": (a) The name Zevulun, from the expression "Beis Zevul," a permanent dwelling; (b) the nature of Zevulun: a man of business (not a "dweller of the tents"). For the drawing down of holiness into the physicality of the world is primarily through the avodah of the men of business, who, by engaging in the physical affairs of the world for the sake of Heaven and fulfilling mitzvos within them, make this physical world a "dwelling" for Hashem. Through the avodah of Zevulun, the "Beis Zevul" is created—a dwelling for Him, may He be blessed.
+
+This is the reason for the precedence of Zevulun (men of business) over Yissachar (dwellers of the tents)—"Rejoice, Zevulun, in your going out (and afterwards) Yissachar in your tents" (as mentioned above in section 2)—because regarding the matter of creating a dwelling for Hashem, which is specifically "in the lower worlds," in the physicality of the world "than which there is no lower"—
+
+It would have been logical to say that the permanent dwelling of Hashem should be through and in the matter of Torah, for Torah is eternal and will not be replaced, "standing forever and ever."
+
+f. The explanation for this is:
+A "dwelling" in a manner of permanence and eternity is indeed only possible in something that is eternal, such as Yisrael and Torah, which are eternal because they are attached to Hashem. The fact that the "dwelling" is created specifically through the avodah of Zevulun is (not due to the essence of the act of refining and clarifying the world, which is merely a temporary matter, as mentioned above, but) because through this avodah, the strength and eternity within Yisrael and Torah are brought to revelation.
+
+This is preceded by the content of the verse, "Hashem your G-d is testing you to know whether you love Hashem your G-d, etc." Through trials, the strength of the love for Hashem is brought to revelation.
+
+This is similar to what is explained elsewhere regarding the words of the Rambam concerning a baal teshuvah who "has tasted the taste of sin and departed from it and conquered his inclination," and his superiority over the righteous "who have never sinned." For one who has not tasted the taste of sin is not guaranteed to stand in his righteousness in all situations, even if he were to face trials to which he is not accustomed, etc. Consequently, his strength required to withstand these trials has not been brought into action, nor even into revelation.
+
+Not so the baal teshuvah who "has tasted the taste of sin and departed from it and conquered his inclination"—his strength has been revealed and brought into action, and he will not fail again (in the words of the Rambam, "He who knows hidden things will testify concerning him that he will never return, etc.").
+
+Likewise in our case: as long as Bnei Yisrael do not have dealings in the affairs of the world to clarify and refine them, even if they are occupied with Torah and the service of Hashem, the strength and eternity within their souls have not yet come to revelation, and certainly not to action in their avodah. Therefore, this is not an avodah that creates a dwelling for Hashem in actuality.
+
+It is specifically through the avodah of Zevulun, who engages in the "lower worlds"—"than which there is no lower in the matter of the concealment of His light, may He be blessed"—and nevertheless engages in Torah and fulfills mitzvos, etc., that he reveals the strength to be attached completely to Hashem. Through this, they become a "dwelling" for the Shechinah in a permanent and eternal manner.
+
+This is the connection between the "dwelling" that will be in the future at the completion of the avodah (of the entire duration of the galus), and the fact that then "the entire world will be occupied only with knowing Hashem... Yisrael will be great sages, etc.," the study of Torah in the manner of "his Torah is his craft." For the matter of the "dwelling," the "permanent dwelling" of Hashem, is revealed in the Torah study of Yisrael; however, for this study to be in the ultimate perfection, it is after the avodah of the entire duration of the galus.
+
+Based on the above, it is understood that there is no contradiction between the two aspects of Yaakov—(a) that his essence is Torah, as mentioned above, (b) that the perfection of his success in the manner of "and the man broke forth exceedingly" and the establishment of the tribes of Yisrael, etc., came specifically at the time of and through his avodah in the house of Lavan. For: in order for the Torah to be with Yaakov permanently and constantly without any limitation ("exceedingly"), this came about because Yaakov was in the "burning anger of the Place (in the world)," and there he was a shepherd (the work of Lavan). At that time, it was drawn down and revealed in the Torah and avodah of Yaakov that he would "break forth exceedingly," above all measurement and limitation.
+
+g. From what has been said—that the elevation achieved through the avodah of "Zevulun" in clarifying and refining the world will be brought to revelation in the Torah study of the days of Moshiach—there is also a practical difference in our avodah now:
+
+Even though in terms of quantity, most of the time of "Zevulun" is spent in engaging in the affairs of the world (for the sake of Heaven, etc.), nevertheless, he is obligated to set times for Torah, and likewise to engage in the avodah of tefillah.
+
+According to what was explained above, it is understood that this does not mean that men of business are also obligated in Torah study and the avodah of tefillah, but rather—the perfection of the elevation of Zevulun relative to Yissachar (that through their avodah they make a dwelling for Hashem, a permanent and eternal dwelling) is revealed in them through their avodah in Torah and tefillah. It can be said that the level where, while he is occupied with mundane tasks, he performs his avodah as required and creates the "dwelling," and all of this shines in a permanent manner, is when his study and avodah on the day of Shabbos (when he is free from business) is in the most elevated manner, even more than the avodah of the dwellers of the tents.
+
+It can be said that this is the intent of our Alter Rebbe in his well-known letter, that "on Shabbos and Yomim Tovim, when even all men of business have leisure and an opportune time to lengthen their tefillah with the intent of their heart and soul to Hashem—and on the contrary, it is incumbent upon them with greater intensity and greater strength"—it can be said that his intent is not only regarding the obligation, which falls upon them with greater intensity and greater strength (than upon the dwellers of the tents who have leisure to lengthen their tefillah even on weekdays), but that their avodah of tefillah is "with greater intensity and greater strength" than the tefillah of the dwellers of the tents.
+
+As the Alter Rebbe explained elsewhere, "This is the mistake of the men of business, who think that they cannot pray as much as the dwellers of the tents, for on the contrary, the opposite is true: they can pray more, for the advantage of light is specifically from within the darkness." As he explains there, specifically because on weekdays they are burdened with the affairs of livelihood, etc., afterwards, at the time of tefillah, they can awaken within themselves an unlimited love ("with all your might").
+
+Similarly, this is regarding setting times for Torah—that there is an advantage in the setting of times for Torah of the men of business because "it is a level of *iskafya* more than in the dwellers of the tents." The fact that the man of business forces himself, etc. (against his burdens in the affairs of the world) to engage in Torah, causes his Torah study to be in a more elevated manner than that of the dwellers of the tents.
+
+This is the practical instruction for the majority of Bnei Yisrael—whose manner of avodah is similar to the avodah of men of business (and those who engage in communal needs are also included in this): First and foremost, they must increase their setting of times for Torah, and the setting must be in a manner of "setting in the soul." On the day of Shabbos, they must also engage in the avodah of tefillah at length.
+
+This is not something additional to their primary mission to make the world a "Beis Zevul" for Him, may He be blessed, but they are connected to one another: the elevation of the "Beis Zevul" created through their avodah is brought to revelation within them through their Torah study and their avodah in tefillah, and specifically through the lengthiness on the day of Shabbos.
+
+And through this, we bring even closer the coming of the day that is entirely Shabbos and rest for eternal life, speedily in our days, truly.
+
+---
+
+_Section: ויצא_
+
+**Hebrew:**
+
+## שיחה ג
+
+## 141
+
+### שיחה ג
+
+א. עה"פ[ftnref\_1168\_1] "ויקם יעקב וישא את בניו ואת נשיו על הגמלים" מעתיק רש"י "את בניו ואת נשיו" ומפרש "הקדים זכרים לנקבות ועשו הקדים נקבות לזכרים שנאמר[ftnref\_1169\_2] ויקח עשו את נשיו ואת בניו וגו'".
+משטחיות לשון רש"י נראה, שבפי­רושו זה כוונתו לבאר השינוי שבין שני הכתובים — שביעקב נאמר "את בניו (ואח"כ) ואת נשיו", ובעשו להיפך — "את נשיו (ואח"כ) ואת בניו".
+אבל, כמדובר כמ"פ: כאשר ישנה אי­זו קושיא וסתירה בפשש"מ מכתוב אחד לשני, אין רש"י בפירושו עומד עלי' לתרצה בפסוק הראשון, מכיון שאין קושיא עדיין, אלא בפסוק השני, במקום שמתעוררת השאלה. ועפ"ז אינו מובן בנדו"ד, מהי הקושיא בכתוב כאן שיש צורך בפירוש וביאור, ואשר בגללה הוזקק רש"י להביא כאן ע"ד הנהגת עשו המסופרת לקמן בפ' וישלח?
+[מקורו של רש"י הוא אמנם מהמדרש עה"פ כאן[ftnref\_1170\_3], אבל פרש"י הרי ענינו, לכל לראש, הוא פשוטו של מקרא, ואין דרכו להעתיק אלא מדרשים המוכרחים ב­פשש"מ[ftnref\_1171\_4]].
+ב. גם צריך להבין:
+לכאורה אין בדברי רש"י הסברה ב­טעם השינוי בין הכתובים הנ"ל; רש"י רק מדגיש במה הוא השינוי, שיעקב הקדים זכרים לנקבות ועשו הקדים נקבות לזכרים, אבל אינו מבאר תוכנן של הנהגות אלו, למעליותא או לגרי­עותא.
+מפרשי רש"י[ftnref\_1172\_5] מבארים, "כי עשו. . הי' מקדים נשיו[ftnref\_1173\_6] קודם בנים דנשיו היו עיקר דעתו רק כי הבנים יצאו ממנו בסבת תאות נשיו[ftnref\_1174\_7] אבל יעקב לא נשא נשיו רק בשביל להעמיד תולדות שנים עשר שבטים ובניו היו גורמים לישא אשה לכך בניו קודמים שהם הסיבה לנשיו ועשו הנשים הם סיבה לבניו כו'".
+ועפ"ז אתי שפיר הא דלא ביאר רש"י ענין זה בפירושו כאן, כי כבר נתפרש הבדל זה בין הנהגות יעקב ועשו בפי­רוש רש"י לפנ"ז: הן אודות הנהגת עשו בתאוות נשים, ש"כל מ' שנה הי' עשו צד נשים מתחת יד בעליהן ומענה אותם"[ftnref\_1175\_8] (שמזה מובן גם בנוגע להנהגתו לאחר נישואיו); והן בנוגע להנהגתו ההפכית של יעקב, ש"לא נשא נשיו רק בשביל להעמיד תולדות" — מפורש כבר לעיל, דלא נשא אשה עד היותו בן פ"ד שנה כאשר "מלאו ימי" ואמר "אימתי אעמיד
+
+## 142
+
+י"ב שבטים"[ftnref\_1176\_9] (ועד אז עסק בתורה[ftnref\_1177\_10], וב­אופן ש"לא שכב בלילה"[ftnref\_1178\_11]), וזו היתה כוונתו באמרו ללבן "הבה את אשתי גו'"[ftnref\_1179\_12], שרק "להוליד תולדות אמר כך"[ftnref\_1180\_13].
+אבל עפ"ז אינו גלאַטיק לאידך גיסא: מה מחדש רש"י בפירושו זה? הרי ה­הבדל התוכני שבין שני אופני הקדימה אין הוא מבאר בפירושו כאן אלא סומך על המובן ממה שפירש כבר לפנ"ז; וב­נוגע לעצם השינוי בקדימה אין צורך בהערת רש"י, כי הוא דבר המפורש בה­כתוב עצמו (שביעקב נאמר "בניו" קודם ל"נשיו" ובעשו נאמר להיפך).
+ג. עוד צריך להבין (כמו שהאריכו במפרשים[ftnref\_1181\_14]): גם ביעקב נאמר[ftnref\_1182\_15] "ויקח את שתי נשיו ואת שתי שפחותיו ואת אחד עשר ילדיו", הרי מפורש שגם יעקב הקדים נשיו לילדיו, ורש"י אינו מעיר ע"ז כלום!
+עד"ז מצינו לעיל[ftnref\_1183\_16] שכשאמר יעקב ללבן "שלחני ואלכה גו'" הקדים נשיו לילדיו — "תנה את נשי ואת ילדי"[ftnref\_1184\_\*16]; וכן לקמן גבי משה נאמר[ftnref\_1185\_17] "ויקח משה את אשתו ואת בניו".
+ואף שבמפרשים[ftnref\_1181\_14] האריכו בטעמי ה­חילוקים שבין כתובים אלו להנאמר ב­כתוב זה — מ"מ, עדיין אינו מובן: לאחרי שרש"י כותב באופן סתמי שיעקב "הקדים זכרים לנקבות", דהיינו שזוהי ההנהגה המתאימה לאיש צדיק — איך יתכן שרש"י יסתום בכל מקומות הללו ולא יפרש במה שונים הם להיות יוצאים מן הכלל שכלל רש"י שיעקב "הקדים זכרים לנקבות"?
+[וכמדובר כמ"פ, שזה גופא שמצינו שקו"ט ארוכה במפרשי רש"י, זה מתרץ בכה וזה בכה כו', מכריח לומר שישנה הסברה פשוטה ביותר השוללת מעיקרא כל אריכות השקו"ט; שהרי לא מסתבר לומר שרש"י סותם וסומך שהבן חמש למקרא יעמוד על תירוצי המפרשים — כאשר במפרשים עצמם יש שקו"ט דזה בונה וזה סותר].
+ד. ויש לומר, שרש"י מתרץ כל זה בדיוק לשונו "הקדים זכרים לנקבות ועשו הקדים נקבות לזכרים" — דלכ­אורה אינו מובן, מדוע לא נקט רש"י לישנא דקרא: "בניו. . נשיו", "נשיו. . בניו"?
+אלא שכוונתו בזה להדגיש, דזה ש­יעקב הקדים לקיחת בניו הוא לא משום שבתור בניו (זרעו) החשיבם יותר מנשיו
+— שהרי אדרבה: הסדר הרגיל וה­מתאים הוא — שאדם מקדים אשתו ל­ילדיו, הן מפני שאשתו ה"ה אמם, ובאה לפני בניו (ומפני כבוד אשתו[ftnref\_1187\_18]), והן[ftnref\_1188\_19] —
+
+## 143
+
+שאם יקדים אותם לפני אשתו, ה"ז היפך ההדרכה בהנהגה של כיבוד אם —
+אלא מפני שהקדים זכרים לנקבות[ftnref\_1189\_20], כי בחיי (והתעסקותו של) יעקב הזכרים הם העיקר, כמובן בפשטות.
+וזהו הטעם שבכל הכתובים (גם גבי יעקב) שמצינו בהם קדימת הנשים לה­ילדים לא פרש"י מאומה, כי אין בהם שאלה, שהרי זוהי ההנהגה המתאימה (ל­הקדים האם להילדים);
+השאלה מתעוררת דוקא בפסוק דילן "וישא את בניו ואת נשיו" — שהקדים בניו לנשיו, היפך סדר הבריאה[ftnref\_1190\_21] וכיבוד אם (והיפך כבוד אשתו)? [וכמובן שאין התמי' (מצד כיבוד אם) על בני יעקב עצמם — איך עלו על הגמלים לפני אמותיהם, כי פשוט שלא יכלו לסרב ולהתנגד לרצון יעקב אביהם[ftnref\_1191\_22], אלא ה­שאלה היא בנוגע להנהגת יעקב, כיצד הורה להם לעלות על הגמלים לפני אמותיהם, הרי הנהגה זו היא היפך כ­הנ"ל?][ftnref\_1192\_23].
+ולכן מבאר רש"י "הקדים זכרים ל­נקבות" — ומשנה מלשון הכתוב "בניו. . נשיו" — דהקדמת "זכרים לנקבות" מכ­ריחה וקובעת אפילו כשהמדובר (כב­קרא זה) — קדימת בניו לנשיו (שהם אמותיהם)[ftnref\_1193\_\*23].
+ה. אבל רש"י אינו מסתפק בזה לחוד — כי אין בהנהגה זו של יעקב (שאצלו היו הזכרים העיקר) חידוש, לכאורה[ftnref\_1194\_24].
+ולכן ממשיך רש"י "ועשו הקדים נקבות לזכרים שנאמר ויקח עשו את נשיו ואת בניו וגו'"; שינוי והדגשה זו בפרש"י באה להדגיש את ההבדל וה­הפרש שבין הנהגת יעקב והנהגת עשו (גם בענין זה), כי "עשו הקדים נקבות לזכרים".
+כלומר:
+כשלומדים אודות הנהגת עשו "ויקח. . את נשיו ואת בניו ואת בנותיו", הי' מקום לומר, שהטעם שהקדים עשו נשיו לבניו ובנותיו הוא מפני שכלפי חוץ
+
+## 144
+
+העמיד פנים כאיש המתנהג בכבוד וב­נימוס, וכפי שדייק בכיבוד אב, שלא ל­צער את אביו[ftnref\_1195\_\*24], ואדרבה, השתדל לג­רום לו נח"ר[ftnref\_1196\_25] וכבוד כו'. וכן בעניננו, שכאשר לקח משפחתו עמו, התנהג בני­מוס ובדרך ארץ והקדים את נשיו לבניו ובנותיו.
+וזהו שרש"י מחדש — שהטעם שעשו לקח נשיו תחלה הי' (לא מצד הנהגתו בדרך ארץ ובנימוס, כ"א) מפני ש"הקדים נקבות לזכרים"[ftnref\_1197\_\*25].
+[ועפ"ז יומתק עוד דיוק בפירש"י זה, שבהביאו את הכתוב בנוגע לעשו מדייק לכתוב "ויקח עשו את נשיו ואת בניו וגו'"[ftnref\_1198\_26], שתיבת "וגו'" מכוונת להמשך ה­כתוב "ואת בנותיו" — ומ"מ לא העתיקו בפירוש.
+והיינו, מכיון שלפי פירש"י לא היתה הקדמת נשיו לבניו אלא רק משום "שהקדים נקבות לזכרים", הרי מעתה אין מקום להביא סיומו של הכתוב "ואת בנותיו", כי הוא כעין ראי' לסתור (ש(בנוגע לזרעו,) גם עשו הקדים בניו לבנותיו[ftnref\_1199\_27])].
+ו. מיינה של תורה בפרש"י:
+הטעם הפנימי לכך שרש"י מביא ע"ד הנהגת עשו — "ועשו הקדים נקבות לזכרים", בפסוק המדבר אודות יעקב — יש לומר, בהקדים:
+אע"פ שע"פ סדר התורה קדימה ל­זכרים, ובלשון הכתוב[ftnref\_1200\_28] "והוא ימשל בך" — מ"מ מצינו לפעמים גם קדימה לנקבות, וכמפורש[ftnref\_1201\_29] לפני זה בנוגע ל­ראשון שבאבות אברהם. ואדרבה — אחד מהיעודים דלעתיד הוא שאז "נקבה תסובב גבר"[ftnref\_1202\_30] (וכמבואר בזה[ftnref\_1203\_31], שאז תתגלה מעלת הנשים).
+ועפ"ז י"ל שזהו הרמז במה שהביא רש"י כאן ענין זה דהקדמת נקבות ל­זכרים (בעשו) — כי גם ביעקב, סדר ד­קדושה, ישנה הנהגה כזו, אלא שזהו לא בעבודת יעקב מצ"ע, אלא "עבודת עשו" שביעקב.
+והענין: נת' במ"א[ftnref\_1204\_32] שגם עשו, להיותו בנו של יצחק, נולד עם כחות ויכולת לעבוד את השם[ftnref\_1205\_33] לפי דרכו המיוחדת ב­התאם לטבעו ותכונות נפשו[ftnref\_1206\_34], ויתירה
+
+## 145
+
+מזה הי' בכור לעבודה להקב"ה[ftnref\_1207\_35].
+אלא שבבחירתו החפשית "יצא" ו­נפרד[ftnref\_1208\_36] מקדושת יצחק.
+וזהו הרמז בלשון רש"י[ftnref\_1209\_37] — "ואלה תולדות יצחק, יעקב ועשו האמורים בפרשה": זה שעשו הוא אחד מ"תולדות יצחק" (מתייחס אליו כבנו), הוא (רק) עשו ה"אמור בפרשה", היינו עשו כפי שהיתה צ"ל עבודתו והנהגתו ע"פ תורה.
+ומכיון שעשו נפרד מקדושת יצחק, הרי גם עבודת עשו הייתה צריכה ל­העשות ע"י יעקב — נוסף על עבודת יעקב מצד עצמו, עליו לעשות גם ה­עבודה — בקדושה — שמתחילה נועדה לעשו.
+ועד"ז י"ל בעניננו: זה שהנהגת עשו בקדימת נקבות לזכרים היא הנהגה גרועה ושפלה כו' — הוא כפי שעשו יצא ונפרד מקדושת יצחק; אבל הנהגה זו יש בה ג"כ אופן למעליותא כפי שעשו (ועבודתו) "אמור בפרשה"[ftnref\_1210\_38].
+ז. ההסברה בזה:
+זכר ונקבה — איש ואשה — מורים גם על שני אופנים בעבודת השם, עבודת המוח ועבודת הלב. וע"ד החילוק בזה בין איש ואשה, שעיקר ענין המוחין (והלימוד) הוא בהאיש[ftnref\_1211\_39], וייחודה של האשה (לגבי האיש) הוא בענין הרגש והמדות.
+ומעלה בכל אחד:
+מעלת המוחין והשכל היא — שהאדם רואה ותופס בעין שכלו אמיתית הדבר כמו שהוא (בלי תערובת "שוחד" ונטיות טבע האדם); משא"כ רגש האדם ומדותיו "תופסים" הדבר בהתאם לנטיות ורצונות האדם;
+ולאידך יש מעלה במדות על השכל, כי טבע השכל הוא ענין הקרירות, בלי התפעלות, ובמילא במדידה והגבלה; משא"כ כשיש לאדם רגש באיזה ענין, הרי מצד החמימות וההתפעלות בזה הת­קשרותו והתעסקותו בהענין היא בתוקף גדול.
+ועד"ז החילוק בין שני הסדרים — הקדים זכרים לנקבות, או נקבות ל­זכרים:
+סדר הבריאה בכלל הוא באופן ד"הוא ימשל בך" (זכרים קודם לנקבות) — כי הסדר הרצוי הוא, אשר המוח ישלוט על הלב[ftnref\_1212\_40], כלומר, המדות צרי­כות להיות (אבל צ"ל) מונהגות ע"י השכל. כי אם ילך האדם אחרי נטיות לבו, עלול הדבר להזיק לא רק למוח ש­בראש אלא גם לרגש שבלב עצמו; ורק כאשר המדות מונהגות ומודרכות ע"י
+
+## 146
+
+השכל שבמוח, אזי חמדת הלב (ובמילא הנהגת האדם) היא כדבעי.
+אמנם לפעמים ישנו מצב שהאדם מוכרח לעבוד את קונו למעלה מכפי הסדר דטעם ודעת, והוא כאשר רבו ה­העלמות וההסתרים ומנגדים לעבודת השם, שאז אינו מספיק לעבוד את ה' באופן מדוד ומוגבל ע"פ טעם ודעת, אלא זקוקים לעבודה נעלית יותר, של­מעלה מהגבלת השכל. וזה מתגלה ב­עבודת הלב דוקא (וכידוע[ftnref\_1213\_41] שעצם ה­נפש מתגלה בלב דוקא, ולא במוח).
+וזהו הרמז בפרש"י שיעקב "הקדים זכרים לנקבות ועשו הקדים נקבות לזכרים": עבודתו של יעקב, "איש תם יושב אהלים"[ftnref\_1214\_42], היא עבודה ע"פ סדר, זכרים לפני נקבות, תחילה עבודת המוח ועי"ז בא לעבודת הלב (והלב משפיע על שאר חלקי הגוף);
+אבל בעבודת עשו — "איש שדה"[ftnref\_1215\_43], עבודה במקום של העלמות והסתרים[ftnref\_1216\_44] — הסדר הוא להיפך, נקבות לפני הזכ­רים, כי בעבודה זו אי אפשר להסתפק בעבודה שבמדידה והגבלה ע"פ הסדר, אלא צ"ל עבודה שלמעלה מסדר, של­מעלה ממדידה והגבלה, כנ"ל.
+וי"ל שזהו גם אחד הביאורים בזה שלעתיד לבוא "נקבה תסובב גבר" — כי, כל[ftnref\_1217\_45] הגילויים דלעתיד לבא תלויים "ב­מעשינו ועבודתנו כל זמן משך הגלות", והיינו שאז יתגלו כל העילויים שנעשו על ידי עבודתנו בזמן הגלות. ואחד מה­עילויים העיקריים בהעבודה בזמן הג­לות — ובפרט בגלותנו זה האחרון (גלות עשו, אדום) שרבו בו ההעלמות וההסת­רים וכו' — היא העבודה דמסירת נפש[ftnref\_1218\_46], שלמעלה מטעם ודעת, המתגלית בעיקר בלב.
+ח. עפ"ז יש לבאר גם הטעם הפנימי שענין זה — ש"עשו הקדים נקבות ל­זכרים" — הובא ברש"י בקשר לסיפור בריחת יעקב מלבן והכנתו לפגוש את עשו:
+מבואר בכ"מ[ftnref\_1219\_47] הטעם ששלח יעקב מלאכים לעשו (כמסופר בפ' הסמוכה, וישלח[ftnref\_1220\_48]), כי יעקב הי' כבר מוכן אז לה­מצב דלעתיד, שאז יהי' "ועלו מושיעים בהר ציון לשפוט את הר עשו"[ftnref\_1221\_49], אלא שאח"כ הודיעו המלאכים ליעקב שעשו הוא עדיין במדריגה תחתונה ביותר, ואדרבה, "הולך לקראתך וארבע מאות איש עמו"[ftnref\_1222\_50] — היינו שהוא במצב הפכי לגמרי, ובמילא עדיין צריכים לעבור את גלות עשו (אדום), ושלימות הבירור יהי' בימי המשיח, כמו שפירש"י בפ' וישלח[ftnref\_1223\_51].
+וזהו הרמז בפרש"י כאן, גבי בריחת יעקב מלבן: כאשר נגמרה גלותו של יעקב אצל לבן (דהיינו, שיעקב גמר עבודתו אצלו ונגמר בירורו של לבן) והותחלו הכנותיו של יעקב לעבודתו עם
+
+## 147
+
+עשו, הרי כפי שראה יעקב את עשו — ראהו כפי שהוא בשרשו ("אמור בפר­שה" —), דהיינו כפי שהוא אחר הבירור והזיכוך כבשרשו ומוכן להגאולה, שאז תהי' הקדמת "נקבות לזכרים" למעל­יותא, "נקבה תסובב גבר",
+כן תהי' לנו בביאת משיח צדקנו, בקרוב ממש.
+[quotation](משיחות ש"פ ויצא, וישלח תשמ"ב, ש"פ נשא תשד"מ) [/quotation]
+
+**English:**
+
+## Sicha 3
+
+### 141
+
+A. Regarding the verse, "And Yaakov arose and lifted his sons and his wives upon the camels," Rashi quotes, "his sons and his wives," and explains: "He prioritized the males over the females, whereas Esav prioritized the females over the males, as it is said, 'And Esav took his wives and his sons, etc.'"
+
+On the surface of Rashi’s language, it appears that his intent is to explain the change between the two verses—that regarding Yaakov it says, "his sons (and then) his wives," while regarding Esav it is the opposite: "his wives (and then) his sons."
+
+However, as has been discussed many times: when there is a question or contradiction in the plain meaning of Scripture (*peshuto shel mikra*) between one verse and another, Rashi does not pause to resolve it at the first verse, since the question has not yet arisen; rather, he addresses it at the second verse, where the question is triggered. Based on this, it is not understood in our case: what is the difficulty in the verse here that necessitates an explanation, and because of which Rashi felt compelled to bring in the conduct of Esav, which is only recounted later in Parshas Vayishlach?
+
+[While the source of Rashi is indeed from the Midrash on this verse, the essence of Rashi’s commentary is, first and foremost, the plain meaning of Scripture, and it is not his custom to quote Midrashim unless they are necessary for the plain meaning.]
+
+B. It is also necessary to understand:
+Seemingly, Rashi’s words do not provide an explanation for the reason behind the change between the aforementioned verses; Rashi only emphasizes what the change is—that Yaakov prioritized the males over the females, and Esav prioritized the females over the males—but he does not explain the content of these behaviors, whether for better or for worse.
+
+The commentators on Rashi explain: "Because Esav... would prioritize his wives over his children, for his wives were the focus of his mind, and the children were only born to him as a result of his wives' desires. But Yaakov did not take his wives except to establish the offspring of the twelve tribes, and his sons were the cause for his taking a wife; therefore, his sons take precedence, as they are the cause for the wives, whereas with Esav, the wives are the cause for the children, etc."
+
+Based on this, it is well-understood why Rashi did not explain this matter in his commentary here, for this difference between the behaviors of Yaakov and Esav had already been explained in Rashi’s commentary earlier: both regarding Esav’s conduct regarding the desire for women, that "all forty years Esav was trapping women from under their husbands' hands and tormenting them" (from which one also understands regarding his conduct after his marriage); and regarding the opposite conduct of Yaakov, that "he did not take his wives except to establish offspring"—it is already explained above that he did not take a wife until he was eighty-four years old, when "my days were fulfilled" and he said, "When shall I establish
+
+## 142
+
+the twelve tribes?" (and until then he was occupied with Torah, in such a way that "he did not sleep at night"), and this was his intent when he said to Lavan, "Give me my wife, etc.," that only "to beget offspring did he say so."
+
+But based on this, it is not "glatt" (smooth) on the other side: What does Rashi innovate in this commentary? He does not explain the substantive difference between the two ways of prioritizing in his commentary here, but rather relies on what is understood from what he already explained earlier; and regarding the change in priority itself, there is no need for Rashi’s remark, for it is a matter explicitly stated in the verse itself (that regarding Yaakov it says "his sons" before "his wives," and regarding Esav it says the opposite).
+
+C. It must also be understood (as the commentators have elaborated): Even regarding Yaakov it is said, "And he took his two wives and his two handmaids and his eleven children"—here it is explicit that Yaakov also prioritized his wives over his children, and Rashi does not remark on this at all!
+
+Similarly, we find above that when Yaakov said to Lavan, "Send me away and I will go, etc.," he prioritized his wives over his children—"Give me my wives and my children"; and likewise, later regarding Moshe it is said, "And Moshe took his wife and his sons."
+
+And even though the commentators have elaborated on the reasons for the differences between these verses and the one stated here—nevertheless, it is still not understood: after Rashi writes in a general way that Yaakov "prioritized the males over the females," meaning that this is the conduct appropriate for a righteous man—how is it possible that Rashi remains silent in all these other places and does not explain how they differ so as to be exceptions to the rule that Rashi established, that Yaakov "prioritized the males over the females"?
+
+[And as has been discussed many times, the very fact that we find a long back-and-forth in the commentators on Rashi—this one resolves it this way, and that one that way, etc.—compels us to say that there is a very simple explanation that negates the entire length of the debate from the outset; for it is not reasonable to say that Rashi remains silent and relies on a five-year-old child studying Scripture to arrive at the resolutions of the commentators—when among the commentators themselves there is a debate where one builds and another destroys.]
+
+D. It can be said that Rashi resolves all of this precisely through his language, "He prioritized the males over the females, and Esav prioritized the females over the males"—for seemingly, it is not understood why Rashi did not use the language of the verse: "his sons... his wives," "his wives... his sons"?
+
+Rather, his intent in this is to emphasize that the fact that Yaakov prioritized taking his sons was not because he considered them (his seed) more important than his wives—for on the contrary: the regular and appropriate order is that a man prioritizes his wife over his children, both because his wife is their mother and comes before his children (and because of the honor due to his wife), and also—
+
+## 143
+
+that if he were to prioritize them before his wife, it would be the opposite of the instruction in the conduct of honoring one's mother—
+Rather, it is because he prioritized the males over the females, for in the life (and occupation) of Yaakov, the males are the essence, as is understood simply.
+
+And this is the reason why in all the verses (also regarding Yaakov) where we find the precedence of wives over children, Rashi does not explain anything, for there is no question there, as that is the appropriate conduct (to prioritize the mother over the children);
+The question arises specifically in our verse, "And he lifted his sons and his wives"—that he prioritized his sons over his wives, the opposite of the order of creation and the honor of one's mother (and the opposite of the honor due to one's wife)? [And of course, there is no wonder (from the perspective of honoring one's mother) regarding the sons of Yaakov themselves—how they got on the camels before their mothers, for it is simple that they could not refuse or oppose the will of Yaakov their father, but the question is regarding the conduct of Yaakov, how he instructed them to get on the camels before their mothers, for is this conduct not the opposite of the aforementioned?].
+
+And therefore Rashi explains, "He prioritized the males over the females"—and changes from the language of the verse "his sons... his wives"—for the prioritization of "males over females" compels and determines [the order] even when the subject is (as in this verse)—the prioritization of his sons over his wives (who are their mothers).
+
+E. But Rashi is not satisfied with this alone—for there is no innovation, seemingly, in this conduct of Yaakov (that for him the males were the essence).
+
+And therefore Rashi continues, "And Esav prioritized the females over the males, as it is said, 'And Esav took his wives and his sons, etc.'"; this change and emphasis in Rashi’s commentary comes to emphasize the difference and distinction between the conduct of Yaakov and the conduct of Esav (also in this matter), for "Esav prioritized the females over the males."
+
+That is to say:
+When one learns about the conduct of Esav, "And Esav took... his wives and his sons and his daughters," there was room to say that the reason Esav prioritized his wives over his sons and daughters was because outwardly
+
+## 144
+
+he put on a pretense of being a man who conducts himself with honor and etiquette, and as he was precise in honoring his father, so as not to cause his father pain, and on the contrary, he strove to cause him pleasure and honor, etc. And likewise in our matter, that when he took his family with him, he conducted himself with etiquette and proper behavior and prioritized his wives over his sons and daughters.
+
+And this is what Rashi innovates—that the reason Esav took his wives first was (not because of his conduct in etiquette and manners, but rather) because "he prioritized the females over the males."
+
+[And based on this, another precision in this Rashi is sweetened: that in bringing the verse regarding Esav, he is precise to write, "And Esav took his wives and his sons, etc.," that the word "etc." refers to the continuation of the verse, "and his daughters"—and nevertheless he did not quote it in the commentary.
+
+And this is because, according to Rashi, the prioritization of his wives over his sons was only because "he prioritized the females over the males," so from now on there is no place to bring the end of the verse, "and his daughters," because it is like a proof to the contrary (that (regarding his seed,) Esav also prioritized his sons over his daughters)].
+
+F. The inner dimension of Torah in Rashi:
+The inner reason for why Rashi brings the matter of Esav’s conduct—"And Esav prioritized the females over the males"—in a verse that speaks about Yaakov, can be said, by way of introduction:
+Even though according to the order of the Torah there is precedence for males, and in the language of the verse, "And he shall rule over you"—nevertheless, we sometimes find precedence for females as well, as is explicit before this regarding the first of the Patriarchs, Avraham. And on the contrary—one of the prophecies for the future is that then "a female shall encompass a male" (and as is explained regarding this, that then the virtue of women will be revealed).
+
+And based on this, it can be said that this is the hint in what Rashi brought here, this matter of the prioritization of females over males (in Esav)—for also in Yaakov, the order of holiness, there is such conduct, but this is not in the service of Yaakov himself, but rather the "service of Esav" that is within Yaakov.
+
+And the matter: It is explained elsewhere that also Esav, being the son of Yitzchak, was born with the powers and ability to serve Hashem according to his own unique way in accordance with his nature and soul traits, and furthermore
+
+## 145
+
+he was the firstborn for the service of the Holy One, Blessed be He.
+However, through his free choice, he "went out" and separated from the holiness of Yitzchak.
+
+And this is the hint in the language of Rashi—"And these are the generations of Yitzchak, Yaakov and Esav, who are mentioned in the Parsha": That Esav is one of the "generations of Yitzchak" (related to him as a son), is (only) Esav as he is "mentioned in the Parsha," meaning Esav as his service and conduct should have been according to Torah.
+
+And since Esav separated from the holiness of Yitzchak, the service of Esav also had to be performed by Yaakov—in addition to the service of Yaakov from his own perspective, he must also perform the service—in holiness—that was originally intended for Esav.
+
+And similarly, it can be said regarding our matter: That the conduct of Esav in prioritizing females over males is a lowly and degraded conduct, etc.—is as Esav went out and separated from the holiness of Yitzchak; but this conduct also has a way for the better, as Esav (and his service) is "mentioned in the Parsha."
+
+G. The explanation of this:
+Male and female—man and woman—also indicate two modes in the service of Hashem: the service of the intellect and the service of the heart. And similar to the difference between man and woman, that the essence of the intellect (and study) is in the man, and the uniqueness of the woman (relative to the man) is in the matter of emotion and traits.
+
+And there is a virtue in each:
+The virtue of the intellect and reason is that a person sees and grasps with the eye of his intellect the truth of the thing as it is (without the mixture of "bribes" and the natural inclinations of man); whereas the emotion and traits of a person "grasp" the thing in accordance with the inclinations and desires of the person;
+And on the other hand, there is a virtue in the traits over the intellect, for the nature of the intellect is a matter of coolness, without arousal, and consequently in measurement and limitation; whereas when a person has emotion regarding a certain matter, then from the warmth and arousal in it, his connection and involvement in the matter is with great intensity.
+
+And similarly, the difference between the two orders—prioritizing males over females, or females over males:
+The order of creation in general is in the manner of "And he shall rule over you" (males before females)—for the desired order is that the intellect should rule over the heart, meaning, the traits must be (but they must be) conducted by the intellect. For if a person follows the inclinations of his heart, the matter is liable to damage not only the intellect in the head but also the emotion in the heart itself; and only when the traits are conducted and guided by
+
+## 146
+
+the intellect in the head, then the desire of the heart (and consequently the conduct of the person) is as it should be.
+
+However, sometimes there is a situation where a person is forced to serve his Creator above the order of reason and knowledge, and that is when the concealments and obstructions and opponents to the service of Hashem have multiplied, for then it is not sufficient to serve Hashem in a measured and limited way according to reason and knowledge, but one needs a higher service, which is above the limitation of the intellect. And this is revealed specifically in the service of the heart (and as is known that the essence of the soul is revealed specifically in the heart, and not in the intellect).
+
+And this is the hint in Rashi that Yaakov "prioritized the males over the females and Esav prioritized the females over the males": The service of Yaakov, "a simple man, a dweller of tents," is service according to order, males before females, first the service of the intellect and through this he comes to the service of the heart (and the heart influences the other parts of the body);
+But in the service of Esav—"a man of the field," service in a place of concealments and obstructions—the order is the opposite, females before males, for in this service it is impossible to suffice with service that is in measurement and limitation according to order, but there must be service that is above order, that is above measurement and limitation, as aforementioned.
+
+And it can be said that this is also one of the explanations for that which in the future "a female shall encompass a male"—for, all the revelations of the future depend "on our deeds and our service throughout the duration of the exile," and this means that then all the elevations that were achieved through our service during the time of the exile will be revealed. And one of the main elevations in the service during the time of the exile—and especially in this last exile (the exile of Esav, Edom) in which the concealments and obstructions have multiplied, etc.—is the service of *mesiras nefesh*, which is above reason and knowledge, which is revealed primarily in the heart.
+
+H. Based on this, one must also explain the inner reason why this matter—that "Esav prioritized the females over the males"—was brought in Rashi in connection with the story of Yaakov’s flight from Lavan and his preparation to meet Esav:
+It is explained in many places the reason why Yaakov sent angels to Esav (as recounted in the following Parsha, Vayishlach), because Yaakov was already prepared then for the situation of the future, when "saviors shall ascend Mount Zion to judge the Mount of Esav," but then the angels informed Yaakov that Esav is still at the lowest level, and on the contrary, "he is coming toward you and four hundred men with him"—meaning that he is in a completely opposite state, and consequently we still need to pass through the exile of Esav (Edom), and the perfection of the clarification will be in the days of *Mashiach*, as Rashi explains in Parshas Vayishlach.
+
+And this is the hint in Rashi here, regarding Yaakov’s flight from Lavan: when Yaakov’s exile by Lavan was finished (meaning, that Yaakov finished his service by him and the clarification of Lavan was finished) and Yaakov’s preparations for his service with
+
+## 147
+
+Esav began, Yaakov saw Esav—he saw him as he is in his root ("mentioned in the Parsha"—), meaning as he is after the clarification and refinement in his root and ready for the redemption, when there will be the prioritization of "females over males" for the better, "a female shall encompass a male,"
+
+So shall it be for us with the coming of *Mashiach Tzidkeinu*, very soon.
+
+---
+
+
+## וישלח
+
+_Section: וישלח_
+
+**Hebrew:**
+
+## שיחה א
+
+## 150
+
+וגדר השגחה פרטית זו ביאר ה­בעש"ט[ftnref\_1246\_23] — "דלא זו בלבד דכל פרטי תנועות הנבראים למיניהם הם בהשגחה פרטית מהבורא ית'", אלא "עוד זאת דתנועה פרטית דנברא פרטי הרי יש לו יחס כללי לכללות כוונת הבריאה. . דגם תנועה אחת של דשא פרטי משלים הכוונה העליונה בענין הבריאה".
+[וכמדובר כמ"פ דוגמא פשוטה לזה בחיי האדם: דרכה של אשת חיל[ftnref\_1247\_24], ע­קרת­בית מוצלחת היא, שנוסף על ש­היא מפקחת היטב על כל פרטי הדברים הנמצאים בביתה, שכל דבר נמצא במקו­מו הראוי לו והכל מתנהג בסדר מדויק — הנה עוד זאת, שכל פרטי חפצי ביתה יש להם חלק במטרה הכללית של הנ­הגת הבית, עד שהכל הוא בחשבון ו­בדיוק באופן דלא חסר ולא יתר — לא חסר משהו להנהגת הבית ואין דבר מיותר (שאינו משמש למטרה זו).
+ואם כן הדבר בחיי עקרת­בית פשו­טה — עאכו"כ להבדיל הבדלות עד אין קץ אצל בורא העולם ומנהיגו, שנוסף שכל פרטי המאורעות של כל הנבראים שבעולמו של הקב"ה הם ע"פ השגחתו ית', הנה כל אחד מהם נוגע להשלמת הכוונה העליונה בענין הבריאה].
+ג. מובן, שגם לפי שיטת הבעש"ט (שיש השגחה פרטית על כל הברואים) יש הבדל יסודי בין ההשגחה פרטית ש­על כל הברואים והשגחתו ית' שעל בני ישראל.
+וכמו שמביא כ"ק מו"ח אדמו"ר בשם הבעש"ט[ftnref\_1248\_25], דאף שהשגח"פ היא על כל הברואים וגם על פרט קטן ביותר — מ"מ, ענין ההשגח"פ על עם קרובו ית' אי אפשר לצייר ואי אפשר להבין ("דאָס קען מען גאָרניט אויסמאָלן. . דאָס וואָס עס איז נוגע אַ אידן הוא בהשגחה פרטית וואָס מען קען דאָס ניט פאַר­שטיין").
+ומפשטות הלשון מובן, שעילוי זה הוא גם בנוגע לפרטיותה של ההשגחה. כלומר, באיזו מדה כל פרט ופרט מוש­גח ממנו ית' ומשלים הכוונה העליונה.
+דהנה ידוע[ftnref\_1249\_26] שיש כמה מדריגות ואו­פנים בהשגחה — מהם, בלשון הכתוב[ftnref\_1250\_27] "עין ה' אל יראיו", "עיני ה' אל צדיקים" (בעין א' או בב' עינים[ftnref\_1251\_28]) — שהחילוק בי­ניהם[ftnref\_1252\_29] י"ל (לכאורה) הוא לא ב"פרטיות" ההשגחה אלא רק באופנה, ולדוגמא: אם ההשגחה מלובשת ומוסתרת בדרכי ה­טבע, או שהיא השגחה גלוי' לעין כל (ועד שהיא מביאה להנהגה נסית כו').
+אבל מפשטות המשך לשון כ"ק מו"ח אדמו"ר (בשם הבעש"ט) הנ"ל משמע, ש­העילוי בהשגחה על עם קרובו ית' הוא לא רק באופנה אלא גם בפרטיותה. דעם היות שהשגח"פ היא על כל הברואים, ועד שכל פרט ופרט נוגע להשלמת ה­כוונה הכללית בענין הבריאה — מ"מ, יש
+
+## 151
+
+עילוי נפלא בההשגחה על כל פרט ו­פרט של עם קרובו (ועילוי כזה שהוא למעלה מן השכל).
+ד. ויש לומר הביאור בזה:
+אף שכל הברואים "לא נמצאו אלא מאמתת המצאו"[ftnref\_1253\_30] ומושגחים מאתו ית' — מ"מ, (עיקר) רצונו ובחירתו של הקב"ה הוא רק בישראל, ש"בחר בנו מכל ה­עמים"[ftnref\_1254\_31], ונאמר[ftnref\_1255\_32] "אהבתי אתכם אמר ה' גו' אח עשו ליעקב גו' ואוהב את יעקב".
+וי"ל שזהו גם תוכן מאמר רז"ל[ftnref\_1256\_33] שה­עולם נברא "בשביל התורה. . ובשביל ישראל": ישראל ותורה הם כוונת ה­בריאה (וכמחז"ל[ftnref\_1257\_34] "אני (לא[ftnref\_1258\_\*34]) נבראתי (אלא[ftnref\_1258\_\*34]) לשמש את קוני"), רצונו ובחי­רתו של הקב"ה הוא בהם עצמם;
+משא"כ שאר הנבראים אינם תכלית ומטרה בפני עצמם אלא רק "אמצעי" שעל ידם נשלמה כוונת הקב"ה בתורה וישראל, וכמאמר חז"ל[ftnref\_1257\_34] ש"לא נבראו אלא לשמשני", שאין רצונו ית' בהם מצד עצמם והם רק "משמשים" ("אמצעי") לתורה וישראל.
+והנה תכונת ענין הרצון (והבחירה) היא[ftnref\_1261\_35], דכאשר רוצים (ובוחרים) באיזה דבר אפשר שהרצון בכל חלקי ופרטי הדבר יהי' בשווה (באותו התוקף), למ­רות החילוקים בחשיבותם ומעלתם של הפרטים (מצד תוכנם הם) [ועד שכאשר יחסר פרט אחד מהדבר (גם פרט קטן וטפל לכאורה) יחסר בהכלל כולו, מ­אחר שרצונו לא נשלם].
+וכמו שמצינו בענין המצות, שהם רצון העליון ב"ה (גזירות המלך[ftnref\_1262\_36]), דאף שמצינו חילוקים מן הקצה אל הקצה במצות התורה, בלשון חז"ל[ftnref\_1263\_37] שיש "קלה שבקלות" ויש עד ל"חמורה שבחמורות" — מ"מ אמרו[ftnref\_1263\_37] "לא תהא יושב ושוקל מצוותי' של תורה" אלא צ"ל אותה ה­זהירות בכל המצוות בשווה; כי למרות החילוקים שבין המצות בתוכנם (בלשון החינוך "שרשי המצוה") וכיו"ב — כולן הן רצונו ית', "אשר קדשנו במצותיו ו­צונו"[ftnref\_1265\_38], וזה הוא בשווה ממש בכל ה­מצות. דכמו שהקב"ה רוצה את החמורות כך רוצה את הקלות, באותו רצון[ftnref\_1266\_39].
+[וי"ל אשר מצד ענין זה שבמצוות, מצינו לפעמים, שכשחסר פרט אחד — חסר הכלל כולו. וכמו: גר שקיבל עליו כל התורה כולה חוץ מדבר אחד (אפילו מדברי סופרים) אין מקבלין אותו[ftnref\_1267\_40]; וכן "האומר שאין התורה מעם ה' אפילו פסוק אחד אפילו תיבה אחת. . ה"ז
+
+## 152
+
+כופר בתורה"[ftnref\_1268\_41], "ואין[ftnref\_1269\_42] (בזה) הפרש בין ובני חם כוש ומצרים[ftnref\_1270\_43] ושם אשתו מהי­טבאל[ftnref\_1271\_44]. . ובין אנכי ה' אלקיך[ftnref\_1272\_45] כו'"].
+ה. ועפ"ז מובן העילוי בהשגחה פר­טית על ישראל עם קרובו של הקב"ה לגבי ההשגחה פרטית על שאר עניני הבריאה:
+בשאר הברואים, אף שכל פרט ופרט נוגע להשלמת הכוונה הכללית (כנ"ל), מ"מ, מכיון שחשיבות הפרטים תלוי' במעלתם
+[כמו גוף האדם, דאף ששלימותו היא כאשר יש בו כל האברים (וגם שערות וצפרנים), מ"מ אי אפשר לדמות כלל חשיבות האברים שהנשמה תלוי' בהם ל­גבי שאר חלקי הגוף (ומכל שכן ל­שערות וצפרנים שהם פרטים טפלים ביותר)]
+לכן, גם ההשגחה שעל כל פרט ופרט היא ב"כל אחד לפי מעלתו"[ftnref\_1273\_46] (עד כמה הוא "משמש" את התורה ואת ישראל).
+משא"כ בישראל עם קרובו, מכיון שהשגחתו ית' עליהם היא תוצאה מרצונו ובחירתו בהם, הרי נוסף לזה שיש הש­גחה על כל פרט ופרט (ובאופן שכל פרט משלים הכוונה הכללית בענין ה­בריאה) — הנה אופן ההשגחה על ה­פרטים הוא לא רק כפי חשיבותו הפרטית של כל פרט ופרט (שבזה יש חילוקים לפי חשיבותו של הפרט), אלא ההשגחה היא באופן שווה בכולם. כי מצד רצונו ובחירתו ית' בישראל, הרי כל פרט ופרט שבהם "נוגע" באופן שווה[ftnref\_1274\_47].
+ו. ע"פ כל זה יש לבאר הטעם מה שה"זכר" להצלת יעקב נקבע דוקא ב­פרט אחד של המאורע, ובזה גופא — מדייקים בפרט שבפרט (אם רק גיד ש­בירך ימין או גם של שמאל וכו') — כי עי"ז בא לידי ביטוי גדר ואופן השגחתו ית' על יעקב אבינו (ובמילא — גם על עם ישראל, בני יעקב):
+
+## 153
+
+השגחתו ית' היא באופן כזה, שלא זו בלבד שכל פרט ופרט מושגח מאתו יתברך (ויתירה מזו — שכל פרט ופרט נוגע להשלמת הכוונה הכללית) — אלא עוד זאת, שבענין השלמת רצונו יתברך הפרטים החשובים ביותר או הפרטים הנראים כטפלים ומעוטי הערך, כולם מושגחים מאתו יתברך באופן שווה.
+וענין זה מודגש במצות גיד הנשה, ש­הזכר על כללות המאורע דהצלת יעקב נקבע דוקא על פרט שבפרט דהמאורע — ללמדנו, שגם פרט טפל כו' הי' נוגע לכללות ההצלה.
+ז. אמנם עדיין אין הענין מחוור כל צרכו, כי הן אמת שע"י קביעת הזכרון בפרט שבפרט של מאורע זה נרמז ה­עילוי שבהשגחתו ית' על בנ"י, באופן ההשגחה על כל פרט ופרט כנ"ל — אבל מ"מ, סו"ס הי' ראוי יותר, לכאורה, לקבוע הזכר בענין כללי. כלומר: ע"י קביעת הזכרון באופן כזה חסר לכאורה הזכר לכללות ההצלה — כי סו"ס הרי גיד הנשה הוא רק פרט של המאורע[ftnref\_1275\_48]?
+וי"ל הביאור בזה בהקדם עוד ענין ביחס בנ"י להקב"ה[ftnref\_1276\_49]: בבנ"י נאמר[ftnref\_1277\_50] "כי חלק ה' עמו", שהם כמו "חלק מן ה­עצם"[ftnref\_1278\_51], וע"ד הבן שהוא חלק מעצמות אביו. כלומר: נוסף לזה שהקב"ה בחר בעמו ישראל ואוהב אותם (שבזה עדיין נרגש שיש כאן שנים, בוחר ונבחר, אוהב ואהוב), אלא שהם עצם אחד כביכול.
+[וכמשל הידוע מהה"מ[ftnref\_1279\_52], "דאף קודם שנבראו ישראל הי' נחקק צורתם במח­שבה כמ"ש רז"ל[ftnref\_1280\_53] ישראל עלה במח­שבה" — כלומר, גם "קודם שנבראו ישר­אל" להיות מציאות בפ"ע, "נחקק צורתם במחשבה", וי"ל דזהו הדיוק נחקק — דחקיקה היא מני' ובי', כי ישראל וקב"ה כולא חד].
+והנה ידוע המאמר[ftnref\_1281\_54] "כשאתה תופס במקצת מן העצם אתה תופס בכולו", כי ה"עצם" נמצא בכל עצמותו בכל חל­קיו[ftnref\_1282\_55].
+וע"ד שמצינו דוגמא לזה בענין ה­מצוות — "העוסק במצוה פטור מן ה­מצוה"[ftnref\_1283\_56], שהפירוש בזה הוא, דהוי "כמו שמקיים גם זה"[ftnref\_1284\_57] (המצוה השני'), כי כל מצוה כלולה משאר כל המצות. ומבואר בזה[ftnref\_1285\_58], כי רצון העליון בתרי"ג מצות
+
+## 154
+
+הוא רצון עצמי, ולכן ע"י התפיסא ב­"מקצת" רצון זה (קיום מצוה אחת) תופ­סים בכולו, והוי כמו שמקיים גם המצוה האחרת[ftnref\_1286\_59].
+ועד"ז מצינו בבני ישראל — דגם "נפש אחת מישראל" ה"ה "עולם מלא"[ftnref\_1287\_60], ועד כ"כ ש(בדיני פקו"נ) מצינו לפעמים שיש ל"נפש אחת מישראל" אותה החשי­בות של רבים וכלל. ועד כ"כ דעכו"ם שאמרו לקבוצה של בנ"י "תנו לנו אחד מכם ונהרגנו ואם לאו נהרוג כולכם יהרגו כולם ואל ימסרו להם נפש אחת מישראל"[ftnref\_1288\_61] — שאחד הביאורים בזה הוא, כי בכל "חלק" של כלל ישראל "תופסים בכולו", היינו, שב"עצמיות" שבכל איש ישראל נתפס העצם של הכלל כולו.
+ח. ובזה יובן בעומק יותר העילוי ש­בההשגחה פרטית על ישראל עם קרובו:
+בענינים אלה שבהם באה לידי ביטוי וגילוי אחדות זו שבין ישראל והקב"ה (שהם "חלק מן העצם") — הרי ההשגחה בהם היא באופן (שלא זו בלבד שהקב"ה משגיח על כל פרט ופרט שלהם, ובאופן שבכמה ענינים כל פרט ופרט נוגע ב­שווה להשלמת הכוונה הכללית, אלא עוד זאת) שבכל פרט ופרט של השגחה זו על עמו ישראל "תופסים בכולו", כל הקשר העצמי שביניהם.
+וכן הי' במאורע זה של הצלת יעקב מיד מלאכו של עשו, שהי' ענין כללי ב­יותר בחיי יעקב, עד שנגע עד לעצ­מיותו.
+ומטעם זה נקבע הזכר על הצלת יעקב (לא בענין כללי, כ"א) דוקא על פרט שבפרט (כנ"ל) — להורות על ענין הכי עמוק שבהשגחת ושמירת הקב"ה על ישראל, שהשגחה זו [כפי שבאה לידי ביטוי ביעקב, שהוא העצם דכלל ישר­אל[ftnref\_1289\_62], ונשמתו היתה "כלולה מכל ה­נשמות שבישראל מעולם ועד עולם"[ftnref\_1290\_63]] — היא באופן, שבכל פרט ופרט, עד ל­פרט קטן וטפל ביותר, תופסים "בכולו".
+[quotation](משיחות ערב חג השבועות תשמ"ו; שמח"ת תשח"י) [/quotation]
+
+**English:**
+
+## Vayishlach
+
+## 1
+
+The Baal Shem Tov explained the definition of this *hashgacha pratis* (Divine Providence) as follows: "It is not merely that all the specific movements of every creature are under the *hashgacha pratis* of the Creator," but rather, "furthermore, the specific movement of a specific creature has a general connection to the overall intent of Creation... for even a single movement of a specific blade of grass completes the supernal intent regarding the matter of Creation."
+
+[As has been discussed many times, a simple analogy for this in human life is the way of an *eshes chayil* (a woman of valor), a successful homemaker. Beyond the fact that she oversees all the details of the items in her home—ensuring that every object is in its proper place and everything is conducted with precise order—there is more: every individual item in her home has a part in the overall goal of managing the house, such that everything is accounted for and precise, in a manner where there is neither lack nor excess—nothing is missing for the management of the home, and nothing is superfluous (serving no purpose).
+
+If this is the case in the life of an ordinary homemaker, then *a fortiori*—to distinguish between the infinite levels—it is certainly true regarding the Creator and Guide of the world. Beyond the fact that all the details of the events of all the creatures in the world of the *Ribono shel Olam* are according to His *hashgacha*, every one of them is relevant to the completion of the supernal intent regarding the matter of Creation.]
+
+3. It is understood that even according to the approach of the Baal Shem Tov (that there is *hashgacha pratis* over all creatures), there is a fundamental difference between the *hashgacha pratis* over all creatures and His *hashgacha* over the Jewish people.
+
+As the Rebbe Rayatz brings in the name of the Baal Shem Tov, even though *hashgacha pratis* exists over all creatures, even the smallest detail, nevertheless, the matter of *hashgacha pratis* over His close people (the Jewish people) is impossible to depict and impossible to understand ("This cannot be described at all... that which concerns a Yid is under *hashgacha pratis* in a way that cannot be understood").
+
+From the simple phrasing, it is understood that this superiority applies also to the specificity of the *hashgacha*. That is to say, in the degree to which every single detail is overseen by Him and completes the supernal intent.
+
+For it is known that there are several levels and modes of *hashgacha*—among them, in the language of the verse, "The eye of Hashem is toward those who fear Him," "The eyes of Hashem are toward the *tzaddikim*" (whether with one eye or two eyes)—where the difference between them could (seemingly) be said to be not in the "specificity" of the *hashgacha*, but only in its mode. For example: whether the *hashgacha* is enclothed and hidden within the ways of nature, or whether it is a *hashgacha* revealed to all (even to the point that it leads to miraculous conduct, etc.).
+
+However, from the simple continuation of the language of the Rebbe Rayatz (in the name of the Baal Shem Tov) mentioned above, it is implied that the superiority of the *hashgacha* over His close people is not only in the mode, but also in its specificity. For although *hashgacha pratis* is over all creatures, and even every single detail is relevant to the completion of the general intent regarding the matter of Creation—nevertheless, there is a wondrous superiority in the *hashgacha* over every single detail of His close people (a superiority that is beyond the intellect).
+
+4. The explanation for this can be stated as follows:
+
+Although all creatures "only exist from the truth of His existence" and are overseen by Him, nevertheless, the (primary) will and choice of the *Ribono shel Olam* is only in Yisrael, for "He chose us from all the nations", and it is said, "I have loved you, says Hashem... was not Esav a brother to Yaakov? Yet I loved Yaakov."
+
+It can be said that this is also the content of the statement of our Sages that the world was created "for the sake of the Torah... and for the sake of Yisrael": Yisrael and the Torah are the intent of Creation (and as our Sages say, "I was not created except to serve my Maker"). His will and choice are in them themselves.
+
+This is unlike other creatures, which are not an end and goal in themselves, but only a "means" through which the intent of the *Ribono shel Olam* in Torah and Yisrael is completed. As our Sages say, "They were not created except to serve me," meaning that His will is not in them for their own sake, and they are only "servants" (a "means") for Torah and Yisrael.
+
+Now, the nature of the concept of will (and choice) is that when one wills (and chooses) something, it is possible for the will to be equal in all parts and details of that thing (with the same intensity), despite the differences in the importance and stature of the details (in terms of their own content) [even to the point that when one detail of the thing is missing (even a detail that is seemingly small and secondary), the whole is lacking, since His will was not completed].
+
+As we find regarding the *mitzvos*, which are the supernal will (the King's decrees): although we find differences from one extreme to the other in the *mitzvos* of the Torah, in the language of our Sages that there is a "lightest of the light" and there is up to the "most stringent of the stringent"—nevertheless, they said, "Do not sit and weigh the *mitzvos* of the Torah," but rather there must be the same care for all *mitzvos* equally. For despite the differences between the *mitzvos* in their content (in the language of the *Sefer HaChinuch*, the "roots of the *mitzvah*") and the like—all of them are His will, "Who has sanctified us with His *mitzvos* and commanded us", and this is truly equal in all *mitzvos*. Just as the *Ribono shel Olam* wills the stringent ones, He wills the light ones, with the same will.
+
+[It can be said that because of this aspect of the *mitzvos*, we find sometimes that when one detail is missing, the whole is missing. For example: a convert who accepts upon himself the entire Torah except for one thing (even a rabbinic decree) is not accepted; and similarly, "One who says that the Torah is not from Hashem, even one verse, even one word... this person is a denier of the Torah", "and there is (in this) no difference between 'And the sons of Cham: Kush and Mitzrayim' and 'The name of his wife was Mehetavel'... and 'I am Hashem your G-d', etc."]
+
+5. Based on this, the superiority of the *hashgacha pratis* over Yisrael, the close people of the *Ribono shel Olam*, relative to the *hashgacha pratis* over other matters of Creation, is understood:
+
+Regarding other creatures, although every single detail is relevant to the completion of the general intent (as mentioned above), nevertheless, since the importance of the details depends on their stature—
+
+[Like the human body, where although its perfection is when it contains all the limbs (and even hair and nails), nevertheless, one cannot compare the importance of the limbs upon which the soul depends to the other parts of the body (and certainly not to hair and nails, which are the most secondary details)]
+
+—therefore, the *hashgacha* over every single detail is also "each according to its stature" (to the extent that it "serves" the Torah and Yisrael).
+
+This is not the case with Yisrael, His close people. Since His *hashgacha* over them is a result of His will and choice in them, then in addition to the fact that there is *hashgacha* over every single detail (and in a way that every detail completes the general intent regarding the matter of Creation)—the mode of *hashgacha* over the details is not only according to the individual importance of each detail (in which there are differences according to the importance of the detail), but the *hashgacha* is in an equal manner in all of them. For because of His will and choice in Yisrael, every single detail among them "matters" equally.
+
+6. Based on all this, one can explain the reason why the "remembrance" for the salvation of Yaakov was established specifically on one detail of the event, and in that very detail, we are precise about the detail of the detail (whether only the *gid* of the right thigh or also the left, etc.)—because through this, the definition and mode of His *hashgacha* over Yaakov Avinu (and consequently, also over the Jewish people, the children of Yaakov) is expressed:
+
+His *hashgacha* is in such a way that it is not only that every single detail is overseen by Him (and more than that—that every single detail is relevant to the completion of the general intent)—but furthermore, that regarding the completion of His will, the most important details or the details that appear as secondary and of little value, all are overseen by Him in an equal manner.
+
+This matter is emphasized in the *mitzvah* of *gid hanasheh*, where the remembrance of the general event of Yaakov's salvation was established specifically on a detail of the detail of the event—to teach us that even a secondary detail, etc., was relevant to the general salvation.
+
+7. However, the matter is still not entirely clear, for while it is true that by establishing the remembrance on the detail of the detail of this event, the superiority of His *hashgacha* over the Jewish people is hinted at, in the mode of *hashgacha* over every single detail as mentioned above—nevertheless, in the end, it would seemingly have been more appropriate to establish the remembrance on a general matter. That is to say: by establishing the remembrance in such a way, the remembrance of the general salvation is seemingly missing—for in the end, the *gid hanasheh* is only a detail of the event?
+
+The explanation for this can be said by first introducing another matter regarding the relationship of the Jewish people to the *Ribono shel Olam*: Regarding the Jewish people, it is said, "For the portion of Hashem is His people," that they are like a "part of the essence", similar to a son who is a part of the essence of his father. That is to say: in addition to the fact that the *Ribono shel Olam* chose His people Yisrael and loves them (in which it is still felt that there are two here, a chooser and a chosen, a lover and a beloved), they are, as it were, one essence.
+
+[As in the well-known analogy from the Maggid of Mezeritch, "that even before Yisrael were created, their form was engraved in the thought, as our Sages say, 'Yisrael arose in the thought'"—that is, even "before Yisrael were created" to be an existence unto themselves, "their form was engraved in the thought." It can be said that this is the precision of "engraved"—that engraving is from within, for Yisrael and the *Ribono shel Olam* are all one.]
+
+Now, the statement is known, "When you grasp a part of the essence, you grasp the whole of it," because the "essence" is present in its entire essence in all its parts.
+
+Similarly, we find an analogy for this in the matter of the *mitzvos*—"One who is occupied with a *mitzvah* is exempt from a *mitzvah*", the meaning of which is that it is "as if he is fulfilling this one too" (the second *mitzvah*), because every *mitzvah* is included in all the other *mitzvos*. It is explained there that the supernal will in the 613 *mitzvos* is an essential will, and therefore, by grasping a "part" of this will (fulfilling one *mitzvah*), one grasps the whole of it, and it is as if he is fulfilling the other *mitzvah* as well.
+
+And likewise, we find regarding the Jewish people—that even "one soul of Yisrael" is an "entire world", to the point that (in the laws of *pikuach nefesh*) we find sometimes that "one soul of Yisrael" has the same importance as the many and the whole. To the point that when heathens said to a group of Jews, "Give us one of you and we will kill him, and if not, we will kill all of you," they should all be killed and not hand over one soul of Yisrael—one of the explanations for this is that in every "part" of the collective Yisrael, "you grasp the whole," meaning that in the "essentiality" that is in every Jew, the essence of the whole collective is grasped.
+
+8. With this, the superiority of the *hashgacha pratis* over Yisrael, His close people, can be understood more deeply:
+
+In those matters where this unity between Yisrael and the *Ribono shel Olam* (that they are a "part of the essence") is expressed and revealed—the *hashgacha* in them is in such a way (that not only does the *Ribono shel Olam* oversee every single detail of them, and in a way that in many matters every single detail matters equally for the completion of the general intent, but furthermore) that in every single detail of this *hashgacha* over His people Yisrael, "you grasp the whole," the entire essential connection that is between them.
+
+And so it was in this event of the salvation of Yaakov from the hand of the angel of Esav, which was a most general matter in the life of Yaakov, to the point that it touched upon his very essence.
+
+For this reason, the remembrance of the salvation of Yaakov was established (not on a general matter, but) specifically on a detail of the detail (as mentioned above)—to indicate the deepest matter in the *hashgacha* and protection of the *Ribono shel Olam* over Yisrael, that this *hashgacha* [as it was expressed in Yaakov, who is the essence of the collective Yisrael, and his soul was "included from all the souls of Yisrael from beginning to end"]—is in such a way that in every single detail, down to the smallest and most secondary detail, you grasp "the whole."
+
+(From *sichos* of Erev Chag HaShavuos 5746; Simchas Torah 5718)
+
+---
+
+_Section: וישלח_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 155
+
+### שיחה ב
+
+א. כתב הרמב"ם[ftnref\_1291\_1] "טומאת ע"ז מדברי סופרים ויש לה רמז בתורה הסירו[ftnref\_1292\_2] את אלקי הנכר אשר בתוככם והטהרו והח­ליפו שמלותיכם, וארבע אבות הטומאה יש בה כו' וטומאת כולן מדבריהן".
+ויש לעיין, מה ראה הרמב"ם להביא "רמז בתורה" על גזירה זו ("מדבריהן") של טומאת ע"ז, שלא כדרכו (ברוב ה­מקומות ככולן) שאינו מביא רמז ואס­מכתא על גזירות דרבנן (אף כשיש רמז מפורש בחז"ל)[ftnref\_1293\_3].
+וביותר תמוה: רמז זה מן התורה ל­טומאת ע"ז מן הכתוב "הסירו גו' והטהרו גו'", לא נמצא לפנינו במשנה וגמ', וגם לא במדרשי חז"ל (הקדומים[ftnref\_1294\_4]) שהגיעו לידינו; ולאידך, מפורש במשנה[ftnref\_1295\_5] "מנין לע"ז שמטמאה. . כנדה שנאמר[ftnref\_1296\_6] תזרם כמו דוה", וכן למדו[ftnref\_1297\_7] מן הכתוב[ftnref\_1298\_8] "שקץ תשקצנו גו'" שמטמאה כשרץ, וכן אית­קש למת[ftnref\_1299\_9] כמו שנאמר[ftnref\_1300\_10] "וישלך את עפרה על קבר בני העם" (וכפי שמסיק בגמ'[ftnref\_1301\_11] למאי הלכתא איתקש ע"ז לשרץ, לנדה ולמת) — שלימודים אלה הם אס­מכתא בעלמא[ftnref\_1302\_12], כמפורש במסקנת ה­גמ'[ftnref\_1303\_13] ד"טומאת ע"ז דרבנן היא" —
+וא"כ, מדוע הביא הרמב"ם "רמז בתו­רה" ממדרש בלתי מצוי, ולא מהלימודים המפורשים במשנה וגמ'?
+ועוד זאת: בהלכה הבאה אכן מביא הרמב"ם[ftnref\_1304\_14] הלימוד מ"שקץ תשקצנו" ש­ע"ז מטמאה כשרץ, ובהלכה שלאחרי' — הלימוד מ"תזרם כמו דוה" שמטמאה כ­נדה; ועפ"ז ייפלא ביותר, ל"ל להרמב"ם להקדים "רמז בתורה" מן הכתוב "הסירו גו'" ולא הסתפק בהלימודים המפורשים בש"ס שהביאם בהלכות הבאות[ftnref\_1305\_15]?
+ב. ויש לומר הביאור בזה: גדרה של טומאת ע"ז יש לבארו בשני אופנים:
+
+## 156
+
+א) גזירת הטומאה חלה על החפצא[ftnref\_1306\_16] של הדבר הנעבד, ובאה בהמשך לאיסור ע"ז (של תורה), דכשם שהתורה אסרה דבר הנעבד בהנאה כו' והוי חפצא ד­איסורא, ככה הוסיפו חכמים לגזור ש­יחול שם טומאה על הדבר הנעבד.
+ב) גזירת הטומאה אינה קשורה עם חלות איסור הע"ז (מן התורה) ואינה אלא מצד הגברא[ftnref\_1306\_16], כדי להרחיק ולהפריש את האדם מעבודה זרה.
+ואע"פ שטומאת ע"ז יש בה ארבע אבות הטומאה שמטמאים גם כלים, דמזה מוכח שהגזירה דטומאת ע"ז היא באופן שיש חלות טומאה על החפצא דהדבר הנעבד (ולא רק חלות טומאה על ה­גברא, הנוגע בע"ז) — י"ל שזה גופא אינה אלא מצד (הרחקת) הגברא, כי חומרא זו גופא מוסיפה בהרחקת האדם ממנה.
+ויש לומר, שזהו טעמו של הרמב"ם שכ' (א) שטומאת ע"ז "יש לה רמז בתו­רה", (ב) ובזה גופא מביא הרמז דוקא מן הכתוב "הסירו את אלקי הנכר גו'", ולא הסתפק בהרמז "שקץ תשקצנו" (או "תזרם כמו דוה") שמביאו אח"כ:
+החילוק בין הדרשות שבש"ס (שע"ז מטמאה כשרץ וכנדה כו') והרמז מן ה­כתוב "הסירו גו'" הוא: בדרשות הנ"ל מודגש מיאוס החפצא של ע"ז (שהיא משוקצת כשרץ, או טמאה כנדה), משא"כ בכתוב "הסירו את אלקי הנכר אשר בתוככם והטהרו והחליפו שמלותיכם" מדובר על מעשה הסרת הע"ז מקרבם. ומש"ה מקדים הרמב"ם שהיסוד לטומאת ע"ז הוא ה"רמז בתורה הסירו גו'", שבזה משמיענו, שענינה של טומאה זו הוא (לא מצד החפצא דע"ז, אלא) מצד הגברא, כדי להפרישו ולהרחיקו ממנה — "הסירו את אלקי הנכר גו'"[ftnref\_1308\_17], אלא שכדי שתהי' הרחקה זו בשלימות גזרו שתהא מטמאה כשרץ וכנדה כו'.
+כלומר: אם לא הי' הרמב"ם מקדים רמז זה, הרי מהדרשות שבהלכות של­אח"ז הי' משתמע שטומאת ע"ז היא מצד החפצא של הדבר הנעבד, שהוא משוקץ כשרץ וכו'. ולכן הוזקק להקדים שה­"רמז בתורה" על תוכנה הכללי של גזי­רת טומאת ע"ז הוא מן הכתוב ד"הסירו את אלקי הנכר גו'" (המדגיש שענינה הוא הסרת ע"ז מגבול ישראל), ומשאר הכתובים למדים רק פרטי ההלכות של טומאת ע"ז (שאיתקש לשרץ, נדה ומת).
+ג. ויש לבאר הטעם שהרמב"ם נקט כאופן הב' הנ"ל, שתוכן טומאת ע"ז היא רק גזירה להרחיק את האדם מע"ז (ולא מצד החפצא דע"ז, כמו איסור ע"ז שמן התורה) — ובהקדם:
+א) שונה איסור ע"ז משאר איסורי הנאה, שכל איסורי התורה הם דבר שב­מציאות, משא"כ ע"ז אין לה ממש. דאף שהדבר הנעבד יש לו מציאות, מ"מ זה שדבר זה הוא מציאות של עבודה זרה — הוא רק דמיונו של העובד ע"ז, שבדמ­יונו הכוזב אומר "לעץ אבי אתה ולאבן את ילידתני"[ftnref\_1309\_18], אבל באמת הרי הוא "שקר. . הבל ואין בם מועיל"[ftnref\_1310\_19], ואינם
+
+## 157
+
+אלא עץ ואבן בעלמא[ftnref\_1311\_20]. משא"כ בשאר איסורים, שגם שם האיסור (ולא רק הדבר הנאסר) הוא דבר שיש לו ממש (ע"פ תורה), כמו שור הנסקל, חמץ בפסח, וכן באיסורי אכילה כמו נבילה וטריפה כו' — שבכולם היותם מציאות אסורה באה מדבר שבמציאות.
+ולכן מצינו שיש דין מיוחד בע"ז, שאסור לעשות שום דבר שמחשיב אותה ונותן בה ממשות[ftnref\_1312\_21].
+ב) אינו דומה חלות איסור הנאה לענין הטומאה, כי איסור הוא רק ענין שלילי, המבטל חשיבותו של הדבר (ש­א"א ליהנות ממנו, ועד שאבד כל שוויותו); משא"כ חלות "טומאה" יש בכללה שהרע והתיעוב שבדבר הנעבד יש לו ממש עד שבכחו לפעול באדם, שהנוגע בו נטמא, ובגלל זה נאסר עליו להכנס למקדש ולאכול בקדשים.
+ומש"ה ס"ל להרמב"ם שגזירת טומאת ע"ז אינה מצד החפצא של ע"ז, שאז הי' נראה שיש באיסור ע"ז איזה ממש (שה­דבר הנעבד יש בו טומאה עצמית הגו­רמת טומאה באדם הנוגע בה[ftnref\_1313\_22]) — אלא כולה היא רק מצד הגברא העובד ע"ז, כנ"ל.
+ד. ויש לומר — ע"ד הרמז עכ"פ — שמדברי הרמב"ם הללו (שמביא "רמז בתורה" מכתוב זה (ד"הסירו גו'") על טומאת ע"ז), יש ללמוד ביאור כללי בענין ע"ז.
+דהנה לכאורה יש מקום לשאלה — כיצד יתכן שבעולמו של הקב"ה תהי' מציאות של ע"ז שהיא שלילת אחדותו ית'? וע"ד השאלה ששאלו את הזקנים "אם אין רצונו בעבודת כוכבים למה אינו מבטלה"[ftnref\_1314\_23].
+ואע"פ שענו ש"הרי הן עובדין לחמה וללבנה ולכוכבים ולמזלות, יאבד עולמו מפני השוטים (בתמי')"[ftnref\_1314\_23] [וגם ענו על טענתם ש"יאבד (רק) דבר שאין צורך ל­עולם בו ויניח דבר שצורך העולם בו"[ftnref\_1314\_23]] — מ"מ עדיין אינו מחוור: כיצד מניח הקב"ה שתהי' קס"ד במחשבתו של אדם שיש מציאות של ע"ז בעולם עד שיש צורך לאבדה (דפשיטא שאם רצון ה­בורא הי' שלא תהי' מציאות של ע"ז בעולמו — לא הי' שייך שבן אדם ידמה בעיניו לעבוד ע"ז)?
+והתירוץ על זה מרומז במ"ש הרמב"ם שהמקור לדין טומאת ע"ז היא במ"ש "הסירו את אלקי הנכר גו'", כלומר: זה שישנה אפשרות למציאות של ע"ז בעו­לם הוא רק כדי שענין זה גופא — שאין שום מקום למציאות של ע"ז — יבוא (לא בתור דבר טבעי, אלא) ע"י מעשה בנ"י, להסיר את אלקי הנכר; דכיון ש"למעשה ידיך תכסוף"[ftnref\_1317\_24], שהקב"ה רוצה שעניני קדושה יבואו ויתגלו על ידי עבודת ישראל, לכן גם בענין האמונה בהשם כן הוא, שרצונו ית' הוא שבנ"י (בכחם הם) יגלו אמונה זו בעולם[ftnref\_1318\_25]. ולכן ברא
+
+## 158
+
+הקב"ה עולמו באופן כזה שתתכן מצי­אות של ע"ז, ע"ד כתוב והרוצה לטעות יטעה[ftnref\_1319\_26], כדי שבנ"י יצטרכו לגלות את השקר שבע"ז ואיך שאין בה ממש, שעי"ז מבטלים את ענין הע"ז ומגלים את ה­אמונה האמיתית בהשם אחד.
+ה. והנה ידועים דברי רבינו הזקן ב­ספר התניא[ftnref\_1320\_27], שכל מעשה עבירה הוא בדקות ענין של עבודה זרה.
+כי האמונה האמיתית באחדותו ית' היא[ftnref\_1321\_28] לא (רק) שאין עוד אלוקה מלבדו, ח"ו, אלא שאין עוד שום מציאות בלעדו ית', כי אמיתית המציאות של כל נברא הוא רק ה"דבר השם" המחייהו ומהווהו מאין ליש תמיד; ולכן, כל המחשיב עצמו "ליש ודבר בפני עצמו" (כי אינו מרגיש שאין לו שום מציאות בלעדו ית') ה"ז (בדקות) ענין של עבודה זרה ו"כפירה באחדותו האמתית"[ftnref\_1322\_29].
+ונמצא, שעשיית עבירה (איזו שהיא), שבזה מחשיב עצמו ליש ודבר נפרד ממנו ית', ה"ז (בדקות) גם כפירה באח­דותו ית' האמיתית (שאין עוד מלבדו).
+וכן הוא בנוגע להדברים האסורים עצמם, דכיון שהם נותנים אפשרות ל­מעשה העבירה של האדם שהיא כפירה באחדותו האמיתית, נמצא, שהם מנגדים ל"אחדותו האמיתית"[ftnref\_1323\_30].
+ומזה מובן, דכשם שנת"ל בנוגע ל­מציאות של ע"ז בפשטות, שבאמת אין לה שום ממש ומציאות ואינה אלא דמיון של העובד, ועוד זאת, שהכוונה בזה גופא (שיש אפשרות שיהי' דמיון כזה במחשבת העובד) היא רק כדי שתהי' פעולת בנ"י להסיר אותה, "הסירו את אלקי הנכר גו'" — כן הוא (בדקות) בכל הדברים האסורים, דזה שהם חפצא דאי­סורא, הנותנת אפשרות להאדם לכפור באחדותו האמיתית, אינו ענין עצמי בה­חפצא, אלא רק בשביל עבודת בנ"י, כד­לקמן.
+ו. והענין מובן ע"פ המבואר בתניא[ftnref\_1324\_31], שהאפשרות למציאות של יש ודבר נפרד מאחדותו ית' היא רק מחמת ההסתר פנים, המכסה ומעלים על הכח האלקי שבנבראים (המהווה אותם תמיד מאין ליש); אמנם הסתר זה הוא רק לגבי ה­נבראים, שכלפם יש להסתר זה מציאות, וגורם שיהי' נדמה אצלם שיש איזו מציאות בלעדו ית', אבל לגבי הקב"ה אין שום דבר מסתיר ומעלים לפניו, ואין שום דבר נפרד ממנו ית'[ftnref\_1325\_32], ולכן "כל[ftnref\_1326\_33] מאמינים שהוא לבדו הוא כמו שהי' קודם שנברא העולם ממש. . בלי שום שינוי".
+ולכאורה צריך ביאור: כיון שהאמת הגמורה היא שאין לשום דבר בעולם מציאות בלעדו ית' (ומה שלא נראה כן לעינים הוא רק מחמת ההסתר פנים ה­מכסה על האמת) — מדוע יש תוקף בדיני התורה (שהיא תורת השם ותורת אמת) למציאותם של הדברים ההם בתור דברים נפרדים מאחדותו ית', עד שנע­שים
+
+## 159
+
+אסורים וטמאים כו' באמת (ע"פ תורה)[ftnref\_1327\_34]?
+ואחד הביאורים בזה — שזה שיש ל­דברים האסורים תוקף ומציאות ע"פ תורה, הוא רק כדי שתהי' עבודת ישר­אל, להתגבר עליהם ולדחותם כו', וב­לשון הרמב"ם (הנ"ל) — "הסירו את אלקי הנכר גו'". כלומר: החפצא של האיסור מצד עצמו אין בו שום אמת (ואינו אלא מחמת ההסתר המכסה על האמת), וה­"אמת" שיש במציאות האיסור היא אך ורק מצד זה שניתן לה מציאות ותוקף (ע"פ תורה) כדי שתהי' עבודת ישראל, ד"למעשה ידיך תכסוף" (כנ"ל), שידחו את הדברים האסורים ויתגברו עליהם, כנ"ל.
+ז. ומכאן למדנו התחזקות גדולה ב­עבודת האדם עלי אדמות. דלפעמים יוכל האדם לבוא לרגש של חלישות ב­עבודתו בראותו את כל המניעות והעי­כובים בעולם על דברים שבקדושה, ושכדי להתגבר עליהם צריך מלחמה עצומה כו', ומאין יהי' לו התוקף לנצח מלחמה זו?
+וע"ז באה ההוראה, שכל המציאות של המנגד אינה אלא מחמת ההסתר ה­מכסה על האמת ש"אין עוד מלבדו" ואין לשום דבר בעולם מציאות בלעדו ית', ולכן, אם יתדבק האדם בהשם עד שתת­גלה בו אחדותו ית' האמיתית, הרי בדרך ממילא תתבטל מציאות המנגד, כמו חושך הנדחה בפני אור, כי באמת אין לה שום מציאות כלל, כנ"ל.
+וכמבואר[ftnref\_1328\_35] גם כן בפירוש הכתוב[ftnref\_1329\_36] "כי תצא למלחמה על אויביך", שזהו רמז על מלחמת היצר (שנקרא "אויבו" של האדם) — ובכללות יותר קאי על המלחמה נגד כל אויבי ה' — שעל האדם לידע (תיכף ביציאתו למלחמה), שבעצם הרי הוא "על (ולמעלה מ)אויביך", כי רק ישראל הדבוקים בהשם יש להם מציאות אמיתית[ftnref\_1330\_37], משא"כ "אויביך" שהם מנגדים לקדושה, אין להם תוקף ומציאות אמי­תית.
+וא"כ למה עשה ה' ככה שתהי' מצי­אות של "אויביך", שלעינים נראה שיש להם תוקף ויכולת לנגד לקדושה? הנה ע"ז התירוץ בראשית הכתוב, "כי תצא למלחמה", שכל הכוונה היא רק כדי שבנ"י יצאו למלחמה ויוציאו ויגלו בפועל את הכוחות שלהם בביטול אויבי ה'.
+ובזה מבוארת הסתירה שבסיום ה­כתוב — "(כי תצא למלחמה גו') ושבית שביו":
+הפירוש ב"שביו" הוא, שלוקחים מה­אויב הדברים שהיו בשבי' אצלו, וב­עניננו[ftnref\_1331\_38], שהלעו"ז (אויביך) אין לה תוקף ומציאות מצד עצמה ח"ו, כי אם מה שנפל אצלה בשבי' מגבול הקדושה.
+
+## 160
+
+אבל עפ"ז אינו מובן סיום הכתוב "ושבית שביו" — כיון שזהו "שבי" — נכס שלך, מדוע נאמר "ושבית"? הרי היציאה מרשות האויב אינה ענין של שבי' ("ושבית"), אלא להיפך, השבה למקומו האמיתי, בגבול הקדושה, והול"ל "וה­שבות שביו".
+אלא שהם הם שני ההפכים הנ"ל ב­נוגע למציאות הלעו"ז ("אויביך"): מצד אחד, הרי אין להם שום מציאות מצד עצמם, אלא מה שלוקחים ב"שבי" מגבול הקדושה; וביחד עם זה ניתן להם תוקף ע"פ תורה, כי לולא זאת לא תתכן מצי­אות של עבודת ישראל [שאם לא יהי' להם תוקף ע"פ תורה, וכל התנגדותם לקדושה לא תהי' אלא דמיון בעלמא, אין כאן חידוש בזה שהאדם מנצח את האויב]. וזהו מ"ש "ושבית שביו", דאע"פ שהמדובר ב"שביו", דבר שאין לו מצי­אות מצד עצמו אלא מחמת הקדושה, מ"מ צ"ל (מצד ישראל) פעולה של "ו­שבית", כאלו הם בבעלותם של האויב, כי רק עי"ז מודגש חידושם של ישראל, בזה שמנצחים וכובשים האויב תחת רשות הקדושה.
+וזהו כל מציאותם של אויביך, לא שיש להם מציאות באמת ח"ו, אלא אך ורק כדי שבנ"י יטלו את שלהם ("ושבית שביו"), ע"ד דברי רש"י[ftnref\_1332\_39] בנוגע לא"י, "כל הארץ של הקב"ה היא, ברצונו נתנה להם וברצונו נטלה מהם ונתנה לנו", היינו, שהנתינה להם היא מלכתחילה רק כדי ליטלה מהם וליתנה לישראל[ftnref\_1333\_40].
+[quotation](משיחת ש"פ שופטים תשמ"ח) [/quotation]
+
+**English:**
+
+## Vayishlach
+
+### Sicha 2
+
+1. The Rambam writes: "The impurity of idolatry is a Rabbinic decree, and it has a hint in the Torah: 'Remove the foreign gods that are in your midst, and purify yourselves, and change your garments.' There are four primary categories of impurity regarding it, etc., and the impurity of all of them is Rabbinic."
+
+One must examine: Why did the Rambam see fit to bring a "hint in the Torah" for this decree ("Rabbinic") regarding the impurity of idolatry, contrary to his practice (in most, if not all, places) of not bringing hints or support from the Torah for Rabbinic decrees (even when there is an explicit hint in Chazal)?
+
+Even more puzzling: This hint from the Torah for the impurity of idolatry from the verse "Remove... and purify..." is not found before us in the Mishnah or Gemara, nor in the Midrashim of Chazal (the early ones) that have reached us. On the other hand, it is explicit in the Mishnah: "From where do we know that idolatry imparts impurity?... Like a *niddah*, as it is stated: 'You shall cast them away like a menstruant woman.'" Similarly, they learned from the verse: "You shall surely detest it," that it imparts impurity like a *sheretz* (creeping thing), and it is also compared to a corpse, as it is stated: "And he cast its dust upon the graves of the children of the people." (And as the Gemara concludes: "To what practical end is idolatry compared to a *sheretz*, a *niddah*, and a corpse?") — these teachings are merely *asmachta* (scriptural support), as is explicit in the conclusion of the Gemara that "the impurity of idolatry is Rabbinic."
+
+If so, why did the Rambam bring a "hint in the Torah" from an obscure Midrash, rather than from the explicit teachings in the Mishnah and Gemara?
+
+Furthermore: In the following *halachah*, the Rambam indeed brings the teaching from "You shall surely detest it" that idolatry imparts impurity like a *sheretz*, and in the *halachah* after that, the teaching from "You shall cast them away like a menstruant woman" that it imparts impurity like a *niddah*. Based on this, it is most surprising: Why did the Rambam need to preface this with a "hint in the Torah" from the verse "Remove..." and not content himself with the explicit teachings in the Shas that he brings in the subsequent *halachos*?
+
+2. The explanation for this is as follows: The definition of the impurity of idolatry can be explained in two ways:
+
+a) The decree of impurity applies to the *cheftza* (the physical object) of the idolized item, and it comes as a continuation of the prohibition of idolatry (from the Torah). Just as the Torah prohibited an item used for idolatry from benefit, etc., and it became a *cheftza* of prohibition, so too the Sages added a decree that the status of impurity should apply to the idolized item.
+
+b) The decree of impurity is not connected to the status of the prohibition of idolatry (from the Torah), but is only from the perspective of the *gavra* (the person), in order to distance and separate the person from idolatry.
+
+Even though the impurity of idolatry has four primary categories of impurity that also impart impurity to vessels—from which it is proven that the decree of the impurity of idolatry is in a manner where there is a status of impurity upon the *cheftza* of the idolized item (and not merely a status of impurity upon the *gavra* who touches the idolatry)—it can be said that this itself is only for the sake of (distancing) the *gavra*, because this stringency itself adds to the distancing of the person from it.
+
+It can be said that this is the reason for the Rambam’s ruling: (a) that the impurity of idolatry "has a hint in the Torah," and (b) that he brings the hint specifically from the verse "Remove the foreign gods," and did not content himself with the hint of "You shall surely detest it" (or "You shall cast them away like a menstruant woman") which he brings later.
+
+The difference between the derivations in the Shas (that idolatry imparts impurity like a *sheretz* and a *niddah*, etc.) and the hint from the verse "Remove..." is: In the aforementioned derivations, the loathsomeness of the *cheftza* of idolatry is emphasized (that it is detestable like a *sheretz*, or impure like a *niddah*). In contrast, the verse "Remove the foreign gods that are in your midst, and purify yourselves, and change your garments" speaks of the act of removing the idolatry from among them. Therefore, the Rambam prefaces that the foundation for the impurity of idolatry is the "hint in the Torah: 'Remove...'," by which he informs us that the essence of this impurity is (not from the perspective of the *cheftza* of the idolatry, but) from the perspective of the *gavra*, in order to separate and distance him from it—"Remove the foreign gods...". It is just that in order for this distancing to be complete, they decreed that it should impart impurity like a *sheretz* and a *niddah*, etc.
+
+In other words: If the Rambam had not prefaced this with this hint, one might have inferred from the derivations in the subsequent *halachos* that the impurity of idolatry is from the perspective of the *cheftza* of the idolized item, which is detestable like a *sheretz*, etc. Therefore, he needed to preface that the "hint in the Torah" regarding the general content of the decree of the impurity of idolatry is from the verse "Remove the foreign gods..." (which emphasizes that its purpose is the removal of idolatry from the borders of Israel), while from the other verses we learn only the details of the *halachos* of the impurity of idolatry (that it is compared to a *sheretz*, *niddah*, and corpse).
+
+3. The reason the Rambam adopted the second approach—that the content of the impurity of idolatry is only a decree to distance the person from idolatry (and not from the perspective of the *cheftza* of the idolatry, like the prohibition of idolatry from the Torah)—can be explained as follows:
+
+a) The prohibition of idolatry differs from other prohibitions of benefit. All prohibitions of the Torah are things that have reality, whereas idolatry has no substance. Even though the idolized item has reality, the fact that this item is a reality of idolatry is only the imagination of the idolater, who in his false imagination says, "To the wood, you are my father, and to the stone, you have given birth to me". But in truth, it is "a lie... vanity, and there is no profit in them", and they are nothing but mere wood and stone. This is not the case with other prohibitions, where the prohibition itself (and not just the prohibited item) is something that has reality (according to Torah law), such as an ox that is to be stoned, *chametz* on Pesach, and likewise with prohibitions of eating such as *neveilah* and *treifah*, etc.—all of which derive their status as a prohibited reality from something that has reality.
+
+Therefore, we find that there is a special law regarding idolatry: that it is forbidden to do anything that gives it importance or grants it substance.
+
+b) The status of a prohibition of benefit is not comparable to the matter of impurity. A prohibition is only a negative matter, which nullifies the importance of the item (that one cannot benefit from it, to the point that its entire value is lost). In contrast, the status of "impurity" includes the idea that the evil and loathsomeness in the idolized item has reality, to the extent that it has the power to affect a person—that one who touches it becomes impure, and because of this, he is forbidden to enter the Temple or eat holy offerings.
+
+Therefore, the Rambam holds that the decree of the impurity of idolatry is not from the perspective of the *cheftza* of the idolatry—for then it would appear that there is some reality in the prohibition of idolatry (that the idolized item has an inherent impurity that causes impurity in the person who touches it)—but rather, it is entirely from the perspective of the *gavra* who worships the idolatry, as mentioned above.
+
+4. It can be said—by way of *remez* (hint), at least—that from these words of the Rambam (that he brings a "hint in the Torah" from this verse, "Remove...", regarding the impurity of idolatry), we can learn a general explanation regarding the matter of idolatry.
+
+Seemingly, there is room for the question: How is it possible that in the world of the Holy One, blessed be He, there should be a reality of idolatry, which is the negation of His unity? This is similar to the question asked of the elders: "If He does not desire idolatry, why does He not abolish it?".
+
+Even though they answered that "they worship the sun, the moon, the stars, and the constellations; should He destroy His world because of fools?" [and they also answered their argument by saying that "He would destroy (only) that which the world does not need, and leave that which the world needs"]—it is still not clear: How does the Holy One, blessed be He, allow there to be a notion in the mind of a person that there is a reality of idolatry in the world, to the point that there is a need to destroy it? (For it is obvious that if it were the Creator's will that there should be no reality of idolatry in His world, it would not be possible for a human being to imagine in his mind to worship idolatry.)
+
+The answer to this is hinted at in what the Rambam wrote: that the source for the law of the impurity of idolatry is in the verse, "Remove the foreign gods..." In other words: The fact that there is a possibility for a reality of idolatry in the world is only so that this very matter—that there is no place for the reality of idolatry—should come about (not as a natural thing, but) through the actions of the Jewish people, to remove the foreign gods. Since "You yearn for the work of Your hands", and the Holy One, blessed be He, wants matters of holiness to come and be revealed through the *avodah* of Israel, therefore, it is the same regarding faith in Hashem: His will is that the Jewish people (by their own power) should reveal this faith in the world. Therefore, the Holy One, blessed be He, created His world in such a way that a reality of idolatry is possible—similar to the statement, "He who wishes to err, let him err"—so that the Jewish people would need to reveal the falsehood in idolatry and how it has no substance, and thereby nullify the matter of idolatry and reveal the true faith in Hashem, the One.
+
+5. It is known what our Rebbe the Alter Rebbe says in the *Tanya*: that every act of transgression is, in a subtle way, a matter of idolatry.
+
+For true faith in His unity is not (only) that there is no other god besides Him, Heaven forbid, but that there is no other reality besides Him. For the true reality of every created being is only the "Word of Hashem" that gives it life and brings it into being from nothingness to existence at all times. Therefore, anyone who considers himself a "separate existence and entity" (because he does not feel that he has no reality besides Him) is (in a subtle way) a matter of idolatry and "denial of His true unity".
+
+It follows that committing a transgression (of any kind), by which one considers himself a separate existence and entity, is (in a subtle way) also a denial of His true unity (that there is nothing else besides Him).
+
+The same applies to the prohibited things themselves. Since they provide the possibility for the person's act of transgression, which is a denial of His true unity, it follows that they are in opposition to His "true unity".
+
+From this, it is understood that just as we said regarding the reality of idolatry in the simple sense—that in truth it has no substance or reality and is only the imagination of the worshiper, and furthermore, that the intent in this itself (that there is a possibility for such an imagination in the mind of the worshiper) is only so that there should be the action of the Jewish people to remove it, "Remove the foreign gods..."—so too (in a subtle way) it is with all prohibited things. The fact that they are a *cheftza* of prohibition, which provides the possibility for a person to deny His true unity, is not an essential matter in the *cheftza*, but only for the sake of the *avodah* of the Jewish people, as follows.
+
+6. The matter is understood based on what is explained in *Tanya*: that the possibility for the reality of an existence separate from His unity is only because of the *hester panim* (concealment of the face), which covers and hides the Divine power within created beings (which brings them into being from nothingness to existence at all times). However, this concealment is only from the perspective of the created beings, for whom this concealment has reality, and it causes them to imagine that there is some reality besides Him. But from the perspective of the Holy One, blessed be He, there is nothing that conceals or hides before Him, and there is nothing separate from Him. Therefore, "All believe that He alone is as He was before the world was created, in truth... without any change."
+
+Seemingly, this requires explanation: Since the absolute truth is that no thing in the world has reality besides Him (and the fact that it does not appear so to the eyes is only because of the *hester panim* that covers the truth)—why do the laws of the Torah (which is the Torah of Hashem and the Torah of truth) grant validity to the reality of those things as entities separate from His unity, to the point that they become prohibited and impure, etc., in truth (according to Torah law)?
+
+One of the explanations for this is that the fact that prohibited things have validity and reality according to the Torah is only so that there should be the *avodah* of Israel, to overcome them and reject them, etc. In the words of the Rambam (above): "Remove the foreign gods..." In other words: The *cheftza* of the prohibition in and of itself has no truth (and is only because of the concealment that covers the truth), and the "truth" that exists in the reality of the prohibition is solely from the fact that it was given reality and validity (according to Torah law) so that there would be the *avodah* of Israel. For "You yearn for the work of Your hands" (as above), that they should reject the prohibited things and overcome them, as above.
+
+7. From here we learn great encouragement in a person's *avodah* on earth. Sometimes a person can come to a feeling of weakness in his *avodah* when he sees all the obstacles and hindrances in the world regarding matters of holiness, and that to overcome them requires a tremendous battle, etc. From where will he have the strength to win this battle?
+
+To this comes the instruction: that the entire reality of the opponent is only because of the concealment that covers the truth that "there is nothing else besides Him" and no thing in the world has reality besides Him. Therefore, if a person will cleave to Hashem until His true unity is revealed within him, then, as a matter of course, the reality of the opponent will be nullified, like darkness that is pushed away before light, for in truth it has no reality at all, as above.
+
+As is explained also in the interpretation of the verse: "When you go out to war against your enemies," which is a hint to the war against the *yetzer* (which is called a person's "enemy")—and more generally, it refers to the war against all the enemies of Hashem. A person must know (immediately upon going out to war) that in essence he is "above (and beyond) your enemies," for only the Jewish people who are cleaved to Hashem have true reality, whereas "your enemies," who are in opposition to holiness, have no true validity or reality.
+
+If so, why did Hashem make it such that there is a reality of "your enemies," that to the eyes it appears they have the validity and ability to oppose holiness? The answer to this is at the beginning of the verse, "When you go out to war," that the entire intent is only so that the Jewish people should go out to war and bring out and reveal in practice their powers in the nullification of the enemies of Hashem.
+
+In this, the contradiction at the end of the verse is explained: "(When you go out to war...) and you take his captives":
+
+The meaning of "his captives" is that one takes from the enemy the things that were in his captivity. In our context, the *sitra achra* (the enemies) has no validity or reality from itself, Heaven forbid, other than what fell into its captivity from the realm of holiness.
+
+But according to this, the end of the verse, "and you take his captives," is not understood—since this is "captives"—your property, why is it said "and you take"? The departure from the domain of the enemy is not a matter of "taking captives," but on the contrary, a return to its true place, in the realm of holiness, and it should have said "and you return his captives."
+
+Rather, these are the two opposites mentioned above regarding the reality of the *sitra achra* ("your enemies"): On one hand, they have no reality from themselves, only what they take in "captivity" from the realm of holiness. Together with this, they are given validity according to the Torah, because without this, the reality of the *avodah* of Israel would not be possible [for if they had no validity according to the Torah, and all their opposition to holiness were nothing but mere imagination, there would be no novelty in the fact that a person defeats the enemy]. This is what is meant by "and you take his captives"—that even though we are speaking of "his captives," a thing that has no reality from itself but only because of holiness, nevertheless, there must be (from the side of Israel) an action of "taking," as if they were in the possession of the enemy, for only through this is the novelty of Israel emphasized, in that they defeat and conquer the enemy under the domain of holiness.
+
+This is the entire reality of your enemies: not that they have reality in truth, Heaven forbid, but solely so that the Jewish people should take what is theirs ("and you take his captives"), similar to the words of Rashi regarding the Land of Israel: "The entire earth belongs to the Holy One, blessed be He; in His will He gave it to them, and in His will He took it from them and gave it to us." That is, the giving to them was from the outset only in order to take it from them and give it to Israel.
+
+(From the *sicha* of *Shabbos Parshas Shoftim*, 5748)
+
+---
+
+_Section: וישלח_
+
+**Hebrew:**
+
+## שיחה ג
+
+## 162
+
+אבל רש"י בפירושו על התורה מע­תיק מ"אגדת מדרש ספר שמואל": "ג' מוחלין להן עוונותיהן[ftnref\_1352\_19] גר שנתגייר וה­עולה לגדולה והנושא אשה" [ויליף מזה ש"נקראת מחלת שנמחלו[ftnref\_1353\_20] עוונותיו"][ftnref\_1354\_21].
+היינו שבירושלמי ומדרש שמואל (ש­לפנינו) קחשיב רק "חכם חתן ונשיא" ולא נמנה עמהם גר שנתגייר (אף דמיני' ילפינן שכן הוא גבי חכם) — וי"ל הטעם, כי גר שנתגייר ה"ה מציאות חדשה, כ­קטן שנולד דמי[ftnref\_1355\_22], ואין לו שייכות למצי­אותו הקודמת[ftnref\_1356\_23] (עד שמצד "דין תורה" יכול לישא אחותו (מגייותו)[ftnref\_1357\_24]), שלכן[ftnref\_1358\_25] מובן שאין לכללו בהנך ג' שמוחלין להן עוונותיהן — וצריך להבין מהו טעמו של רש"י שכ' "ג' מוחלין להן עוונותיהן גר שנתגייר וכו'", שגם גר הוא מהג'[ftnref\_1359\_26] (וחכם שנתמנה ונשיא — שניהם בכלל "עולה לגדולה")[ftnref\_1360\_27]?
+ב. והנה בהסברת גירסת רש"י — ש­מביא גר שנתגייר בין אלה שמוחלין להם עוונותיהם (ולא עוד אלא שמקדים "גר שנתגייר" לכולם) — י"ל (כמבואר במ"א[ftnref\_1361\_28]) דענין המחילה דגר מלמד על השאר: כשם שבגר שנתגייר הרי פשוט, שמחילת עוונותיו קשורה בזה ששינה מעשיו לטובה[ftnref\_1362\_29] — כך גם מי שעולה ל­גדולה ונושא אשה[ftnref\_1363\_30], שעוונותיהם נמ­חלים, ה"ז משום שבודאי עשו תשובה.
+ולכאורה כן משמע קצת מב"ר[ftnref\_1364\_31] ש­עשו "נתן דעתו להתגייר מחלת שמחל לו הקב"ה על כל עוונותיו", היינו ד­מחילת העוונות של החתן באה מצד דעתו לשנות מעשיו[ftnref\_1365\_32].
+
+## 163
+
+ולפ"ז מסתבר, דלהירושלמי ומדרש שמואל (שלפנינו), שלא מנו גר בין הנך שמוחלין להם עוונותיהם (ורק נלמד מ­גר), משמע שמחילת העוונות בחכם חתן ונשיא לא באה מפני ששינו מעשיהם ועשו תשובה, אלא רק בגלל זה שנעשו חכם (שנתמנה) נשיא וחתן[ftnref\_1366\_33]. וכן מוכח מדיוק לשון הירושלמי ומדרש שמואל "חכם חתן נשיא גדולה[ftnref\_1367\_34] מכפרת", דאין "גדולה" חלוקה בפ"ע[ftnref\_1368\_35] אלא היא מוסבת על כל הג' פרטים שנמנו לפנ"ז[ftnref\_1369\_36], דהיינו שעצם עלייתם לגדולה מכפר.
+ויש להבין סברת החילוק בין דברי הירושלמי (והמדרש שמואל שלפנינו) והמאמר כפי שהובא בפרש"י.
+עוד צריך ביאור בדברי הב"ר הנ"ל, כי אינם עולים בקנה אחד עם המבואר לעיל, שהרי מוכח שם שרק "נתן דעתו להתגייר (היינו לשוב בתשובה[ftnref\_1370\_37])", אבל לפועל לא נתגייר, שלא שינה מעשיו[ftnref\_1371\_38].
+ג. גם יש לדייק: מדוע נרמז ענין כללי כזה השייך לנישואי כל איש ואיש (שחתן מוחלין לו עוונותיו) בנשואי עשו עם בשמת בת ישמעאל, ולא בנישואי חו"כ מסוג יותר נעלה, המתאימים יותר לתוכנם של נישואין (ע"פ תורה)? ובפרט שמלבד זאת שהמדובר הוא בנשואי עשו הרשע, הרי גם הנשואין עצמם לא היו אלא ענין של רמאות — להראות ליצחק שנושא אשה כשירה, כמסופר בפ' תול­דות[ftnref\_1372\_39] "וירא עשו כי ברך יצחק את יעקב. . ויצו עליו. . לא תקח אשה מבנות כנען. . וירא עשו כי רעות בנות כנען בעיני יצחק אביו וילך עשו אל ישמעאל ויקח את מחלת בת ישמעאל גו' על נשיו גו'", ופרש"י "הוסיף רשעה על רשעתו שלא גרש את הראשונות"[ftnref\_1373\_40].
+לפי הירושלמי (ומדרש שמואל של­פנינו) יש לומר, דבזה שהלימוד הוא דוקא מ"מחלת" שנאמר בנשואי עשו, בא הכתוב להשמיענו שמחילת עוונותיו של חתן ה"ה גם באופן שלא שינה מעשיו לטוב ולא עשה תשובה (כמו עשו הרשע, "שלא גרש את הראשונות");
+אבל לפי פרש"י שגם בחתן ה"ז תלוי בשינוי מעשיו לטוב, בדוגמת גר שנת­גייר,
+
+## 164
+
+הרי תמוה ביותר, איך מתאים לו­מר שנמחלו עונותיו של עשו — והלא לא עשה תשובה אלא "הוסיף רשעה כו'"?
+לכאורה י"ל שמהאי טעמא נרמז זה בשם אשתו — "מחלת" (ולא בשמו של עשו) — כי בנדו"ד נמחלו עונותי' של מחלת אשת עשו, כי רק היא עשתה תשובה בעת הנישואין[ftnref\_1374\_41].
+אבל עדיין יש להבין מאי טעמא מ­רמז הכתוב דבר זה בנשואי עשו דוקא?
+יש מפרשים[ftnref\_1375\_42], ד"ממה שנמצא לימוד זה בהך קרא למדנו דאע"ג דכבר יש לו אשה ובנים דהשתא תו ליכא מצות פו"ר אפ"ה מוחלין לו דהא הכא גבי עשו כשלקח אשה זו כבר הו"ל תרתי נשי ובנים נמי".
+אמנם לכאורה אין זה ביאור מספיק — כי אף שלא מצינו לפנ"ז מפורש בתורה ענין של נשואי אשה לאחר ש­כבר היו לו להנושא אשה ובנים[ftnref\_1376\_43] (וגם בנשואי יעקב, שנשא ד' נשים, אין מקום ללימוד זה, כי מעיקרא לא היו לו עוונות[ftnref\_1377\_44]) — הרי מובן הוא דכיון שכל עניני התורה הם בתכלית הדיוק, צריך לומר, שדבר זה מתאים להשמיענו (לרא­שונה) דוקא בנשואי עשו.
+ד. וי"ל הביאור בזה:
+כמה טעמים נאמרו[ftnref\_1378\_45] ע"ז ש"נהגו[ftnref\_1379\_46] שהחתן והכלה מתענין ביום חופתן": א) "דהוי[ftnref\_1380\_47] סליחה דידהו שנמחלין עוונו­תיהן ויום כפור דידהו"[ftnref\_1381\_48]; ב) "שמא יש­תכרו ולא יהי' דעתן מיושבת עליהן ב­שעת הקידושין"[ftnref\_1382\_49]; ג) "מפני שמצוה חבי­בה עליהם (לכן נוהגין) כדרך שעושין חסידים הראשונים שהיו מתענין על מצוה החביבה, כגון לולב ושאר דברים"[ftnref\_1383\_50].
+
+## 165
+
+וא' מהחילוקים שנאמר בפוסקים בין הני טעמי הוא[ftnref\_1384\_51]: לטעם הא' ראוי להש­לים התענית[ftnref\_1385\_52], משא"כ לטעם הב' והג' — א"צ להשלימו, כפשוט (ולאידך אם נת­אחרה החופה עד אחר צה"כ — לטעם הא' א"צ להתענות רק עד צה"כ, ולטעם הב' והג' — צריכים להתענות עד אחרי החופה).
+וי"ל שאפי' את"ל שגם לטעם הא' (דהוא יום סליחה שלהם) אין צריך להשלים התענית — כיון שגם תענית שעות נחשב כתענית[ftnref\_1386\_53] — יש חילוק עיקרי בין הני ג' טעמי בהגדרת מהות התענית: לטעם הא' יש כאן חלות דין תענית על הגברא וגם על היום[ftnref\_1387\_54]; משא"כ לטעם הב' והג', דאין בזה חלות תענית, אפי' על הגברא, כ"א רק שלילה והעדר האכילה.
+והנה פשוט דלכו"ע (גם הפוסקים שנקטו הטעם הב' והג') הרי יום החופה הוא יום מחילה וסליחה להחתן והכלה, כפשטות דרשת רז"ל בירושלמי ומדרש שמואל.
+ולפ"ז צ"ל, שהפוסקים שנתנו טעמים אחרים להתענית סבירא להו שמחילתם של החו"כ אינה תלוי' בתשובה ותענית של תשובה, אלא המחילה באה ע"י ה­נשואין לבד.
+ומכיון שלכו"ע[ftnref\_1388\_55] יום חופתם של החתן והכלה הוי יום מחילה וסליחה (ע"ד יום כיפור), יש לומר, שהמחלוקת בין הטעמים הנ"ל שבפוסקים — אם זקו­קים לתענית של תשובה בשביל הכפרה — היא בדוגמת הפלוגתא שמצינו בענין כפרת יום הכפורים[ftnref\_1389\_56]: לדעת רבי בין עשה תשובה בין לא עשה תשובה יוה"כ מכפר, דעיצומו של יוה"כ מכפר, ולדעת רבנן — רק אם עשה תשובה יוה"כ מכפר.
+ועד"ז הוא בנדו"ד, דהאומרים דמת­ענין משום דהוי יום סליחה ויו"כ דידהו, ס"ל דחתן וכלה צריכים עשית תשובה לכפרתן[ftnref\_1390\_57], דזהו תוכן תענית של תשו­בה[ftnref\_1391\_58] (כמ"ש הרמב"ם[ftnref\_1392\_59] דהצום הוא "כדי לעורר הלבבות לפתוח דרכי התשובה"), ואלו שנקטו הטעם הב' והג' הנ"ל — ס"ל דהכפרה היא מצד עיצומו של יום (חופתן), ע"ד דעת רבי (הנ"ל) בנוגע ליוה"כ.
+
+## 166
+
+ה. אמנם אפילו לרבנן, דס"ל שאין יו"כ מכפר בלי תשובה, מוכח מדברי הרמב"ם[ftnref\_1393\_60] דאין הכפרה באה מהתשובה, אלא מעיצומו של יום הכפורים, אלא שעיצומו של יוה"כ מכפר דוקא כאשר ישנה תשובת האדם[ftnref\_1394\_61].
+ויתירה מזו[ftnref\_1395\_62]: מזה שכתב הרמב"ם[ftnref\_1393\_60] "עיצומו של יום הכפורים מכפר לשבים" ולא אמר "מכפר עם התשובה" וכיו"ב, מוכח דלדעת הרמב"ם מועילה כפרת עיצומו של היום גם לזה שלא עשה תשובה (גמורה) על חטאיו (תשובה עם כל גדרי' ותנאי' — חרטה על העבר וקבלה טובה על להבא בוידוי דברים), אלא שהוא נמצא רק בתנועה וגדר של "שב", ששב ופונה לה'.
+וע"פ זה נמצא שיש ג' שיטות באופן הסליחה ומחילה דיו"כ ויחסה לתשובה: א) דעת רבי שאין צריך לתשובה בשביל הסליחה; ב) דעת רבנן (בפשטות) שצריך תשובה ממש; ג) שיטת הרמב"ם (לפי פירושו בדעת רבנן) שצ"ל תנועה של שיבה, אבל לא מעשה תשובה ממש.
+ויש לומר, שמעין שלש שיטות אלו ביו"כ הן ג' השיטות הנ"ל בגדר הסליחה ומחילה ביום החופה:
+לפי הטעם שהתענית היא רק בשביל צלילות הדעת בשעת הקנין — נמצא שאין לסליחה כל קשר עם התענית; לפי הטעם דהוי תענית של תשובה — ה"ז כמו יו"כ לדעת רבנן (בפשטות)[ftnref\_1397\_63]; ולפי הטעם שהתענית הוא משום חביבות המצוה, י"ל שהוא ע"ד שיטת הרמב"ם ביו"כ — שהרי סו"ס אף שהתענית אינו לתשובה, הרי בחביבות של מצוות הקב"ה — יש בה קירוב ושיבה להקב"ה.
+ו. לפי זה יש לבאר החילוק הנ"ל בין דרשת הירושלמי ומדרש שמואל (לפנינו) — ופרש"י והמדרש:
+כפי פשטות דרשת הירושלמי, ה­כפרה דחתן היא כולה מצד עצם ענין הגדולה דמכפרת[ftnref\_1398\_64], והיינו כענין עיצומו של יום ביום כפור, משא"כ לפרש"י ש­מחילת עוונות של חתן ועולה לגדולה באה דוקא כאשר יש עמה תשובה[ftnref\_1399\_65] — יש לומר, שהכפרה היא אמנם מצד עצם הענין דנושא אשה (ועולה לגדולה), אלא שכפרה זו אינה אלא דוקא כאשר ישנו ענין התשובה, בדוגמת גר שמשנה מע­שיו כולן לטובה.
+[ולכן אף שלא מצינו מפורש שעשו עשה תשובה, הרי השם מחלת הוא שמה של אשתו — שהיא עשתה תשובה בעת הנשואין[ftnref\_1400\_66]].
+ולפי המדרש ש"נתן דעתו להתגייר מחלת שמחל לו הקב"ה על כל עוונו­תיו", נמצא דאף שלא הי' כאן ענין של (גיור ו)תשובה ממש, אלא רק תנועה של קירוב לטוב דחפץ להתגייר[ftnref\_1401\_67] — גם זה מועיל למחילת עוונותיו שנמחלים ע"י ענין הנשואין.
+
+**English:**
+
+## 162
+
+However, Rashi in his commentary on the Torah cites the *Aggadat Midrash Sefer Shmuel*: "There are three whose sins are forgiven: a convert who converts, one who ascends to greatness, and one who takes a wife" [and he derives from this that "she is called *Machalas*, for her sins were forgiven"].
+
+This means that in the *Yerushalmi* and *Midrash Shmuel* (that we have before us), only "a sage, a groom, and a *nasi*" are listed, and a convert who converts is not counted among them (even though we derive from him that this is the case regarding a sage). One could say the reason is that a convert who converts is a new reality, "like a newborn child," and he has no connection to his previous existence (to the point that according to "Torah law," he could marry his sister (from his days as a gentile)). Therefore, it is understood why he would not be included among those three whose sins are forgiven. Thus, one must understand the reason for Rashi’s version, which writes: "Three whose sins are forgiven: a convert who converts, etc.," such that a convert is also among the three (and a sage who is appointed and a *nasi*—both are included in "ascending to greatness").
+
+b. Regarding the explanation of Rashi’s version—that he includes a convert who converts among those whose sins are forgiven (and furthermore, places "a convert who converts" before everyone else)—it can be said (as explained elsewhere) that the matter of the convert’s forgiveness teaches us about the others: just as with a convert who converts, it is obvious that the forgiveness of his sins is connected to the fact that he has changed his deeds for the better, so too, regarding one who ascends to greatness or takes a wife, whose sins are forgiven, this is because they have certainly performed *teshuvah*.
+
+Seemingly, this is also implied somewhat by *Bereishis Rabbah*, that Esav "set his mind to convert, *Machalas*, for the Holy One, blessed be He, forgave him all his sins," meaning that the forgiveness of the groom’s sins comes from his intention to change his deeds.
+
+## 163
+
+According to this, it is plausible that for the *Yerushalmi* and *Midrash Shmuel* (that we have before us), which did not count a convert among those whose sins are forgiven (and it is only learned from a convert), it implies that the forgiveness of sins for a sage, a groom, and a *nasi* does not come because they changed their deeds and performed *teshuvah*, but rather simply because they became a sage (appointed), a *nasi*, or a groom. This is also proven by the precision of the language of the *Yerushalmi* and *Midrash Shmuel*: "A sage, a groom, a *nasi*—greatness atones." "Greatness" is not a separate category, but rather it refers to all three details listed previously, meaning that the very act of ascending to greatness brings atonement.
+
+One must understand the logic behind the difference between the words of the *Yerushalmi* (and the *Midrash Shmuel* before us) and the statement as it is brought in Rashi.
+
+Furthermore, the words of the aforementioned *Bereishis Rabbah* require explanation, as they do not align with what was explained above; for it is proven there that he only "set his mind to convert (meaning to return in *teshuvah*)," but in practice he did not convert, and he did not change his deeds.
+
+c. One must also note: Why is such a general matter, which applies to the marriage of every single man (that a groom’s sins are forgiven), hinted at in the marriage of Esav to Basmas the daughter of Yishmael, rather than in the marriage of a *chossid* or *chacham* of a higher caliber, which would be more appropriate for the content of a marriage (according to Torah)? Especially since, aside from the fact that this concerns the marriage of Esav the wicked, the marriage itself was nothing but a matter of deception—to show Yitzchak that he was marrying a suitable woman, as is recounted in *Parshas Toldos*: "And Esav saw that Yitzchak had blessed Yaakov... and commanded him... 'Do not take a wife from the daughters of Canaan.' And Esav saw that the daughters of Canaan were evil in the eyes of Yitzchak his father, and Esav went to Yishmael and took *Machalas* the daughter of Yishmael, etc., in addition to his wives, etc.," and Rashi comments: "He added wickedness to his wickedness, for he did not divorce the first ones."
+
+According to the *Yerushalmi* (and *Midrash Shmuel* before us), one could say that by the fact that the lesson is derived specifically from "*Machalas*" mentioned in Esav’s marriage, the verse comes to inform us that the forgiveness of a groom’s sins occurs even in a case where he has not changed his deeds for the better and has not performed *teshuvah* (like Esav the wicked, "who did not divorce the first ones").
+
+But according to Rashi, that even for a groom this depends on changing his deeds for the better, like a convert who converts,
+
+## 164
+
+it is highly puzzling: how is it appropriate to say that Esav’s sins were forgiven—did he not fail to perform *teshuvah*, and instead "added wickedness, etc."?
+
+Seemingly, one could say that for this very reason, this is hinted at by the name of his wife—"*Machalas*" (and not by Esav’s name)—because in this instance, the sins of *Machalas*, Esav’s wife, were forgiven, for she alone performed *teshuvah* at the time of the marriage.
+
+However, one must still understand why the verse hints at this matter specifically in the marriage of Esav?
+
+Some commentators explain that "from the fact that this lesson is found in this verse, we learn that even though he already has a wife and children, so that there is no longer a *mitzvah* of *pru u'rvu*, nevertheless, his sins are forgiven, for here, regarding Esav, when he took this wife, he already had two wives and children as well."
+
+However, on the face of it, this is not a sufficient explanation—for even though we do not find explicitly in the Torah the matter of taking a wife after one already has a wife and children (and even in the marriage of Yaakov, who took four wives, there is no room for this lesson, for he had no sins to begin with)—it is understood that since all matters of the Torah are in the utmost precision, one must say that this matter is appropriate to inform us (for the first time) specifically in the marriage of Esav.
+
+d. The explanation for this may be:
+
+Several reasons have been stated for why "it is customary that the groom and bride fast on the day of their *chuppah*": 1) "Because it is their day of forgiveness, when their sins are forgiven, and it is their *Yom Kippur*"; 2) "Lest they become intoxicated and their minds not be settled at the time of the *kiddushin*"; 3) "Because it is a beloved *mitzvah* to them (therefore they are accustomed to it), in the way that the early *Chassidim* would fast on a beloved *mitzvah*, such as the *lulav* and other things."
+
+## 165
+
+One of the differences stated in the *poskim* between these reasons is: according to the first reason, it is appropriate to complete the fast, whereas according to the second and third reasons, there is no need to complete it, as is simple (and conversely, if the *chuppah* is delayed until after nightfall—according to the first reason, one does not need to fast only until nightfall, while according to the second and third reasons, they must fast until after the *chuppah*).
+
+It could be said that even if you were to say that even according to the first reason (that it is their day of forgiveness), there is no need to complete the fast—since even a partial-day fast is considered a fast—there is a fundamental difference between these three reasons in the definition of the essence of the fast: according to the first reason, there is a *chulus din* (legal application) of a fast upon the person and also upon the day; whereas according to the second and third reasons, there is no *chulus* of a fast, not even upon the person, but only a negation and absence of eating.
+
+Now, it is simple that according to all opinions (even the *poskim* who adopted the second and third reasons), the day of the *chuppah* is a day of forgiveness and pardon for the groom and bride, as is the simple meaning of the *drasha* of our Sages in the *Yerushalmi* and *Midrash Shmuel*.
+
+According to this, it must be that the *poskim* who provided other reasons for the fast hold that the forgiveness of the groom and bride is not dependent on *teshuvah* and a fast of *teshuvah*, but rather the forgiveness comes through the marriage alone.
+
+And since according to all opinions the day of the *chuppah* of the groom and bride is a day of forgiveness and pardon (similar to *Yom Kippur*), it can be said that the dispute between the aforementioned reasons in the *poskim*—whether they require a fast of *teshuvah* for the atonement—is similar to the dispute we find regarding the atonement of *Yom Kippur*: according to Rabbi, whether one performed *teshuvah* or did not perform *teshuvah*, *Yom Kippur* atones, for the essence of *Yom Kippur* atones; and according to the Rabbis, *Yom Kippur* atones only if one performed *teshuvah*.
+
+And it is the same in our case, for those who say that they fast because it is a day of forgiveness and their *Yom Kippur*, hold that the groom and bride must perform *teshuvah* for their atonement, for that is the content of a fast of *teshuvah* (as the Rambam writes that the fast is "to awaken the hearts to open the paths of *teshuvah*"), while those who adopted the second and third reasons mentioned above hold that the atonement is due to the essence of the day (their *chuppah*), similar to the opinion of Rabbi (mentioned above) regarding *Yom Kippur*.
+
+## 166
+
+However, even according to the Rabbis, who hold that *Yom Kippur* does not atone without *teshuvah*, it is proven from the words of the Rambam that the atonement does not come from the *teshuvah*, but from the essence of *Yom Kippur*; rather, the essence of *Yom Kippur* atones specifically when there is the person’s *teshuvah*.
+
+And furthermore: from the fact that the Rambam writes "the essence of *Yom Kippur* atones for those who return" and does not say "atones with *teshuvah*" or the like, it is proven that according to the Rambam, the atonement of the essence of the day is effective even for one who has not performed (complete) *teshuvah* for his sins (a *teshuvah* with all its parameters and conditions—regret for the past and a good resolution for the future with verbal confession), but rather he is found only in the movement and state of one who "returns," who turns and faces Hashem.
+
+Based on this, it turns out there are three approaches to the manner of forgiveness and pardon of *Yom Kippur* and its relationship to *teshuvah*: 1) The opinion of Rabbi, that *teshuvah* is not needed for forgiveness; 2) The opinion of the Rabbis (simply), that actual *teshuvah* is required; 3) The approach of the Rambam (according to his interpretation of the Rabbis' opinion), that there must be a movement of returning, but not an actual act of *teshuvah*.
+
+One could say that these three approaches to *Yom Kippur* are reflected in the three aforementioned approaches to the definition of forgiveness and pardon on the day of the *chuppah*:
+
+According to the reason that the fast is only for clarity of mind at the time of the acquisition—it turns out that the forgiveness has no connection to the fast; according to the reason that it is a fast of *teshuvah*—this is like *Yom Kippur* according to the Rabbis (simply); and according to the reason that the fast is because of the belovedness of the *mitzvah*, it could be said that it is similar to the approach of the Rambam regarding *Yom Kippur*—for ultimately, even though the fast is not for *teshuvah*, in the belovedness of the *mitzvah* of the Holy One, blessed be He, there is a drawing near and a return to Hashem.
+
+f. According to this, one can explain the aforementioned difference between the *drasha* of the *Yerushalmi* and *Midrash Shmuel* (before us)—and Rashi and the *Midrash*:
+
+According to the simple *drasha* of the *Yerushalmi*, the atonement of the groom is entirely due to the essence of the matter of greatness that atones, which is like the matter of the essence of the day on *Yom Kippur*. Whereas according to Rashi, that the forgiveness of sins for a groom and one who ascends to greatness comes specifically when *teshuvah* accompanies it—one could say that the atonement is indeed due to the essence of the matter of taking a wife (and ascending to greatness), but this atonement is only when there is the matter of *teshuvah*, similar to a convert who changes all his deeds for the better.
+
+[And therefore, even though we do not find explicitly that Esav performed *teshuvah*, the name *Machalas* is the name of his wife—who performed *teshuvah* at the time of the marriage].
+
+And according to the *Midrash* that "he set his mind to convert, *Machalas*, for the Holy One, blessed be He, forgave him all his sins," it turns out that even though there was no matter of (conversion and) actual *teshuvah*, but only a movement of drawing near to the good, that he desired to convert—this too is effective for the forgiveness of his sins, which are forgiven through the matter of the marriage.
+
+---
+
+
+## י"ט כסלו
+
+_Section: י"ט כסלו_
+
+**Hebrew:**
+
+## 171
+
+חסידות, והוזקק להוראה מפורשת מרבו­תיו ש"אדרבה, לכשתצא תאמר יותר"?
+ב. ויובן זה בהקדים ביאור דברי ה­אריז"ל[ftnref\_1433\_7] ש"דוקא בדורות אלו[ftnref\_1434\_8] האחרונים מותר ומצוה[ftnref\_1435\_9] לגלות זאת החכמה" — אף שבדורות הראשונים היתה חכמת הקבלה "נסתרה[ftnref\_1436\_10]. . ונעלמה מכל תלמידי חכמים כ"א ליחידי סגולה ואף גם זאת בהצנע לכת ולא ברבים כדאיתא ב­גמ'[ftnref\_1437\_11]"—
+דלכאורה: מכיון שהורו חז"ל ש­"דברים שהן כבשונו של עולם ("סתרו של עולם") יהיו תחת לבושך"[ftnref\_1438\_12], וע"פ דין הגמ'[ftnref\_1437\_11] יש כמה תנאים והגבלות באופן גילוי חכמה זו (וכן נפסק להלכה ב­רמב"ם[ftnref\_1440\_13]) — איך הותר בדורות אחרונים "לגלות זאת החכמה"?
+והביאור בזה — ובהקדים:
+מובן, שהתנאים וההגבלות בלימוד חכמת האמת אינם מפני איסור מצד ה­חפצא דתורה (שחלק זה שבתורה — צריך בעצם להיות בהסתר), אלא מפני חסרון בהגברא, דכיון שרוב בנ"א אינם יכולים לעמוד על דברים אלה, לכן לימוד זה עלול להביא לידי היזק (ע"ד "לא[ftnref\_1441\_14] זכה נעשית לו כו'"). אבל מצד ה­חפצא דתורה, הרי חכמה זו היא חלק מ­תורתנו הקדושה השייכת לכאו"א מישר­אל — "מורשה קהלת יעקב"[ftnref\_1442\_15], וכל אחד ואחד מישראל חייב ללמוד אותו[ftnref\_1443\_16] (כמו שמחוייב ללמוד שאר כל התורה כולה).
+ובפרט ע"פ דברי הרמב"ם בסוף ספר היד[ftnref\_1444\_17], וז"ל: "ובאותו הזמן. . לא יהי' עסק כל העולם אלא לדעת את ה' בלבד ולפיכך יהיו ישראל חכמים גדולים ו­יודעים דברים הסתומים וישיגו דעת בוראם כפי כח האדם שנאמר[ftnref\_1445\_18] כי מלאה הארץ דעה את ה' כמים לים מכסים". הרי להדיא, שבימות המשיח יהי' עסק כל העולם לדעת את ה', היינו ש(עיקר) עסק התורה אז[ftnref\_1446\_19] לא יהי' בלימוד הלכות התורה הנגלות לנו ולבנינו, אלא בידיעת הבורא, "דברים הסתומים", וזה יהי' "עסק כל העולם", ובאופן ד"כמים לים מכסים", ומובן שלא יהיו ההגבלות ד­"אין דורשין. . (אפילו) ביחיד אא"כ כו'"[ftnref\_1447\_20].
+ולכאורה ה"ז היפך פסק הרמב"ם עצמו ע"ד התנאים וההגבלות בלימוד חכמות אלו (והרי גם בימות המשיח לא תתבטל שום הלכה כו' מהלכות התורה)? ועכצ"ל, שכל האיסור מלכתחילה אינו אלא מפני שבזמן הזה אא"פ לרוב בני אדם לעמוד על חכמות אלו, ולכן קבעה
+
+## 172
+
+תורה תנאים מסויימים בלימוד זה; אבל לימות המשיח, שאז "לא יהי' שם לא רעב ולא מלחמה ולא קנאה ותחרות"[ftnref\_1448\_21], וכאו"א יהי' במצב שיוכל להתעמק כראוי בענינים אלו, הרי בזה יהי' "עסק כל העולם — לדעת את ה' בלבד".
+אבל, בדורות האחרונים מצוה לגלות זאת החכמה (למרות התנאים וההגבלות כו') — וי"ל בזה שני ביאורים[ftnref\_1449\_22]:
+א) ע"ד מ"ש הרמב"ם בפתיחה לספרו מורה הנבוכים[ftnref\_1450\_23], שהטעם שכתב ספרו זה, שיש בו "ענינים נסתרים", הוא "אמרם[ftnref\_1451\_24] בכמו זה הענין — עת[ftnref\_1452\_25] לעשות לה' הפרו תורתך", והיינו, דהיות בנ"י במצב של "נבוכים" הכריח אותו לגלות "ענינים נסתרים" כדי להציל "נבוכים" בעניני אמונה כו'.
+ועד"ז הוא בנוגע לגילוי פנימיות ה­תורה בדורות האחרונים — שזהו בגדר "עת לעשות לה' הפרו תורתך": גודל ה­ירידה של הדורות האחרונים, שנתמעטו הלבבות וכו', וכן מצד מצב העולם ב­כללותו, שהרע בדורות אלה הוא בהת­גברות יתירה, מהווה הכרח רב לגלות זאת החכמה, פנימיות התורה, שהיא מעוררת את הכחות הפנימים הנסתרים שבנשמת האדם, הנותנים לו עזר וסיוע להתגבר על חשכת הגלות מבחוץ ועל המניעות שמבפנים, להתעורר באהבת ה' ויראתו כו' ולעבדו בלב שלם[ftnref\_1453\_26].
+ב) מצינו כמה ענינים שבאים בתור הכנה לימות המשיח, ובלשון הרמב"ם[ftnref\_1454\_27] "ליישר ישראל ולהכין לבם" לימות ה­משיח, וכ"ש וק"ו שכן צ"ל בנוגע לענינם העיקרי של ימות המשיח — "לא נתאוו החכמים והנביאים ימות המשיח. . אלא כדי שיהיו פנויין בתורה וחכמתה"[ftnref\_1455\_28], ש­יוכלו לעסוק בהשגת "דעת בוראם" — שצריכים "ליישר ישראל ולהכין לבם" לכך[ftnref\_1456\_29], וזהו על ידי גילוי פנימיות ה­תורה בדורות האחרונים דוקא.
+ג. בהתאם להחילוק בין שני הביאו­רים בטעם גילוי פנימיות התורה בדורות האחרונים — ישנם שני אופנים גם באופן הגילוי, ע"ד שני האופנים שבנגלה ד­תורה — משנה וגמרא:
+א) גילוי פנימיות התורה באופן שה­עיקר הוא ידיעת נקודת הענין בקיצור, ע"ד לשון המשנה שהוא "דבר[ftnref\_1457\_30] קצר וכולל ענינים רבים".
+ב) הגילוי באופן מבואר ומוסבר ב­הרחבה, ע"ד אריכות הביאור והשקו"ט שבגמרא, ובלשון הזהר[ftnref\_1458\_31] — "יתפרנסון",
+
+## 173
+
+וכמבואר במפרשי הזהר[ftnref\_1459\_32], דהיינו שעני­ני חכמת האלקות מפורשים ומוסברים בהבנה והשגה (לא כהלומד לגירסא), ש­אז הלימוד הוא בגדר "פרנסה", כמבואר בתניא[ftnref\_1460\_33] שע"י לימוד התורה "היטב ב­עיון שכלו עד שנתפסת בשכלו ומתאח­דת עמו והיו לאחדים — נעשה מזון לנפש".
+[ויש לומר, שבזה יש לתווך דברי אדמו"ר הזקן אודות לימוד חכמת ה­קבלה, שנראים כסותרים לכאורה זא"ז:
+אחז"ל[ftnref\_1461\_34] — וכן נפסק להלכה[ftnref\_1462\_35] — ש­חייב אדם לשלש זמן לימודו — שליש במקרא שליש במשנה ושליש בתלמוד. ופסק אדה"ז בהל' ת"ת שלו[ftnref\_1463\_36], ד"חכמת הקבלה תחשב בכלל שליש בתלמוד" (ומיוסד על פסק הרמב"ם[ftnref\_1464\_37] ש"הענינים הנקראים פרדס בכלל הגמרא הן"); ואילו בספרו לקו"ת[ftnref\_1465\_38] מבאר אדה"ז (וב­שקו"ט ע"ד הנגלה) "דלימוד הזהר וכה­אריז"ל הוא בכלל שליש במקרא"[ftnref\_1466\_39], "ש­הרי מדרש הזהר הוא על פסוקי ה­תורה[ftnref\_1467\_40] ועוד שגם בלימוד רזין דאוריי­תא אינו משיג רק המציאות כו'"[ftnref\_1468\_41], "וה"ז[ftnref\_1466\_39] כעין לימוד המקרא שהוא קורא בשמותיו של הקב"ה אע"פ שאינו משיג כלל עצמיות הגנוז בהן. . וכעין זה הוא בלימוד הזהר וע"ח".
+וע"פ הנ"ל שיש שני אופנים בלימוד פנימיות התורה יש לתווך, שאם לומד[ftnref\_1470\_42] רק נקודות הענינים (ע"ד דברים קצרים שבמשנה) ה"ז בכלל "מקרא"[ftnref\_1471\_43], משא"כ כשלומד בהבנה והסברה ובפרטיות, וב­מיוחד — כשמשיג הענין ונתפס בשכלו ונעשו לאחדים[ftnref\_1472\_44], ה"ז ע"ד "שליש ב­תלמוד"[ftnref\_1473\_45], שהוא לימוד טעמי ההלכות
+
+## 174
+
+כו', עד ללימוד בעיון להבין דבר מתוך דבר וכו'[ftnref\_1474\_\*45]].
+וי"ל ששני אופנים אלו באופן הלי­מוד, תלויים בב' הטעמים הנ"ל על גילוי פנימיות התורה בדורות האחרונים[ftnref\_1475\_46]:
+ע"פ הטעם משום "עת לעשות לה'", בשביל פיקוח נפש (ברוחניות), מפני הת­גברות החושך וירידת הדורות — מספיק גילוי פנימיות התורה באופן של נקודות ובקיצור בתכלית, כי גם "נקודה" של פנימיות התורה, "המאור שבה"[ftnref\_1476\_47], בכחה להחיות נפשות (וכיון שזה מספיק — הרי אין לגלות יותר);
+משא"כ גילוי פנימיות התורה כדי "ליישר ישראל ולהכין לבם" לגילוי פנימיות התורה שיהי' "באותו הזמן" — הרי כיון שאז תהי' השגה גמורה בידיעת השם, "כפי כח האדם"[ftnref\_1477\_48] ועד "כמים לים מכסים", הרי מובן, שגם ההכנה לזה בדורות האחרונים צ"ל ע"ד זה דוקא.
+ד. ע"פ כל הנ"ל יתבאר היטב הסי­פור הנ"ל אודות הקטרוג ע"ז שרבינו הז­קן אמר דברי חסידות בריבוי כו':
+החידוש באופן גילוי החסידות על ידי רבינו הזקן לגבי הבעש"ט והמגיד ותלמידיהם — יש לראות בפשטות כש­לומדים תורת החסידות שנתגלתה לנו, שעניני חסידות שנתגלו ע"י הבעש"ט וה­מגיד ותלמידיהם הם באופן של "נקו­דות" ובקיצור, ע"ד לשון המשנה שהיא דבר קצר, משא"כ ביאור הענינים שב­תורת חסידות חב"ד שנתגלה על ידי רבינו הזקן הוא באופן של "הרחבה" ושקו"ט, שבמאמרי ותורת חסידות שלו (החל מספר התניא) ביאר עניני תורת החסידות באופן של הבנה והשגה, וכ­שמה — "חסידות חב"ד".
+ושינוי זה באופן גילוי תורת החסי­דות, י"ל שהוא שגרם לקטרוג החדש על רבינו הזקן, גם לאחרי שנתבטל הקטרוג על המגיד על ידי הסברת המשל מ­שחיקת אבן יקרה שבכתר המלך בשביל הצלת חיי בן המלך.
+ובביאור יותר:
+במשל רבינו הזקן ע"ד הצלת חייו של בן המלך ע"י שחיקת האבן הטובה שבכתר המלך — מודגש הצורך שתכנס לכה"פ "טיפה אחת" לפיו של בן המלך, אשר טיפה זו תציל את חייו של בן המלך.
+ודוגמתו בנמשל — גילוי החסידות (פנימיות התורה, האבן הכי יקרה שב­כתר המלך) עכ"פ באופן של נקודה ("טיפה אחת"), וכנ"ל, שגם נקודה אחת של פנימיות התורה יש בכחה להחיות את בן המלך.
+וראי' לדבר — גילוי החסידות באופן של נקודה, ע"י הבעש"ט והמגיד ותלמי­דיהם ותלמידי תלמידיהם לדורותם — הועיל ופעל להחיות את בן המלך, ו­העמיד יראים ושלמים לאלפים ולרבבות כו'.
+אבל כאשר רבינו הזקן התחיל לגלות את תורת החסידות (לא רק באופן של
+
+## 175
+
+נקודה, "טיפה אחת", אלא) באופן של הרחבה, ע"י תורת חב"ד — אזי נתחדש הקטרוג למעלה, שהרי גילוי החסידות באופן של הרחבה, בהבנה והשגה ד­תורת חב"ד אינו (לכאורה) דבר המוכרח להצלת חייו של בן המלך.
+וי"ל שזהו הטעם שנתעורר ספק אצל רבינו הזקן שאולי צריך להפסיק מגילוי דברי חסידות באופן כזה, וע"ז הורו לו רבותיו, שע"י מסירת נפשו וישיבתו במאסר פעל למעלה[ftnref\_1478\_49] שיוכל להמשיך לגלות דברי חסידות באופן של הרחבה, "ואדרבה, לכשתצא תאמר יותר" — כדי "ליישר ישראל ולהכין לבם" לגילוי "סוד טעמי' ומסתר צפונותי'"[ftnref\_1479\_50] של תורה שיתגלו בביאת המשיח ועד כמים לים מכסים.
+ה. והמעשה הוא העיקר:
+לאחרי שניתנה ההוראה של הבעש"ט והמגיד לרבינו הזקן, שלא זו בלבד שלא יפסיק ח"ו מלומר דברי חסידות, אלא אדרבה, שיוסיף עוד יותר — הרי מובן, שזוהי הוראה לכאו"א מישראל, שחייב להכין את עצמו ל"אותו הזמן" ש"לא יהי' עסק כל העולם אלא לדעת את ה' בלבד" — על ידי לימוד פנימיות התורה באופן של הבנה והשגה דוקא.
+ומזה מובן, שגם מי שלפי דעתו לי­מוד פנימיות התורה, ובפרט באופן של "חב"ד" (לימוד בהרחבה, הבנה והשגה, "יתפרנסון"), אינו מוכרח להחיות נפשו — כי לדעתו[ftnref\_1480\_51] אין חייו הרוחניים עומ­דים בסכנה ח"ו, ודי ומספיק עבורו לי­מוד נגלה דתורה ולימוד דברי מוסר ו­לימוד דברי חסידות של הבעש"ט וה­מגיד ותלמידיהם ותלמידי תלמידיהם, כדי להתגבר על החושך כפול ומכופל דעקבתא דמשיחא — איך יפטור עצמו מלימוד זה, כשפסק דין ברור הלכה למעשה בנגלה דתורה (בהלכות ת"ת של "הרב", אדמו"ר הזקן[ftnref\_1481\_52]) שכל נפש מישר­אל חייב ללמוד כל התורה כולה, "הן בפשטי ההלכות הן ברמזים ודרשות וסודות" (ויתירה מזה מ"ש במק"א[ftnref\_1482\_53] שכל נפש מישראל מחוייב "לחדש שכל חדש הן בהלכות הן באגדות הן בנגלה הן בנסתר"[ftnref\_1483\_54]).
+ועל ידי "יפוצו מעינותיך חוצה" — פירסום והפצת מעיינות החסידות, בכל מקום ומקום, עד שיגיעו גם חוצה — נזכה בקרוב (כהבטחת מלך המשיח לה­בעש"ט[ftnref\_1484\_55]) לקאתי מר דא מלכא משיחא, שאז יקויים היעוד[ftnref\_1445\_18] "כי מלאה הארץ דעה את ה' כמים לים מכסים", ובמהרה בימינו ממש.
+[quotation](משיחות מוצש"ק מקץ ומוצאי זאת חנוכה תשמ"ו) [/quotation]
+
+**English:**
+
+## 171
+
+Chassidus, and he required an explicit instruction from his Rebbes that, "On the contrary, when you emerge, you will say even more"?
+
+2. This can be understood by first explaining the words of the Arizal that "specifically in these final generations, it is permitted and a mitzvah to reveal this wisdom"—even though in the earlier generations, the wisdom of Kabbalah was "hidden... and concealed from all Torah scholars, except for select individuals, and even then, only with great discretion and not in public, as is stated in the Gemara."
+
+Seemingly: Since Chazal instructed that "matters that are the 'secret of the world' should be kept under your garment," and according to the ruling of the Gemara there are several conditions and limitations regarding the revelation of this wisdom (and this is also codified in the Rambam)—how was it permitted in the final generations "to reveal this wisdom"?
+
+The explanation for this—and by way of introduction:
+It is understood that the conditions and limitations on studying the wisdom of truth are not due to a prohibition regarding the *cheftza* of Torah (that this part of Torah must essentially remain hidden), but rather due to a deficiency in the *gavra*. Since most people cannot grasp these matters, such study is liable to cause harm (similar to the concept of "if he did not merit, it becomes for him..."). But regarding the *cheftza* of Torah, this wisdom is a part of our holy Torah that belongs to every single Jew—"an inheritance of the congregation of Yaakov," and every single Jew is obligated to study it (just as one is obligated to study all the rest of the Torah).
+
+Especially according to the words of the Rambam at the end of *Sefer HaYad*, which state: "And at that time... the occupation of the entire world will be only to know Hashem. Therefore, the Jewish people will be great sages and will know the hidden matters, and they will attain knowledge of their Creator to the extent of human capacity, as it is said, 'For the earth shall be full of the knowledge of Hashem as the waters cover the sea.'" This states explicitly that in the days of Moshiach, the occupation of the entire world will be to know Hashem. This means that the (primary) occupation of Torah then will not be the study of the revealed laws of Torah for us and our children, but rather the knowledge of the Creator, the "hidden matters." This will be the "occupation of the entire world," in a manner of "as the waters cover the sea." It is understood that the limitations of "one may not teach... (even) to an individual unless..." will not apply.
+
+Seemingly, this is the opposite of the Rambam's own ruling regarding the conditions and limitations on studying these wisdoms (and surely, even in the days of Moshiach, no law of the Torah will be nullified)! One must therefore say that the entire prohibition from the outset is only because in this time it is impossible for most people to grasp these wisdoms, and therefore the
+
+## 172
+
+Torah established certain conditions for this study. But in the days of Moshiach, when "there will be neither famine nor war, nor jealousy nor competition," and everyone will be in a state where they can properly delve into these matters, the "occupation of the entire world" will be "only to know Hashem."
+
+However, in the final generations, it is a mitzvah to reveal this wisdom (despite the conditions and limitations, etc.)—and there are two explanations for this:
+
+a) Similar to what the Rambam wrote in the introduction to his *Moreh Nevuchim*, that the reason he wrote this book, which contains "hidden matters," is the statement regarding such a matter: "It is a time to act for Hashem; they have violated Your Torah." This means that because the Jewish people were in a state of being "perplexed" (*nevuchim*), it compelled him to reveal "hidden matters" in order to save the "perplexed" in matters of faith, etc.
+
+Similarly, this applies to the revelation of the *pnimiyus* of Torah in the final generations—this falls under the category of "It is a time to act for Hashem; they have violated Your Torah." The magnitude of the descent of the final generations, where hearts have diminished, etc., and also due to the state of the world in general, where evil in these generations is in a state of increased strength, creates a great necessity to reveal this wisdom, the *pnimiyus* of Torah. It awakens the internal, hidden powers in the soul of man, which provide him with help and assistance to overcome the darkness of *galus* from without and the obstacles from within, to be awakened in the love and awe of Hashem, etc., and to serve Him with a whole heart.
+
+b) We find several matters that come as a preparation for the days of Moshiach, and in the language of the Rambam, "to straighten the Jewish people and prepare their hearts" for the days of Moshiach. How much more so, *kal v'chomer*, that this must be the case regarding the primary purpose of the days of Moshiach—"The Sages and Prophets did not yearn for the days of Moshiach... except to be free for Torah and its wisdom," so that they could occupy themselves with attaining "knowledge of their Creator." They must "straighten the Jewish people and prepare their hearts" for this, and this is done through the revelation of the *pnimiyus* of Torah specifically in the final generations.
+
+3. In accordance with the distinction between the two explanations for the reason for revealing the *pnimiyus* of Torah in the final generations, there are also two modes of revelation, similar to the two modes in the revealed Torah—Mishnah and Gemara:
+
+a) Revealing the *pnimiyus* of Torah in a way where the essence is knowing the point of the matter in brief, similar to the language of the Mishnah, which is "a short matter that includes many concepts."
+
+b) The revelation in a way that is explained and elaborated upon, similar to the length of the explanation and the analytical discourse (*shakla v'tarya*) in the Gemara. In the language of the Zohar, "they will be sustained" (*yitparnesun*),
+
+## 173
+
+and as explained in the commentaries on the Zohar, this means that the matters of the wisdom of *Elokus* are spelled out and explained with understanding and comprehension (not like one who studies for mere rote recitation). Then, the study is in the category of "sustenance," as explained in *Tanya* that through studying Torah "well, with the analysis of his intellect until it is grasped in his mind and becomes unified with it, and they become one—it becomes food for the soul."
+
+[It can be said that this resolves the words of the Alter Rebbe regarding the study of the wisdom of Kabbalah, which seemingly contradict each other:
+Chazal stated—and it is codified as law—that a person is obligated to divide his study time into thirds: one-third in *Mikra*, one-third in *Mishnah*, and one-third in *Talmud*. The Alter Rebbe ruled in his *Hilchos Talmud Torah* that "the wisdom of Kabbalah is considered part of the one-third of *Talmud*" (based on the ruling of the Rambam that "the matters called *Pardes* are included in the Gemara"). Yet, in his *Likutei Torah*, the Alter Rebbe explains (in a discourse regarding the revealed Torah) that "the study of the Zohar and the Arizal is included in the one-third of *Mikra*," "for the *Midrash* of the Zohar is on the verses of the Torah, and furthermore, even when studying the secrets of the Torah, one only attains the existence, etc.," "and this is like the study of *Mikra*, where one reads the names of Hashem even though one does not at all attain the essence hidden within them... and similar to this is the study of the Zohar and *Etz Chaim*."
+
+Based on the above, that there are two modes of studying the *pnimiyus* of Torah, it can be reconciled: If one studies only the points of the matters (similar to the short matters in the *Mishnah*), this is included in "*Mikra*," whereas when one studies with understanding, explanation, and detail—and especially when one attains the matter and it is grasped in his intellect and they become one—this is similar to the "one-third of *Talmud*," which is the study of the reasons for the laws, etc., up to the point of studying with depth to understand one thing from another, etc.]
+
+It can be said that these two modes of study depend on the two aforementioned reasons for revealing the *pnimiyus* of Torah in the final generations:
+According to the reason of "It is a time to act for Hashem," for the sake of *pikuach nefesh* (spiritually), due to the increase of darkness and the descent of the generations—it is sufficient to reveal the *pnimiyus* of Torah in the form of points and in extreme brevity, because even a "point" of the *pnimiyus* of Torah, "the light within it," has the power to revive souls (and since this is sufficient, one should not reveal more).
+
+However, the revelation of the *pnimiyus* of Torah in order to "straighten the Jewish people and prepare their hearts" for the revelation of the *pnimiyus* of Torah that will be "at that time"—since then there will be complete attainment in the knowledge of Hashem, "to the extent of human capacity" and up to "as the waters cover the sea," it is understood that the preparation for this in the final generations must also be in this manner specifically.
+
+## 174
+
+4. Based on all the above, the aforementioned story regarding the *kitrug* (prosecution) over the fact that our Rebbe, the Alter Rebbe, said words of Chassidus in abundance, etc., will be well understood:
+
+The innovation in the mode of revealing Chassidus by the Alter Rebbe compared to the Baal Shem Tov, the Maggid, and their students can be seen simply when studying the teachings of Chassidus that have been revealed to us: The matters of Chassidus revealed by the Baal Shem Tov, the Maggid, and their students are in the form of "points" and in brevity, similar to the language of the *Mishnah*, which is a short matter. Conversely, the explanation of the matters in the teachings of Chassidus Chabad revealed by the Alter Rebbe is in the form of "expansion" and analytical discourse. In his *maamarim* and teachings of Chassidus (starting from the *Tanya*), he explained the matters of the teachings of Chassidus in a way of understanding and comprehension, and as its name implies—"Chassidus Chabad."
+
+This change in the mode of revealing the teachings of Chassidus, it can be said, is what caused the new *kitrug* against the Alter Rebbe, even after the *kitrug* against the Maggid had been nullified by the explanation of the parable of grinding a precious stone from the King's crown to save the life of the King's son.
+
+To explain further:
+In the Alter Rebbe's parable regarding saving the life of the King's son by grinding the precious stone from the King's crown, the need for at least "one drop" to enter the mouth of the King's son is emphasized, as this drop will save the life of the King's son.
+
+Its parallel in the *nimshal*—the revelation of Chassidus (the *pnimiyus* of Torah, the most precious stone in the King's crown) at least in the form of a point ("one drop"), and as mentioned above, even one point of the *pnimiyus* of Torah has the power to revive the King's son.
+
+Proof of this—the revelation of Chassidus in the form of a point, by the Baal Shem Tov, the Maggid, and their students and their students' students for generations—was effective and succeeded in reviving the King's son, and established thousands and myriads of G-d-fearing and wholehearted Jews, etc.
+
+But when the Alter Rebbe began to reveal the teachings of Chassidus (not only in the form of a point, "one drop," but) in the form of expansion, through the teachings of Chabad—then a new *kitrug* was aroused Above, for the revelation of Chassidus in the form of expansion, with the understanding and comprehension of the teachings of Chabad, is (seemingly) not something necessary for saving the life of the King's son.
+
+It can be said that this is the reason why a doubt was aroused in the Alter Rebbe that perhaps he should stop revealing words of Chassidus in such a manner. Regarding this, his Rebbes instructed him that through his *mesiras nefesh* and his imprisonment, he achieved Above that he could continue to reveal words of Chassidus in the form of expansion, "And on the contrary, when you emerge, you will say even more"—in order to "straighten the Jewish people and prepare their hearts" for the revelation of the "secret of its reasons and the hidden depths of its secrets" of Torah that will be revealed with the coming of Moshiach, up to "as the waters cover the sea."
+
+## 175
+
+5. And the deed is the essential thing:
+After the instruction was given by the Baal Shem Tov and the Maggid to the Alter Rebbe, that not only should he not stop, G-d forbid, from saying words of Chassidus, but on the contrary, he should add even more—it is understood that this is an instruction to every single Jew, that he is obligated to prepare himself for "that time" when "the occupation of the entire world will be only to know Hashem"—by studying the *pnimiyus* of Torah specifically in the form of understanding and comprehension.
+
+From this it is understood that even one who, in his opinion, does not need the study of the *pnimiyus* of Torah, and especially in the form of "Chabad" (study with expansion, understanding, and comprehension, "*yitparnesun*"), to revive his soul—because in his opinion his spiritual life is not in danger, G-d forbid, and it is sufficient for him to study the revealed Torah and study books of *mussar* and study the words of Chassidus of the Baal Shem Tov, the Maggid, and their students and their students' students, in order to overcome the double and redoubled darkness of *ikvesa d'meshicha*—how can he exempt himself from this study, when there is a clear legal ruling as a practical matter in the revealed Torah (in the *Hilchos Talmud Torah* of "the Rav," the Alter Rebbe) that every soul of Israel is obligated to study the entire Torah, "both the literal laws and the hints, homiletics, and secrets" (and furthermore, what is written in another place that every soul of Israel is obligated "to innovate new intellect, whether in laws, in *aggados*, in the revealed, or in the hidden").
+
+And through "Your wellsprings will spread outward"—the publicizing and spreading of the wellsprings of Chassidus, in every place, until they reach even the outside—we will merit soon (as promised by the King Moshiach to the Baal Shem Tov) the coming of our Master, the King Moshiach, at which time the prophecy will be fulfilled, "For the earth shall be full of the knowledge of Hashem as the waters cover the sea," speedily in our days, truly.
+
+(From the *sichos* of Motzaei Shabbos Parshas Vayigash and Motzaei Zos Chanukah, 5746)
+
+---
+
+
+## וישב
+
+_Section: וישב_
+
+**Hebrew:**
+
+## שיחה א
+
+## 176
+
+### שיחה א
+
+א. דובר כמה פעמים[ftnref\_1486\_1] ע"ד שמות פרשיות התורה, דזה שכל פרשה נקראת (ע"פ מנהג ישראל, דתורה הוא) בשם מסויים, הוא לא (רק) משום שהתחלתה היא בתיבה זו (שנקבעה להיות שמה), אלא לפי שבשם זה נרמז גם תוכן ה­פרשה[ftnref\_1487\_2]. וכמו שם כל דבר שנקרא בו בלשון הקודש, שהוא חיות הדבר ההוא ומורה על תוכן הדבר שנקרא בשם זה[ftnref\_1488\_3].
+ומובן שכן הוא גם בנוגע לפרשתנו, דשמה אשר יקראו לה ע"פ מנהג ישראל הוא "וישב"[ftnref\_1489\_4] — שצ"ל שבו מרומז תוכנה של פרשה זו.
+וצריך להבין: "וישב" פירושו — הת­יישבות באופן של שלווה ומנוחה, וכדרשת חז"ל[ftnref\_1490\_5] בריש פרשתנו "וישב — בקש[ftnref\_1491\_6] יעקב לישב בשלוה"[ftnref\_1492\_7]; ואילו תוכ­נה של הפרשה הוא בענין מכירתו של יוסף, שהפריעה ושללה את "וישב יעקב", את מנוחתו ושלוותו של יעקב, וכדרשת חז"ל הנ"ל "בקש יעקב כו' קפץ עליו רוגזו של יוסף".
+ב. ויובן זה בהקדים ביאור מחז"ל הנ"ל "ביקש[ftnref\_1491\_6] יעקב לישב בשלוה קפץ עליו[ftnref\_1494\_8] רוגזו של יוסף, צדיקים מבקשים לישב בשלוה אמר הקב"ה לא דיין ל­צדיקים מה שמתוקן להם לעולם הבא אלא שמבקשים לישב בשלוה בעוה"ז".
+הפירוש במאמר זה לפי מפרשי המד­רש (ורש"י) הוא[ftnref\_1495\_9], דזה ש"ביקש יעקב לי­שב בשלוה" היא הסיבה שבגללה "קפץ עליו רוגזו של יוסף". כלומר, אין כוונת חז"ל רק להשמיענו שלא נתקיים מבו­קשו של יעקב לישב בשלוה — כי קפץ עליו רוגזו של יוסף, אלא יתירה מזו: "קפץ עליו רוגזו של יוסף" הוא תוצאה מזה ש"ביקש יעקב לישב בשלוה". וכ­מפורש במדרש[ftnref\_1496\_10] "יעקב אבינו ע"י ש­בקש
+
+## 177
+
+לישב בשלוה בעוה"ז נזדווג לו שטנו של יוסף"[ftnref\_1497\_11].
+אבל אין זה מחוור בלשון חז"ל הנ"ל. כי אף שהלשון "בקש יעקב כו' קפץ עליו כו'" בנוגע ליעקב, הי' אפשר ל­פרשו (בדוחק עכ"פ) שהבקשה היתה חסרון וכעין חטא, הרי המשך הלשון "צדיקים מבקשים לישב בשלוה" משמעו, שזהו המבוקש של צדיקים בכלל — ומ­כיון שנקראים בשם "צדיקים", פשיטא שהכוונה לצדיקים אמיתיים שאין בהם חטא ועון ח"ו — וא"כ איך יתכן שבמבו­קשם של הצדיקים ("לישב בשלוה") יהי' ענין של חטא וחסרון?!
+— לפי הגירסא במדרש[ftnref\_1496\_10] "בשעה שה­צדיקים יושבים בשלוה ומבקשים לישב בשלוה בעולם הזה השטן בא ומקטרג אמר לא דיין כו'", אולי אפשר לפרש שאין המדובר בתור כלל לכל הצדיקים, אלא רק בנוגע צדיקים מסויימים — שב­שעה שיושבים בשלוה ומבקשים (להמ­שיך) לישב בשלוה, אז "השטן בא כו'"[ftnref\_1499\_12], אבל לפי הגירסא הנ"ל[ftnref\_1500\_13] "צדיקים מבק­שים לישב בשלוה" — משמעות הענין היא, שזוהי הנהגתם של צדיקים בכלל.
+ועם היות שמצינו בתורה ענין של חטא — עכ"פ "חטא" בדקות — גם אצל צדיקים — מ"מ, נוסף לזה שאין זו מילתא דשכיחא בצדיקים [ועאכו"כ ב­נוגע ליעקב, בחור שבאבות[ftnref\_1501\_14], נוסף לזה שבכלל — האבות הן הן המרכבה[ftnref\_1502\_15], ו­מפורש בחז"ל[ftnref\_1503\_16] שהאבות לא שלט בהן יצר הרע] — הרי מובן שלא יתכן לומר, שזהו מבוקשם הרגיל של צדיקים, רגי­לין להתנהג באופן בלתי רצוי!
+ועכצ"ל, דזה ש"צדיקים מבקשים לישב בשלוה" אינו ענין שלילי, היפך הרצוי, אלא אדרבה — הנהגה המתאימה לצדיק וחלק משלימות עבודתו.
+ולפ"ז צריך ביאור לאידך גיסא — מאחר שזוהי הנהגה מתאימה לצדיקים (היינו שזהו בהתאם לרצונו של הקב"ה), מדוע "אמר הקב"ה לא דיין לצדיקים מה שמתוקן להם לעוה"ב אלא שמבקשים לישב בשלוה בעוה"ז" (שאין הקב"ה ממלא מבוקשם לישב בשלוה, ואדרבא בא הפכו צרה ורוגז, וכמו שמצינו ב­יעקב ש"קפץ עליו רוגזו של יוסף")?
+ג. ולהוסיף:
+לפי גירסת המדרש "בשעה שהצדי­קים יושבים בשלוה כו' השטן בא ומ­קטרג כו' תדע לך כו' יעקב אבינו ע"י שבקש כו' נזדווג לו שטנו של יוסף" — יש לתרץ, דזה ש"נזדווג לו שטנו של יוסף" לא בא כעין עונש על מבוקש בלתי רצוי, אלא רק מצד קטרוגו של השטן.
+וכמו שמצינו כמ"פ ענין של קטרוג
+
+## 178
+
+השטן כגון דא — כמו בקטרוג השטן[ftnref\_1504\_17] על אברהם ש"מכל[ftnref\_1505\_18] סעודה שעשה אברהם לא הקריב לפניך פר אחד כו'", שזהו גרם לנסיון העקידה ("א"ל (הקב"ה) כלום עשה אלא בשביל בנו אלו הייתי אומר לו זבח אותו לפני לא הי' מעכב") — שמובן שלא הי' כאן דבר בהנהגת אברהם בפועל היפך הרצוי, וכל הענין נגרם על ידי קטרוג השטן.
+וכן בעניננו, שלפי המדרש יתכן לו­מר, דבקשתו של יעקב לישב בשלוה גרמה לקטרוג השטן, ולכן "נזדווג לו שטנו של יוסף"[ftnref\_1506\_19].
+משא"כ לפי הנוסח "אמר הקב"ה לא דיין לצדיקים כו'" — מובן (שאין זה בא רק מחמת קטרוג השטן, אלא) שזוהי טענת הקב"ה על הצדיקים.
+ד. ויש לומר הביאור בזה[ftnref\_1507\_20]:
+בקשתם של צדיקים "לישב בשלוה" — היינו בשלוה שלימה ואמתית. כי אין כוונתם (רק) לשלוה גשמית וגופנית, אלא לשלוה רוחנית, ע"ד השלוה שב­עוה"ב ש"אין בו לא אכילה ולא שתי' כו' צדיקים יושבין כו' ונהנים מזיו השכי­נה"[ftnref\_1508\_21]. ולכן "אמר הקב"ה לא דיין ל­צדיקים מה שמתוקן להם לעוה"ב אלא שמבקשים לישב בשלוה בעוה"ז".
+ואף שמקומה וזמנה של שלוה כזו (יושבין ונהנין מזיו השכינה, ללא כל עבודה) הוא דוקא בעוה"ב — משא"כ בעוה"ז הרי "היום לעשותם" כתיב[ftnref\_1509\_22], והיינו שכל רגע צ"ל (לא "שלוה" אלא) עבודה
+[ויתירה מזו: שלימות העבודה היא — העבודה מאהבה, שאינו עובד את ה' "מפני[ftnref\_1510\_23] דבר בעולם. . ולא כדי לירש הטובה (גם לא "כדי שאזכה לחיי העולם הבא"[ftnref\_1511\_24]) אלא עושה האמת מפני שהוא אמת"]
+הרי בקשתם של צדיקים לישב ב­שלוה אינה לשם השלוה עצמה (קיבול שכר), אלא כדי שעל ידה יוכלו להוסיף בעבודתו ית' עד שתגיע לתכלית השלי­מות. ע"ד מ"ש הרמב"ם[ftnref\_1512\_25] דמה ש"נתאוו כל ישראל נביאיהם וחכמיהם לימות ה­משיח" הוא "כדי שינוחו ממלכיות שאינן מניחות להם לעסוק בתורה ומצות כהוגן וימצאו להם מרגוע וירבו בחכמה".
+וזהו הפירוש ש"צדיקים מבקשים לישב בשלוה", כלומר, שהם מתאווים למצב של שלוה כדי שיוכלו לעבוד ה' מתוך מנוחה; ומה שהקב"ה אומר "לא דיין לצדיקים כו'" אין זה משום שהיא בקשה בלתי רצוי', אלא מפני שג"ז — מצב של עבודת ה' מתוך מנוחה — הוי כעין קיבול שכר הבא רק לאחרי תכלית השלימות בעבודת ה'.
+וכן הוא ביעקב, שבבקשתו לישב בשלוה נתכוון לשלוה שלמה רוחנית שיוכל לעבוד השם מתוך מנוחה. וזה ש"קפץ עליו רוגזו של יוסף" הוא מפני שבמעמדו ומצבו אז לא הי' ראוי עדיין לשלוה זו; אמנם, סו"ס נתקיימה בקשתו
+
+## 179
+
+לישב בשלוה (גם בעוה"ז) — לאחרי גמר הזמן ד"רוגזו של יוסף" ישב בשלוה גם בעוה"ז, דזהו מה שאמר הכתוב[ftnref\_1513\_26] "ויחי יעקב בארץ מצרים שבע עשרה שנה", שהיו שנות שלוה ומנוחה[ftnref\_1514\_27].
+ה. ויש לומר בעומק יותר — וב­הקדם:
+לפי הנ"ל שזה שלא ישב בשלוה ש­ביקש הוא מפני שלא הי' ראוי לה אז — עדיין אינו מובן: למה קפץ עליו "רוגזו של יוסף"[ftnref\_1515\_28], צרה חדשה וצרה גדולה כזו שגרמה ליסורים גדולים בערך ל­הצער והדוחק דצרת לבן וצרת עשו כו'[ftnref\_1516\_29]?
+אך הענין הוא:
+זה גופא שיעקב זכה בסוף ימיו ל"שלוה בעוה"ז" הוא מפני ש"קפץ עליו רוגזו של יוסף" (וכנ"ל (סעיף ב), דזה שהקב"ה הביא עליו "רוגזו של יוסף" ה"ז תוצאה מבקשתו של יעקב לישב בשלוה). כלומר: כדי להעלות את יעקב למדריגה נעלית יותר בעבודת השם, עד שיהי' ראוי לישב בשלוה בעוה"ז, הביא הקב"ה עליו את "רוגזו של יוסף", וכ­ידוע, שהעבודה מתוך צרה וצער כו' מזככת ומעלה את האדם[ftnref\_1517\_30] למדריגות גבוהות ביותר בעבודת השם; וכן בעני­ננו, שדוקא ע"י עבודתו של יעקב במצב של "רוגזו של יוסף" זכה לישב בשלוה בעוה"ז ("ויחי יעקב בארץ מצרים שבע עשרה שנה").
+ועפ"ז יש ליישב השאלה דלעיל (סעיף א) — מדוע נקראת הפרשה בשם "וישב" המורה על ישיבה בשלוה, אף שתוכנה (ותיכף מהתחלתה — "יוסף[ftnref\_1518\_31] בן שבע עשרה שנה הי' רועה גו'") הוא
+ע"ד "רוגזו של יוסף" (היפך "וישב" — שלוה)—
+כי מכיון שעבודתו של יעקב מתוך המיצר של "רוגזו של יוסף" היא היא שהביאה לקיום בקשתו "לישב בשלוה" (כנ"ל), נמצא, שתוכנה האמיתי של פרשה זו הוא — "וישב יעקב" (שלוותו של יעקב), מאחר ש"רוגזו של יוסף" אינו אלא הכנה והקדמה שהביאה לשלוה ד"ויחי יעקב בארץ מצרים שבע עשרה שנה".
+ו. אמנם עדיין צריך להבין:
+מובן ופשוט, שהענין הנ"ל (ששלימות השכר דשלוה רוחנית באה אחרי שלי­מות העבודה) הי' ידוע גם ליעקב. ומ­כיון שמדתו של יעקב היא מדת האמת (כידוע[ftnref\_1519\_32]) — הרי ברור שיעקב הכיר מצבו ומדריגתו בעבודת השם כפי שהוא באמת, ומאחר שביקש לישב בשלוה, עכצ"ל שמצד מעמדו ומצבו אז כבר הי' ראוי באמת לשלוה זו (כי לאחרי כל היסורים שעברו עליו ע"י הצרות וה­הרפתקאות של לבן ועשו וצרת דינה וכו'[ftnref\_1516\_29], הרי הוא ראוי לעבוד עבודתו בשלימות מתוך שלוה).
+
+## 180
+
+ומכיון שכן — טעמא בעי: מדוע ב­אמת הוצרך עוד ל"רוגזו של יוסף" כדי שיוכל לזכות לענין השלוה?
+ויש לומר נקודת הביאור בזה:
+"שלוה" זו שאותה ביקש יעקב אינה אותה השלוה שניתנה לו ע"י ש"קפץ עליו רוגזו של יוסף". כי כנ"ל, בקשתו של יעקב לישב בשלוה הי' (לא בתור קיבול שכר, מכיון ש"היום לעשותם" כתיב, אלא) רק שיוכל לעבוד את ה' מתוך מנוחה, ולשלוה כזו כבר אז הי' ראוי ע"י עבודתו הקודמת.
+ויתירה מזו: לפי חשבון השנים[ftnref\_1521\_33] ש­הי' יעקב בארץ כנען נמצא, שעד ש"קפץ עליו רוגזו של יוסף" (בהיות יוסף בן שבע עשרה שנה) היו ליעקב תשע שנים של שנות שלוה בארץ מגורי אביו[ftnref\_1522\_34]. וי"ל שהיא היא השלוה שביקש יעקב[ftnref\_1523\_35].
+אבל, הקב"ה רצה שיעקב יזכה לשל­וה בשלימותה, "עולמך תראה בחייך"[ftnref\_1524\_36], שגם בעוה"ז יזכה למצב של עוה"ב. ושלוה זו ניתנה ליעקב רק לאח"ז, כאשר "ויחי יעקב בארץ מצרים שבע עשרה שנה" (שבא ע"י "רוגזו של יוסף").
+[וי"ל שפרט זה נרמז גם במנהג ישראל ששם הפרשה הוא "וישב" (סתם), ולא "וישב יעקב": תוכן הפרשה הוא אמנם ענין של התיישבות ("וישב") ו­שלוה, כי "רוגזו של יוסף" הוא שהביא לשלוותו של יעקב אבל בארץ מצרים; אין זו השלווה שיעקב השתוקק לה ו­ביקש עלי' ("וישב יעקב"), שכן מבוקשו הי' לישב בשלוה בארץ מגורי אביו, ואילו זה ש"קפץ עליו רוגזו של יוסף" גרם והביא "וישב" סתם — שלוה סתם, שהיא חיי עוה"ב, שזכה לה כאשר "ויחי יעקב בארץ מצרים" דוקא].
+ז. ביאור הענין:
+ההבדל בין שני אופני השלוה הנ"ל הוא: השלוה שביקש יעקב היא שלוה שבגדר הנבראים, שלוה כזו שבכחם של בנ"א להגיע אלי', ובמילא — לבקש אותה[ftnref\_1525\_37]; ואילו הקב"ה נתן ליעקב שלוה כזו שאינה בגדר הנבראים ואין בכח הנברא להגיע אלי' בכח עצמו.
+
+## 181
+
+וע"ד שהוא בפשטות: בקשתו של יעקב לישב בשלוה היתה שישב "בארץ מגורי אביו" בלי בלבולים וכו', כדי ש­יוכל לעבוד את ה' במנוחה, ביחד עם בניו ויוצאי חלציו כו' הולכי וממשיכי בדרכו היא הדרך "אשר יצווה את בניו גו' ושמרו דרך הוי'"[ftnref\_1526\_38] — שזהו המקום והאופן הטבעי להגיע ולקבל שלוה כזו;
+אבל הקב"ה נתן לו שלוה שהיא למע­לה מהטבע — "ויחי יעקב בארץ מצרים שבע עשרה שנה": ע"פ טבע, עצם ה­מצאו "בארץ לא להם"[ftnref\_1527\_39] הוא בלבול ל­מנוחת ושלות הנפש, ומה גם בארץ מצרים, ערות הארץ, שהיא בלבול גדול ביותר לשלוה אמתית. ומכל מקום, סיבב הקב"ה שישב יעקב במיטב הארץ[ftnref\_1528\_40], ש­ימצא הן שלוה גשמית והן שלוה רוח­נית[ftnref\_1529\_41], באופן היותר נעלה (בלי כל דאגה משכן רע — מקולקלין שבאומות[ftnref\_1530\_42], שאוי לרשע ואוי לשכנו[ftnref\_1531\_43] וכו').
+וכשם שהוא בגשמיות ובפשטות, ש­שלות יעקב בארץ מצרים היתה למעלה מן הטבע — כן הוא ברוחניות הענינים, שה"שלוה" בארץ מצרים היתה קשורה עם "הנאה" מזיו השכינה בדומה ל"נהנין מזיו השכינה"[ftnref\_1532\_44] שבעולם הבא, שהיא הנאה שלמעלה מגדר הנבראים, ובלשון הרמב"ם[ftnref\_1533\_45] — "אין כח באדם להשיגה על בורי' ואין יודע גדלה ויפי' ועצמה אלא הקב"ה לבדו. . עין[ftnref\_1534\_46] לא ראתה אלקים זולתך כו'".
+ח. ובזה יבואר הטעם שבשביל ה­שלוה הוצרך להיות "קפץ עליו רוגזו של יוסף" — כי לשלוה זו (שלמעלה מגדר הנבראים) לא הי' אפשר להגיע ב­כח עצמו ועבודתו, אלא ע"י ענין מיוחד שיעלה ויגבי' אותו למעלה ממדידותיו והגבלותיו (כדי שיוכל לקבל שלוה זו).
+ובשביל זה לא הי' די בעבודתו ועילויו ע"י צרת לבן ועשו וכו', אלא "קפץ עליו רוגזו של יוסף" — כי "רוגזו של יוסף" אינו רק ענין שצרתו מרובה יותר, בכמות ובאיכות, אלא שהוא מסוג אחר, ולכן גם העילוי שבא על ידו הוא נעלה יותר באי"ע.
+וההסברה בזה:
+צרת לבן וצרת עשו היו בתוכנם מלחמת ועבודת יעקב עם צד הלעו"ז. בתחילה עם לבן הארמי, "עם לבן הרשע גרתי ותרי"ג מצות שמרתי ולא למדתי ממעשיו הרעים"[ftnref\_1535\_47], ועד"ז בצרת עשו, המורה על מלחמת הקדושה נגד כחות הרע, כידוע בענין מלחמתו של יעקב עם שרו של עשו, "ויאבק איש עמו עד עלות השחר"[ftnref\_1536\_48] — שמלחמה זו ה"ז מעבודת ותפקיד האדם עלי ארץ, לבטל הרע ש­בעולם, לתקן עולם במלכות שד"י, ב­אופן שגם ביכולתו של האדם (נברא)
+
+## 182
+
+לראות ולהכיר את התועלת שבעבודה זו.
+אמנם "רוגזו של יוסף" ה"ז סוג אחר לגמרי, שאין בזה מלחמה עם צד הלעו"ז או "בירור" עניני העולם וכיו"ב — ולכאורה, כולו אינו אלא צער וצרה בלי שום מטרה כלל [ואדרבה, צרה זו גרמה לירידה כביכול במצבו של יעקב, "וית­אבל על בנו"[ftnref\_1537\_49], ועד שמשו"ז פירשה ממנו שכינה[ftnref\_1538\_50], ועוד זאת, שאמר "כי ארד אל בני אבל שאולה" — "גיהנם"[ftnref\_1539\_51]].
+ו"רוגז" זה, שלכאורה הוא בגדר "גזירה" שאין בה טעם, הוא הוא הנסיון שהביא הקב"ה על יעקב כדי להעלותו למעלה מעלה, עד לעילוי שלא בערך כלל, שעי"ז נעשה כלי לאמיתית השלוה, עוה"ב (שלמעלה מגדר נברא).
+ט. ועדיין יש מקום לתמי': לפי הנ"ל שהשלוה שניתנה ליעקב אינה אותה השלוה שביקש, אלא הוא ענין מיוחד לעצמו, מה שרצה הקב"ה להטעימו מעין השכר דעוה"ב — א"כ מדוע חיכה הקב"ה בזה עד שביקש יעקב לישב ב­שלוה (וכנ"ל מהמדרש, דהא דקפץ עליו רוגזו של יוסף הי' תוצאה מבקשתו של יעקב לישב בשלוה)?
+וי"ל טעם הדבר (בפנימיות) — כי "הקב"ה מתאווה לתפלתן של צדיקים"[ftnref\_1540\_52], ולכן כל זמן שלא ביקש יעקב לישב בשלוה — לא ניתנה לו השלוה המגיעה לו; ורק כש"ביקש יעקב לישב בשלוה" — די"ל ד"ביקש" כאן הוא (לא רק — רצה, אלא) לשון בקשה ותפלה — הרי לא זו בלבד שנתמלאה בקשתו, אלא עוד זאת — שניתנה לו השלוה בשלימותה, עוה"ב.
+ומכאן למדנו יסוד גדול והוראה ב­עבודתנו בזמננו אנו, עד כמה נוגע ענין בקשת הגאולה[ftnref\_1541\_53], שעל כאו"א מבנ"י ללמוד מהנהגתו של יעקב לבקש לישב בשלוה, שכל זמן שעדיין משיח לא בא, צריך כאו"א מישראל לבקש, ועוד יותר — לתבוע שיבוא משיח צדקנו, כלשון חז"ל[ftnref\_1542\_54] (שהובא כמ"פ) "תני ר' שמעון בן יוחי. . כל אותן אלפים שנפלו במלחמה בימי דוד, לא נפלו אלא על שלא תבעו בנין בית המקדש. . ומה אם אלו. . אנו. . על אחת כמה וכמה, לפיכך התקינו חסידים הראשונים שיהיו מתפללים. . בכל יום. . השב שכינתך לציון וסדר העבודה לירושלים, ותקנו בונה ירושלים ברכה בפני עצמה בתפלה, ובברכת המזון".
+והובא (גם) להלכה[ftnref\_1543\_55], וז"ל: הטעם
+
+## 183
+
+שצריך להזכיר מלכות בית דוד בברכה זו (בונה ירושלים). . לפי שצריכים אנו להזכיר מלכות שמים ומלכות בית דוד ובית המקדש. . ואין (ישראל) נגאלין עד שיתודו ויתבעו שלשתן.
+אלא שבזמנו של יעקב הוצרך ל"קפץ עליו רוגזו של יוסף" כהקדמה כדי לקבל שלוה זו; משא"כ בזמננו אנו, הרי כבר עברו כל עניני "רוגז" ר"ל על בני ישראל, הגזירות והשמדות ל"ע[ftnref\_1544\_56], עד להשמדות האחרונות ר"ל בדורנו אנו.
+והקב"ה מתאווה לתפילתם של ישר­אל, שיבקשו הגאולה — "ביקש לישב בשלוה" — וזה מביא ומזרז עוד יותר את הגאולה; וכמ"ש החיד"א[ftnref\_1545\_57] "אמרו ב­ילקוט תהלים רמז תשל"ו[ftnref\_1546\_58] אפי' אין ביד ישראל אלא הקיווי כדאי הם לגאולה בשכר הקיווי וכו'. . ובזה פירש. . מטבע ברכת את צמח דוד מהרה תצמיח וקרנו תרום בישועתך כי לישועתך קוינו כל היום דאומרו כי לישועתך אינו מובן מה נתינת טעם היא. . אבל ע"פ האמור א"ש והכי פירושה את צמח דוד וכו' וכי תימא שאין לנו זכות מ"מ תצמיח כי לישועתך קוינו ויש לנו הקיווי ובשכר הקיווי כדאי שתגאלנו".
+ובפשטות: כאשר בנ"י יבקשו כדבעי לישב בשלוה — הרי תיכף ומיד[ftnref\_1547\_59] תקויים בקשת כאו"א מישראל "ותחזינה עינינו בשובך לציון ברחמים" — שיבה בשובה ונחת וישיבה בשלוה "בארץ מגורי אביו", כפשוטו בגשמיות, בפועל ממש למטה מעשרה טפחים, ובעגלא דידן ממש.
+[quotation](משיחות ש"פ וישב ומקץ תשד"מ; ש"פ וישב תשמ"ו) [/quotation]
+
+**English:**
+
+## Vayeshev
+
+### Sicha 1
+
+1. It has been discussed many times regarding the names of the Torah portions, that the fact that each portion is called by a specific name (according to the custom of Israel, for such is the Torah) is not (only) because it begins with that word (which was established as its name), but because the content of the portion is hinted at in that name. This is like the name of any thing in Lashon HaKodesh, which is the vitality of that thing and indicates the content of the thing called by that name.
+
+It is understood that this is also the case regarding our portion, whose name, according to the custom of Israel, is "Vayeshev" (And he dwelt) — which must mean that the content of this portion is hinted at within it.
+
+And one must understand: "Vayeshev" means dwelling in a state of tranquility and rest, as the Sages expound at the beginning of our portion: "Vayeshev — Yaakov sought to dwell in tranquility"; whereas the content of the portion is the matter of the sale of Yosef, which disturbed and negated "Yaakov's dwelling," the rest and tranquility of Yaakov, as the Sages further expound: "Yaakov sought, etc., and the agitation of Yosef sprang upon him."
+
+2. This can be understood by first explaining the aforementioned teaching of the Sages: "Yaakov sought to dwell in tranquility, and the agitation of Yosef sprang upon him. The righteous seek to dwell in tranquility; the Holy One, blessed be He, said: 'Is it not enough for the righteous what is prepared for them in the World to Come, that they also seek to dwell in tranquility in this world?'"
+
+The explanation of this statement, according to the commentators on the Midrash (and Rashi), is that the fact that "Yaakov sought to dwell in tranquility" is the reason why "the agitation of Yosef sprang upon him." In other words, the Sages do not intend only to inform us that Yaakov's request to dwell in tranquility was not fulfilled — because the agitation of Yosef sprang upon him — but rather, more than that: "the agitation of Yosef sprang upon him" is a result of the fact that "Yaakov sought to dwell in tranquility." As it is explicitly stated in the Midrash: "Because Yaakov Avinu sought to dwell in tranquility in this world, the adversary of Yosef was paired against him".
+
+However, this is not clearly supported by the language of the Sages. For even if the phrasing "Yaakov sought, etc., and it sprang upon him, etc." regarding Yaakov could be interpreted (with difficulty, at least) as implying that the request was a deficiency or akin to a sin, the continuation of the phrase, "The righteous seek to dwell in tranquility," implies that this is the desire of the righteous in general — and since they are called by the name "righteous," it is obvious that this refers to true righteous individuals in whom there is no sin or iniquity, Heaven forbid. If so, how is it possible that the request of the righteous ("to dwell in tranquility") could contain an element of sin or deficiency?!
+
+— According to the version in the Midrash, "At the time that the righteous dwell in tranquility and seek to dwell in tranquility in this world, the Satan comes and accuses, saying, 'Is it not enough, etc.,'" perhaps it is possible to explain that it does not speak of a rule for all the righteous, but only regarding specific righteous individuals — that at the time they dwell in tranquility and seek to (continue to) dwell in tranquility, then "the Satan comes, etc.". But according to the aforementioned version, "The righteous seek to dwell in tranquility," the meaning is that this is the conduct of the righteous in general.
+
+And even though we find in the Torah the concept of sin — at least "sin" in a subtle sense — even among the righteous, nevertheless, in addition to the fact that this is not a common occurrence among the righteous [and certainly regarding Yaakov, the chosen of the Patriarchs, in addition to the fact that in general — the Patriarchs are the Chariot, and it is explicit in the Sages that the evil inclination did not rule over the Patriarchs], it is understood that it is impossible to say that this is the regular request of the righteous, that they are accustomed to conduct themselves in an undesirable manner!
+
+Therefore, it must be said that the fact that "the righteous seek to dwell in tranquility" is not a negative matter, the opposite of what is desired, but on the contrary — it is conduct appropriate for a righteous person and part of the perfection of his avodah.
+
+According to this, we need an explanation for the other side: since this is conduct appropriate for the righteous (meaning, it is in accordance with the will of the Holy One, blessed be He), why did "the Holy One, blessed be He, say: 'Is it not enough for the righteous what is prepared for them in the World to Come, that they also seek to dwell in tranquility in this world?'" (meaning that the Holy One, blessed be He, does not fulfill their request to dwell in tranquility, and on the contrary, its opposite, trouble and agitation, comes, as we find with Yaakov, that "the agitation of Yosef sprang upon him")?
+
+3. To add:
+According to the version of the Midrash, "At the time that the righteous dwell in tranquility, etc., the Satan comes and accuses, etc. Know this, etc. Because Yaakov Avinu sought, etc., the adversary of Yosef was paired against him" — one can answer that the fact that "the adversary of Yosef was paired against him" did not come as a punishment for an undesirable request, but only due to the accusation of the Satan.
+
+As we find many times the matter of the Satan's accusation, such as the accusation of the Satan against Avraham, that "from all the feasts that Avraham made, he did not sacrifice one bull before You, etc.," which caused the trial of the Akeidah ("He (the Holy One, blessed be He) said to him: 'Did he do anything except for his son? If I were to tell him to sacrifice him before Me, he would not delay'") — from which it is understood that there was nothing in Avraham's actual conduct that was contrary to the desired path, and the whole matter was caused by the accusation of the Satan.
+
+So too in our case, according to the Midrash it is possible to say that Yaakov's request to dwell in tranquility caused the accusation of the Satan, and therefore "the adversary of Yosef was paired against him".
+
+This is unlike the version, "The Holy One, blessed be He, said: 'Is it not enough for the righteous, etc.,'" from which it is understood (that this does not come only due to the accusation of the Satan, but) that this is the claim of the Holy One, blessed be He, against the righteous.
+
+4. It can be said that the explanation for this is:
+The request of the righteous "to dwell in tranquility" refers to complete and true tranquility. For their intention is not (only) for physical and bodily tranquility, but for spiritual tranquility, similar to the tranquility in the World to Come, where "there is no eating or drinking, etc., but the righteous sit, etc., and enjoy the radiance of the Shechinah". Therefore, "the Holy One, blessed be He, said: 'Is it not enough for the righteous what is prepared for them in the World to Come, that they also seek to dwell in tranquility in this world?'"
+
+And even though the place and time for such tranquility (sitting and enjoying the radiance of the Shechinah, without any avodah) is specifically in the World to Come — whereas in this world, it is written, "Today is for doing them", meaning that every moment must be (not "tranquility," but) avodah.
+
+[And furthermore: the perfection of avodah is — avodah out of love, where one does not serve Hashem "because of anything in the world... nor in order to inherit the good (not even "so that I may merit the life of the World to Come"), but one does the truth because it is truth."]
+
+The request of the righteous to dwell in tranquility is not for the sake of the tranquility itself (receiving reward), but so that through it they might be able to increase their avodah of Him, blessed be He, until it reaches the ultimate perfection. Similar to what the Rambam writes, that what "all of Israel, their prophets, and their sages longed for the days of Mashiach" is "so that they would rest from the kingdoms that do not allow them to engage in Torah and mitzvos properly, and they would find rest for themselves and increase in wisdom."
+
+And this is the meaning of "the righteous seek to dwell in tranquility," meaning that they long for a state of tranquility so that they can serve Hashem from a place of rest; and what the Holy One, blessed be He, says, "Is it not enough for the righteous, etc.," is not because it is an undesirable request, but because even this — a state of serving Hashem from a place of rest — is like a form of receiving reward, which comes only after the ultimate perfection in the avodah of Hashem.
+
+And so it is with Yaakov, who in his request to dwell in tranquility intended a complete spiritual tranquility so that he could serve Hashem from a place of rest. And the fact that "the agitation of Yosef sprang upon him" is because, in his standing and situation at that time, he was not yet worthy of this tranquility; however, in the end, his request to dwell in tranquility (even in this world) was fulfilled — after the end of the time of "the agitation of Yosef," he dwelt in tranquility even in this world, which is what the verse says: "And Yaakov lived in the land of Egypt seventeen years," which were years of tranquility and rest.
+
+5. It can be said with greater depth — and by way of introduction:
+According to the above, that the reason he did not dwell in the tranquility he requested is because he was not yet worthy of it — it is still not understood: why did "the agitation of Yosef" spring upon him, a new trouble and such a great trouble that caused great suffering, relative to the pain and pressure of the trouble of Lavan and the trouble of Esav, etc.?
+
+But the matter is:
+The very fact that Yaakov merited "tranquility in this world" at the end of his days is because "the agitation of Yosef sprang upon him" (as above, section 2, that the fact that the Holy One, blessed be He, brought upon him "the agitation of Yosef" is a result of Yaakov's request to dwell in tranquility). In other words: in order to elevate Yaakov to a higher level in the avodah of Hashem, until he would be worthy to dwell in tranquility in this world, the Holy One, blessed be He, brought upon him "the agitation of Yosef." As is known, avodah from a state of trouble and pain, etc., refines and elevates a person to the highest levels in the avodah of Hashem; and so too in our case, specifically through Yaakov's avodah in the state of "the agitation of Yosef," he merited to dwell in tranquility in this world ("And Yaakov lived in the land of Egypt seventeen years").
+
+Based on this, one can resolve the question from above (section 1) — why is the portion called by the name "Vayeshev," which indicates dwelling in tranquility, even though its content (and immediately from its beginning — "Yosef was seventeen years old, tending, etc.") is akin to "the agitation of Yosef" (the opposite of "Vayeshev" — tranquility)?
+
+Because since Yaakov's avodah from within the straits of "the agitation of Yosef" is precisely what brought about the fulfillment of his request "to dwell in tranquility" (as above), it turns out that the true content of this portion is — "Yaakov dwelt" (Yaakov's tranquility), since "the agitation of Yosef" is nothing but a preparation and introduction that led to the tranquility of "And Yaakov lived in the land of Egypt seventeen years."
+
+6. However, it still needs to be understood:
+It is understood and simple that the aforementioned matter (that the perfection of the reward of spiritual tranquility comes after the perfection of avodah) was known to Yaakov as well. And since Yaakov's attribute is the attribute of truth (as is known) — it is clear that Yaakov recognized his situation and level in the avodah of Hashem as it truly was. Since he requested to dwell in tranquility, it must be that from the perspective of his standing and situation at that time, he was already truly worthy of this tranquility (for after all the suffering he had endured through the troubles and adventures of Lavan and Esav and the trouble of Dinah, etc., he was worthy to perform his avodah in perfection from a place of tranquility).
+
+And since this is so — there is a need for a reason: why, in truth, was it still necessary to have "the agitation of Yosef" so that he could merit the matter of tranquility?
+
+It can be said that the point of the explanation for this is:
+This "tranquility" that Yaakov requested is not the same tranquility that was given to him through "the agitation of Yosef springing upon him." For as above, Yaakov's request to dwell in tranquility was (not as a receipt of reward, since "Today is for doing them" is written, but) only so that he could serve Hashem from a place of rest, and for such tranquility he was already worthy at that time through his previous avodah.
+
+And furthermore: according to the calculation of the years that Yaakov was in the land of Canaan, it turns out that until "the agitation of Yosef sprang upon him" (when Yosef was seventeen years old), Yaakov had nine years of years of tranquility in the land of his father's sojournings. And it can be said that this is the very tranquility that Yaakov requested.
+
+However, the Holy One, blessed be He, wanted Yaakov to merit tranquility in its perfection, "You shall see your world in your lifetime", that even in this world he would merit a state of the World to Come. And this tranquility was given to Yaakov only afterwards, when "And Yaakov lived in the land of Egypt seventeen years" (which came about through "the agitation of Yosef").
+
+[And it can be said that this detail is also hinted at in the custom of Israel, that the name of the portion is "Vayeshev" (in general), and not "Vayeshev Yaakov": the content of the portion is indeed a matter of dwelling ("Vayeshev") and tranquility, because "the agitation of Yosef" is what brought about Yaakov's tranquility, but in the land of Egypt; this is not the tranquility that Yaakov longed for and requested ("Yaakov dwelt"), for his request was to dwell in tranquility in the land of his father's sojournings, whereas the fact that "the agitation of Yosef sprang upon him" caused and brought about "Vayeshev" in general — tranquility in general, which is the life of the World to Come, which he merited when "And Yaakov lived in the land of Egypt" specifically.]
+
+7. Explanation of the matter:
+The difference between the two types of tranquility mentioned above is: the tranquility that Yaakov requested is tranquility within the realm of created beings, tranquility such that it is within the power of human beings to reach, and consequently — to request; whereas the Holy One, blessed be He, gave Yaakov tranquility such that it is not within the realm of created beings and it is not within the power of a created being to reach it by his own strength.
+
+And similar to how it is in simple terms: Yaakov's request to dwell in tranquility was that he would dwell "in the land of his father's sojournings" without distractions, etc., so that he could serve Hashem in rest, together with his sons and his offspring, etc., who walk and continue in his path, which is the path "that he will command his children, etc., and they will keep the way of Hashem" — which is the natural place and manner to reach and receive such tranquility;
+
+But the Holy One, blessed be He, gave him tranquility that is above nature — "And Yaakov lived in the land of Egypt seventeen years": by nature, the very fact of his being "in a land not theirs" is a distraction to the rest and tranquility of the soul, and all the more so in the land of Egypt, the nakedness of the land, which is a great distraction to true tranquility. And nevertheless, the Holy One, blessed be He, caused Yaakov to dwell in the best of the land, that he would find both physical tranquility and spiritual tranquility, in the most elevated manner (without any worry from a bad neighbor — the most corrupt of the nations, for woe to the wicked and woe to his neighbor, etc.).
+
+And just as it is in physical and simple terms, that Yaakov's tranquility in the land of Egypt was above nature — so it is in spiritual matters, that the "tranquility" in the land of Egypt was connected with "enjoyment" of the radiance of the Shechinah, similar to "enjoying the radiance of the Shechinah" in the World to Come, which is enjoyment above the realm of created beings, and in the language of the Rambam — "No human has the power to grasp it in its entirety, and no one knows its greatness, beauty, and strength except the Holy One, blessed be He, alone... 'No eye has seen, O G-d, besides You, etc.'"
+
+8. And with this, the reason why it was necessary for "the agitation of Yosef to spring upon him" for the sake of this tranquility will be explained — because this tranquility (which is above the realm of created beings) could not be reached by his own strength and avodah, but only through a special matter that would raise and elevate him above his measurements and limitations (so that he could receive this tranquility).
+
+And for this, his avodah and elevation through the trouble of Lavan and Esav, etc., were not enough, but "the agitation of Yosef sprang upon him" — for "the agitation of Yosef" is not just a matter where the trouble is greater in quantity and quality, but it is of a different type, and therefore the elevation that comes through it is also more elevated in essence.
+
+The explanation for this:
+The trouble of Lavan and the trouble of Esav were in their content the war and avodah of Yaakov with the side of the *sitra achra*. At first with Lavan the Aramean, "With Lavan the wicked I have sojourned, and I have kept the 613 mitzvos and I did not learn from his evil deeds", and similarly in the trouble of Esav, which indicates the war of holiness against the forces of evil, as is known regarding the matter of Yaakov's war with the angel of Esav, "And a man wrestled with him until the breaking of the dawn" — for this war is part of the avodah and task of man upon the earth, to nullify the evil in the world, to rectify the world in the kingdom of the Almighty, in a manner that it is also within the ability of man (a created being) to see and recognize the benefit in this avodah.
+
+However, "the agitation of Yosef" is a completely different type, in which there is no war with the side of the *sitra achra* or "refining" the matters of the world or the like — and seemingly, it is all nothing but pain and trouble without any purpose at all [and on the contrary, this trouble caused a descent, as it were, in Yaakov's situation, "And he mourned for his son", until the Shechinah departed from him, and furthermore, he said, "For I will go down to my son mourning to the grave" — "Gehenom"].
+
+And this "agitation," which seemingly is in the category of a "decree" that has no reason, is the very trial that the Holy One, blessed be He, brought upon Yaakov in order to elevate him higher and higher, to an elevation that is incomparable, through which he became a vessel for true tranquility, the World to Come (which is above the realm of a created being).
+
+9. And there is still room for wonder: according to the above, that the tranquility given to Yaakov is not the same tranquility that he requested, but is a special matter unto itself, which the Holy One, blessed be He, wanted to give him a taste of, like the reward of the World to Come — if so, why did the Holy One, blessed be He, wait with this until Yaakov requested to dwell in tranquility (as above from the Midrash, that the fact that the agitation of Yosef sprang upon him was a result of Yaakov's request to dwell in tranquility)?
+
+It can be said that the reason for this (in the inner dimension) is — because "the Holy One, blessed be He, longs for the prayers of the righteous", and therefore as long as Yaakov did not request to dwell in tranquility — the tranquility due to him was not given; and only when "Yaakov requested to dwell in tranquility" — for it can be said that "requested" here is (not only — wanted, but) an expression of petition and prayer — not only was his request fulfilled, but furthermore — the tranquility was given to him in its perfection, the World to Come.
+
+From here we learn a great foundation and a lesson in our avodah in our time, how relevant the matter of requesting the Redemption is, that every one of the Children of Israel must learn from Yaakov's conduct to request to dwell in tranquility. As long as Mashiach has not yet come, every one of Israel must request, and even more — demand that our righteous Mashiach come, in the language of the Sages (which has been brought many times): "Rabbi Shimon ben Yochai taught... All those thousands who fell in battle in the days of David, did not fall except because they did not demand the building of the Holy Temple... And if those... we... all the more so. Therefore the early Chassidim established that they should pray... every day... 'Return Your Shechinah to Zion and the order of avodah to Jerusalem,' and they established 'Builder of Jerusalem' as a separate blessing in the Amidah, and in the Grace After Meals."
+
+And it is brought (also) in Halacha, and its language is: The reason that one must mention the kingdom of the House of David in this blessing (Builder of Jerusalem)... is because we must mention the kingdom of Heaven and the kingdom of the House of David and the Holy Temple... And (Israel) will not be redeemed until they confess and demand all three.
+
+However, in Yaakov's time, it was necessary for "the agitation of Yosef to spring upon him" as an introduction to receive this tranquility; whereas in our time, all the matters of "agitation," Heaven forbid, have already passed over the Children of Israel, the decrees and the destructions, Heaven forbid, up to the recent destructions, Heaven forbid, in our generation.
+
+And the Holy One, blessed be He, longs for the prayer of Israel, that they request the Redemption — "he requested to dwell in tranquility" — and this brings and hastens the Redemption even more; as the Chida writes: "They said in Yalkut Tehillim, remez 736, 'Even if Israel has nothing in their hand but the waiting, they are worthy of redemption as a reward for the waiting, etc.'... And with this he explained... the wording of the blessing 'May You cause the shoot of David to sprout speedily,' 'for Your salvation we wait all the day.' For if one says 'for Your salvation,' it is not understood what kind of reason this is... But according to what is said, it is well, and this is the explanation: 'The shoot of David, etc.,' and if you say that we have no merit, nevertheless 'cause to sprout,' 'for Your salvation we wait,' and we have the waiting, and as a reward for the waiting, it is fitting that You redeem us."
+
+And in simple terms: when the Children of Israel request as is proper to dwell in tranquility — then immediately the request of every one of Israel will be fulfilled, "And may our eyes behold Your return to Zion in mercy" — a return in peace and tranquility and dwelling in tranquility "in the land of his father's sojournings," in the literal physical sense, in actual practice below ten handbreadths, and in our very days, immediately.
+
+(From the Sichos of Parshas Vayeshev and Mikeitz, 5744; Parshas Vayeshev, 5746)
+
+---
+
+_Section: וישב_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 184
+
+### שיחה ב
+
+א. בסיפור לידת פרץ וזרח (בניהם של יהודה ותמר) נאמר בפרשתנו[ftnref\_1548\_1]: ויהי בלדתה ויתן יד (הוציא האחד ידו לחוץ[ftnref\_1549\_2]) ותקח המילדת ותקשור על ידו שני לאמר זה יצא ראשונה, ויהי כמשיב ידו (לאחר שקשרה על ידו השני החזירה[ftnref\_1549\_2]) ו­הנה יצא אחיו גו' ויקרא שמו פרץ, ואחר יצא אחיו אשר על ידו השני ויקרא שמו זרח.
+על התיבות[ftnref\_1551\_3] "אשר על ידו השני" פרש"י: ארבע ידות כתובות כאן כנגד ארבע חרמים שמעל עכן שיצא ממנו. ויש אומרים כנגד ד' דברים שלקח אדרת[ftnref\_1552\_4] שנער ושתי[ftnref\_1553\_5] חתיכות כסף של מאתים שקלים ולשון זהב.
+ולכאו' יש לתמוה, איך מתאים פירוש זה עם הכלל שכלל רש"י כמ"פ[ftnref\_1554\_6], שבפי­רושו על התורה לא בא אלא לפשוטו של מקרא — שהרי פירוש זה בפסוק, שד' הפעמים שנא' כאן "יד" הם כנגד "ד' חרמים שמעל עכן" (או "ד' דברים ש­לקח"), לכאורה אינו אלא רמז בעלמא שאין לו שייכות לפירושן הפשוט של תיבות אלו.
+ודוחק גדול לומר שבלימוד ע"ד ה­פשט (פרש"י) מתורץ עי"ז הכפלת תיבת "יד" ד' פעמים, שהוא יתור לשון בכתוב — כי הו"ל להוסיף "רבותינו דרשו" ו­כיו"ב, כדרכו בכ"מ שמביא "אגדה[ftnref\_1555\_7] ה­מיישבת דברי המקרא",
+ועוד, ע"ד הפשט אין בהכפלת תיבת "יד" ד' פעמים יתור בכתוב — כי פעם הא' והג' ("ויתן יד", "ויהי כמשיב ידו") מוכרחות הן בפשטות להמשך הסיפור; היתור בפעם הב' "ותקשור על ידו" הוא רק שבמקום שתי התיבות "על ידו" הי' אפשר לכתוב רק תיבת "עלי'" — "ריווח" של תיבה אחת! ואין זה יתור הדורש ביאור, כי (ע"פ פשוטו של מקרא) כדאית הוספת תיבה אחת ליתר ביאור.
+אמנם בנוגע לפעם הד' ("ואחר יצא אחיו אשר על ידו השני") לכאורה יש מקום לומר, שלא רק תיבת "ידו" מיות­רת, אלא שכל ד' התיבות "אשר על ידו השני" מיותרות[ftnref\_1556\_8], שהרי ברור מהמשך ה­כתובים ש"אחיו" (שיצא באחרונה) הוא זה "אשר על ידו השני", ואין צורך ב­סימן זה; ועפ"ז יש לתרץ לכאורה ש­יתור זה מלמדנו על שאר ה"ידות"[ftnref\_1557\_9], שיש רמז בכך ש"ארבע ידות כתובות כאן" — "כנגד ד' חרמים. . ד' דברים".
+אבל כד דייקת שפיר, גם בפעם הד' אין כאן יתור (ע"ד הפשט, הדורש בי­אור) — כי:
+
+## 185
+
+(א) בתיבות אלו — "אשר על ידו ה­שני" — בא הכתוב להדגיש את הטעם לקריאת שם "זרח" (שנאמר בכתוב תיכף לאח"ז), וכפרש"י "ויקרא שמו זרח — ע"ש זריחת מראית השני"[ftnref\_1558\_10].
+(ב) ועיקר: מצינו כמ"פ שהכתוב מכ­פיל ענין (אף שיש בזה יתור של תיבות אחדות) — לשם תוספת הבהרה או אפילו רק ליופי הלשון.
+ולדוגמא — בפ' בראשית[ftnref\_1559\_11]: "ויכל אלקים ביום השביעי מלאכתו גו' ויש­בות ביום השביעי גו' ויברך אלקים את יום השביעי גו'" — ג' פעמים "ביום ה­שביעי", ולא פי' שם רש"י טעם הכפלה זו[ftnref\_1560\_12] (שהי' אפשר לכתוב "ויכל אלקים ביום השביעי מלאכתו גו' וישבות בו מכל מלאכתו גו' ויברך אותו אלקים ויקדש גו'" — ולא הי' ספק שהמדובר "ביום השביעי")!
+ועכצ"ל, שאין ביתור עד"ז קושי ע"ד הפשט — שלכן לא מצינו בנדו"ד בפר­שתנו, שפשטני המקרא יעמדו על כך ש"ארבע ידות כתובות כאן", אף שי"ל שסמכו על פרש"י — והדרא קושיא ל­דוכתא.
+ב. גם יש להבין כמה דיוקים ב­פירוש רש"י זה — ומהם:
+א) מהו דיוק הל' "ארבע ידות כתובות כאן" (כאילו שהן ארבע ידות שונות)? והרי כוונת רש"י היא לד' פעמים "יד" — וא"כ הול"ל "נכתב יד ד"פ"[ftnref\_1561\_13], או "ד' פעמים יד כתיב כאן"[ftnref\_1562\_14] וכיו"ב[ftnref\_1563\_15]? ובפרט ש"ארבע הידות" הוא ל' הכתוב בפי' שונה — חלקים[ftnref\_1564\_16].
+ב) מדוע הוזקק רש"י לשני פירו­שים[ftnref\_1565\_17]? — וכמשנ"ת כמ"פ, דכאשר רש"י מביא שני פירושים, הרי זה משום שבכל אחד מהם יש קושי שאין בהשני, אלא ש­הפירוש הראשון הוא קרוב יותר לפשט ולכן מביאו ראשונה.
+ג) בפירוש הא' לא פירט רש"י אילו הם ד' החרמים שמעל עכן, ואילו בפי­רוש השני מפרט רש"י ד' הדברים שלקח — "אדרת שנער ושתי חתיכות כסף. . ולשון זהב"!
+וביותר תמוה: בבראשית רבה[ftnref\_1566\_18] — בפשטות, מקורו של פירוש רש"י זה — הוא באופן הפוך: בפירוש הא' מפורטים החרמים שמעל עכן — "ואלו הן ד', חרמו של עמלק וחרמו של סיחון ועוג וחרמו של יריחו וחרמו של כנענים (נ"א מדין[ftnref\_1567\_19])", ואילו בפירוש השני שם נאמר רק "כנגד ד' דברים. . הה"ד[ftnref\_1568\_20] ואראה בשלל אדרת שנער אחת טובה וגו'" (מ­בלי להעתיק המשך הכתוב שבו נפרטו שאר הדברים[ftnref\_1569\_21])!
+
+## 186
+
+ג. ויש לומר הביאור בכל זה:
+כוונת רש"י בפירוש זה אינה לתרץ יתור בלשון הכתוב, אלא לבאר ענין כללי בסיפור זה: גם בלימוד ע"ד הפשט מובן, שבסיפורי התורה בכלל[ftnref\_1570\_22], ושל האבות והשבטים בפרט, בא הכתוב ל­למדנו ולהשמיענו תוכן מסויים — אם ענין הנוגע לידיעת חייהם הם, או שזהו בגדר "מעשה אבות סימן לבנים", ענין המרמז על מאורעות של בניהם אחריהם
+— וכפי שמצינו כמ"פ בפרש"י בפר­שיות הקודמות[ftnref\_1571\_23] (שמפרש כמה מאורעות של האבות איך שהם רומזים על דברים העתידים לבא בחיי בניהם), ובמיוחד במאורע כעין זה לעיל — בלידת יעקב ועשו: "ואחרי כן יצא אחיו וידו אוחזת בעקב עשו"[ftnref\_1572\_24], שפרש"י שם[ftnref\_1573\_25] תוכן ענין זה ובפרטיות: "בדין הי' אוחז בו לעכבו, יעקב נוצר מטיפה ראשונה כו' ויעקב בא לעכבו שיהא ראשון ללידה כראשון ליצירה ויפטור את רחמה ויטול את ה­בכורה מן הדין", וכן פרש"י הטעם שהי' אוחז "בעקב עשו" — "סימן שאין זה מספיק לגמור מלכותו עד שזה עומד ונוטלה הימנו" —
+וא"כ צריך להבין בנדו"ד — מהו תוכנו של סיפור זה ע"ד לידת פרץ וזרח, שאותו בא הכתוב ללמדנו, ש­תחילה "הוציא האחד ידו לחוץ ולאחר שקשרה על ידו השני החזירה" ויצא אחיו, ואחר יצא זה "אשר על ידו השני", ומהו הטעם שזרח יצא לאחרונה אף ש­הוציא ידו תחילה?
+[ואין לומר שגם כאן עיכב פרץ את זרח[ftnref\_1574\_26] כדי שיצא הוא ראשון והוא יהי' הבכור[ftnref\_1575\_27] — דביעקב ועשו, הרי כיון שעשו הי' רשע, מובן הטעם שיעקב לא רצה שעשו יצא ראשון[ftnref\_1576\_28] (וכן לאידך — עשו, להיותו רשע, לא הניח ליעקב לצאת ראשון); אבל בנדו"ד, הרי כבר פרש"י — הן בפ' תולדות[ftnref\_1577\_29] והן כאן בפרשתנו[ftnref\_1578\_30] — ש"שניהם צדיקים", ומדוע יצא פרץ לפני זרח שהוציא את ידו תחלה?].
+ודבר זה מסביר רש"י בפירושו[ftnref\_1579\_31]:
+
+## 187
+
+"ארבע ידות כתובות כאן, כנגד ארבע חרמים שמעל עכן שיצא ממנו", כלומר, שענינו של סיפור זה הוא "סימן" הרומז והשייך ל"בן" לאחר כמה דורות; ולכן נדחה זרח ויצא לאחרונה ולא זכה בבכורה[ftnref\_1580\_32], היות שיצא ממנו[ftnref\_1581\_33] עכן שמעל בד' חרמים[ftnref\_1582\_34].
+ד. עפ"ז מתורץ ג"כ הטעם שלא הק­דים רש"י כאן "ורבותינו דרשו" (וכיו"ב):
+רש"י כותב הקדמה כזו במקום שיש קושי בלשון המקרא, המתיישב רק ע"פ דרש או רמז; אבל בנדו"ד לא בא רש"י להפקיע הכתובים מידי פשוטם (וגם — לא בא לדרוש יתורא דקרא), אלא כוונתו היא לבאר ה"סימן" שבמאורע זה (וכנ"ל, שכן רגיל (גם) ע"פ פשוטו של מקרא, שיש תוכן ורמז במאורע זה, וכמו "וידו אוחזת בעקב עשו" שפרש"י (כנ"ל) "סימן שאין זה מספיק לגמור מלכותו כו'", ולא הקדים שזוהי אגדה או דרשה).
+וזהו דיוק לשון רש"י — "ארבע ידות כתובות כאן" (ולא "ארבע פעמים כתיב יד" וכיו"ב) — להדגיש, שאין כוונתו ל­עצם ההכפלה בלשון הכתוב, כ"א, שב­לידה זו כתובות "ארבע ידות" — ד' עני­ני "יד" שונים ("ידות" ל' רבים) — "ויתן יד", "ותקשור על ידו", "כמשיב ידו", "אשר על ידו השני";
+וכיון שכן, מסתבר לומר, שהתוכן וה­"סימן" מרמז ג"כ למאורע בעתיד השייך ל"יד", והקשור במספר של ד' — ולכן פרש"י "כנגד ד' חרמים שמעל עכן. . ד' דברים שלקח".
+ובזה מובן ג"כ טעם העדיפות בפי­רושו הראשון של רש"י לגבי הפירוש השני: כיון ש"ארבע ידות כתובות כאן" — ד' ענינים בקשר ל"יד" וכ"א בתוכן שונה ("ויתן", "משיב" כו', כנ"ל) — מס­תבר לומר, שגם בה"סימן" אירעו ד' מאורעות שונים; ולכן פירושו הראשון של רש"י הוא "כנגד ד' חרמים שמעל עכן", שהן ארבע פעולות שונות, בד' זמנים שונים; משא"כ לפירוש השני, שהם כנגד "ד' דברים שלקח", אין כאן ד' לקיחות ("ידות") שונות, כ"א ד' פרטים בלקיחה אחת.
+ה. אלא שמ"מ לא הסתפק רש"י בפי­רוש הא' ומביא גם דברי ה"יש אומרים" — "כנגד ד' דברים שלקח" — כי יש יתרון (גם) בפירוש השני.
+ויש לומר, שרש"י מרמז זה ע"י ה­שינוי (הנ"ל סעיף ב'), שבפירוש הא' לא פירט החרמים ובפירוש הב' פירט ד' הדברים.
+והביאור בזה:
+הטעם בפשטות מה שלא פירט רש"י מה הן ד' החרמים הוא — מפני שבפשוטו של מקרא אין הכרע מה הם החרמים שבהם מעל עכן, שהרי בקרא מפורש רק ע"ד המעילה בחרם של יריחו, אבל לא ע"ד שאר המעילות[ftnref\_1583\_35].
+
+## 188
+
+ואע"פ שמאמירת עכן[ftnref\_1584\_36] "וכזאת וכזאת עשיתי" יודעים (כפרש"י שם) שמעל "גם בחרמים אחרים" — הרי אין יודעים מזה (א) בכמה חרמים מעל[ftnref\_1585\_37], (ב) ובאיזה חרמים מעל [ועד שי"א שמעל בג' או ה' חרמים[ftnref\_1586\_38], וגם מצינו שקו"ט ארוכה במפרשים[ftnref\_1587\_39] מה הם החרמים].
+וזוהי העדיפות בפירוש השני על פירוש הראשון — כי ה"(ד') דברים ש­לקח" מפורשים בפשוטו של מקרא. ולכן מדייק רש"י לפרט את ארבעת הדברים — כי בשטחיות מפורש בקרא[ftnref\_1568\_20] רק שלשה דברים "אדרת שנער אחת טובה ומאתים שקלים כסף ולשון זהב אחד" (אדרת, כסף, זהב), ולכן מפרט ומפרש רש"י שהיו כאן "שתי חתיכות כסף של מאתיים שקלים"[ftnref\_1589\_40].
+משא"כ ד' המעילות של עכן (שבפי­רוש הראשון), כנ"ל, שלא מצינו אותן מפורטות בפשוטו של מקרא.
+ו. ועוד י"ל, ובהקדם: מובן ופשוט, דזה שזרח לא זכה בבכורה מפני שיצא ממנו עכן, הוא דוקא מפני שמעשיו של עכן (שנרמזו בארבע ידות הכתובות כאן) פגעו בכלל ישראל[ftnref\_1590\_41], אין זה ענין של חטא פרטי שלו אלא חטא הנוגע להכלל כולו.
+[כי פשוט, דמה שא' מיוצאי חלציו של זרח הנהו רשע (ואפילו רשע גדול ביותר) אין זה טעם שעבור זה יפסיד זרח את בכורתו, וכ"ש וק"ו שהכתוב יספר אודות זה תיכף בלידת זרח].
+וזהו הקושי בפירושו הראשון של רש"י (שלכן לא הסתפק רש"י בו בלבד), שלפיו נרמזו כאן (גם) ג' המעילות הרא­שונות של עכן, שלא פגעו בכלל ישר­אל[ftnref\_1591\_42] אלא הן חטאיו הפרטיים (ועד שלא נחית הכתוב לספר אודותם) — וא"כ מדוע רמזן הכתוב בלידת זרח כסיבה ל­הפסד הבכורה?
+משא"כ לפירוש השני שהרמז ב"ד' הידות" הוא רק בשייכות להמעילה ב­חרם של יריחו, שפגע בכלל ישראל כ­מסופר במקומו (בס' יהושע)[ftnref\_1590\_41].
+ז. מיינה של תורה בפרש"י זה:
+איתא בספר הבהיר[ftnref\_1593\_43], ש"זרח" ו"פרץ" הם שמש ולבנה, וענינם של שמש ולבנה בעבודת ה'[ftnref\_1594\_44] — "שמש" מרמז על עבודת הצדיקים, שעבודתם היא "תמידים כסד­רם", בלי שינוי (כמו אור השמש שאין בו שינויים), ולבנה מרמזת על בעלי תשובה (כמו מולד ומילוי הלבנה שבא לאחרי חסרונה).
+ולכן מפרץ (שכנגד) לבנה יצאה מל­
+
+## 189
+
+כות בית דוד — שדוד "הקים עולה של תשובה"[ftnref\_1595\_45], עד למלך המשיח — שאחד מהחידושים של משיח הוא, כמאמר ה­זהר[ftnref\_1596\_46], משיח אתא לאתבא צדיקייא ב­תיובתא, שגם צדיקים יגיעו למעלת ה­תשובה. וזה מרומז בשם "פרץ" — ע"ש "פרצת עליך פרץ"[ftnref\_1597\_47], המורה על ענין של פריצת הגדר[ftnref\_1598\_48], שזהו ענינה של עבו­דת התשובה[ftnref\_1599\_49], שהיא "בחילא" בכלל ו­"בחילא יתיר"[ftnref\_1600\_50], למעלה ממדידה ו­הגבלה[ftnref\_1601\_51] ("בכל מאדך").
+והטעם שפרץ יצא תחילה והוא ה­בכור[ftnref\_1602\_52] — כי עבודת התשובה היא למע­לה מעבודת הצדיקים, וכמאמר[ftnref\_1603\_53] "מקום שבעלי תשובה עומדין אין צדיקים גמורין יכולין[ftnref\_1604\_54] לעמוד בו".
+ובזה מובן גם הרמז בסיפור אופן לידת פרץ וזרח:
+כיון שזרח (מצ"ע) ענינו עבודת הצדיקים, לכן התחיל הוא לצאת תחילה, כי התחילה וראשית הכוונה היא, ש­כאו"א יהי' במדרגת צדיק[ftnref\_1605\_55]; אבל עי"ז שיצא ממנו עכן, הוצרך להתגלות מעלת התשובה[ftnref\_1606\_56] [וכפשוטו של ענין, שעכן הי' בעל תשובה, שהתודה על חטאיו ויש לו חלק לעוה"ב[ftnref\_1607\_57]] — וזהו מענינו של פרץ — "פרצת עליך פרץ", תיקונו של "עכן" על ידי פריצת הגדר, ע"י עבודת ה­תשובה.
+[quotation](משיחות ש"פ וישב וש"פ מקץ תשל"א, תשמ"ו) [/quotation]
+
+**English:**
+
+## Sicha 2
+
+### 184
+
+**A.** Regarding the story of the birth of Peretz and Zerach (the sons of Yehuda and Tamar), it is stated in our Parsha: "And it came to pass when she was giving birth, that he put out a hand (the one put his hand out), and the midwife took and tied a scarlet thread upon his hand, saying, 'This one came out first.' And it came to pass, as he drew back his hand (after she had tied it upon his other hand, he pulled it back), that behold, his brother came out... and he called his name Peretz; and afterward his brother came out, upon whose hand was the scarlet thread, and he called his name Zerach."
+
+Regarding the words "upon whose hand was the scarlet thread," Rashi comments: "Four hands are written here, corresponding to the four bans that Achan, who descended from him, violated. And some say, corresponding to the four items he took: a mantle of Shinar, two pieces of silver of two hundred shekels, and a tongue of gold."
+
+Seemingly, one must wonder: how does this interpretation align with the rule that Rashi states many times, that his commentary on the Torah comes only to explain the literal meaning of the verse (*peshuto shel mikra*)? For this interpretation of the verse—that the four times "hand" is mentioned here correspond to the "four bans that Achan violated" (or the "four items he took")—is seemingly nothing more than a mere hint (*remez*) that has no connection to the literal meaning of these words.
+
+It is very forced to say that in a study of *peshat* (Rashi), this resolves the repetition of the word "hand" four times, which is a superfluity of language in the text—for he should have added "Our Sages expounded" or the like, as is his custom in every place where he brings an "Aggadah that resolves the words of the text."
+
+Furthermore, according to *peshat*, the repetition of the word "hand" four times is not a superfluity in the text—for the first and third times ("he put out a hand," "as he drew back his hand") are simply necessary for the progression of the story. The superfluity in the second time, "tied upon his hand," is only that instead of the two words "upon his hand," one could have written only the word "upon it"—a "saving" of one word! This is not a superfluity that requires explanation, because (according to the literal meaning of the text) the addition of one word for greater clarity is worthwhile.
+
+Admittedly, regarding the fourth time ("and afterward his brother came out, upon whose hand was the scarlet thread"), there is seemingly room to say that not only is the word "hand" superfluous, but all four words "upon whose hand was the scarlet thread" are superfluous, for it is clear from the continuation of the verses that "his brother" (who came out last) is the one "upon whose hand was the scarlet thread," and there is no need for this sign. Based on this, one could seemingly resolve that this superfluity teaches us about the other "hands", that there is a hint in the fact that "four hands are written here"—"corresponding to the four bans... the four items."
+
+But when you examine it properly, even in the fourth instance there is no superfluity here (according to *peshat*, which requires explanation)—because:
+
+### 185
+
+(a) With these words—"upon whose hand was the scarlet thread"—the text comes to emphasize the reason for the naming of "Zerach" (which is stated in the text immediately afterward), as Rashi says: "And he called his name Zerach—because of the shining (*zerichah*) of the appearance of the scarlet thread."
+
+(b) And primarily: We find many times that the text repeats a matter (even though there is a superfluity of a few words)—for the sake of additional clarity or even just for the beauty of the language.
+
+For example—in Parshas Bereishis: "And G-d finished on the seventh day His work... and He rested on the seventh day... and G-d blessed the seventh day..."—three times "the seventh day," and Rashi does not explain there the reason for this repetition (for it could have been written: "And G-d finished on the seventh day His work... and He rested on it from all His work... and G-d blessed it and sanctified it..."—and there would have been no doubt that it was referring to "the seventh day")!
+
+And it must be that there is no difficulty according to *peshat* with such a repetition—which is why we do not find in the present case in our Parsha that the literalists of the text (*pashtanei hamikra*) dwell on the fact that "four hands are written here," even though it could be said that they relied on Rashi—and the difficulty remains in its place.
+
+**B.** There are also several points of precision to understand in this Rashi—among them:
+
+1) What is the precision of the language "four hands are written here" (as if they are four different hands)? For Rashi’s intent is to the four times "hand" is mentioned—if so, he should have said "the word 'hand' is written four times," or "four times 'hand' is written here," and the like? Especially since "four hands" is language that the text uses in a different sense—parts.
+
+2) Why did Rashi need two interpretations?—As has been explained many times, when Rashi brings two interpretations, it is because each one has a difficulty that the other does not, but the first interpretation is closer to *peshat* and therefore he brings it first.
+
+3) In the first interpretation, Rashi did not specify which are the four bans that Achan violated, whereas in the second interpretation, Rashi specifies the four items he took—"a mantle of Shinar, two pieces of silver of two hundred shekels... and a tongue of gold"!
+
+And it is even more puzzling: in Bereishis Rabbah—simply, the source of this Rashi—it is the opposite: in the first interpretation, the bans that Achan violated are specified—"And these are the four: the ban of Amalek, the ban of Sichon and Og, the ban of Jericho, and the ban of the Canaanites (some versions: Midian)," whereas in the second interpretation there, it says only "corresponding to the four items... as it is written, 'And I saw among the spoil a good mantle of Shinar, etc.'" (without copying the continuation of the verse in which the other items are specified)!
+
+### 186
+
+**C.** One can say the explanation for all this is:
+Rashi’s intent in this interpretation is not to resolve a superfluity in the language of the text, but to explain a general matter in this story: Even in a study of *peshat*, it is understood that in the stories of the Torah in general, and of the Patriarchs and the tribes in particular, the text comes to teach us and inform us of a specific content—whether it is a matter concerning the knowledge of their own lives, or if it is in the category of "the deeds of the fathers are a sign for the children," a matter that hints at the events of their descendants after them.
+
+—As we find many times in Rashi in the previous Parshiyos (where he explains several events of the Patriarchs as hinting at things destined to happen in the lives of their children), and especially in an event similar to this one above—at the birth of Yaakov and Esav: "And afterward his brother came out, and his hand was holding onto the heel of Esav," where Rashi explains there the content of this matter and in detail: "By law he was holding onto him to delay him; Yaakov was formed from the first drop, etc., and Yaakov came to delay him so that he would be first to birth as he was first to conception, and he would open her womb and take the birthright by law." And likewise Rashi explains the reason he was holding "the heel of Esav"—"a sign that this one is not sufficient to finish his kingdom until this one stands and takes it from him."
+
+If so, we must understand in the present case—what is the content of this story regarding the birth of Peretz and Zerach, which the text comes to teach us, that first "the one put out a hand, and after she tied it upon his other hand, he pulled it back" and his brother came out, and afterward this one came out "upon whose hand was the scarlet thread," and what is the reason that Zerach came out last even though he put out his hand first?
+
+[And one cannot say that here too Peretz delayed Zerach so that he would come out first and he would be the firstborn—for with Yaakov and Esav, since Esav was wicked, the reason is understood why Yaakov did not want Esav to come out first (and likewise conversely—Esav, being wicked, did not allow Yaakov to come out first); but in the present case, Rashi has already stated—both in Parshas Toldos and here in our Parsha—that "both are righteous," so why did Peretz come out before Zerach who put out his hand first?]
+
+And this matter Rashi explains in his commentary:
+
+### 187
+
+"Four hands are written here, corresponding to the four bans that Achan, who descended from him, violated," meaning, that the matter of this story is a "sign" that hints at and belongs to a "son" after several generations; and therefore Zerach was pushed off and came out last and did not merit the birthright, since from him descended Achan who violated four bans.
+
+**D.** Based on this, the reason is also resolved why Rashi did not preface here "And our Sages expounded" (and the like):
+Rashi writes such a preface in a place where there is a difficulty in the language of the text that is resolved only according to *drash* or *remez*; but in the present case, Rashi does not come to remove the verses from their literal meaning (and also—he does not come to expound a superfluity of the text), but his intent is to explain the "sign" in this event (and as above, for it is common (also) according to *peshat* that there is content and a hint in this event, like "and his hand was holding onto the heel of Esav" where Rashi explains (as above) "a sign that this one is not sufficient to finish his kingdom, etc.," and he did not preface that this is an Aggadah or a *drash*).
+
+And this is the precision of Rashi’s language—"four hands are written here" (and not "the word 'hand' is written four times" and the like)—to emphasize that his intent is not to the repetition itself in the language of the text, but that in this birth are written "four hands"—four different "hand" matters ("hands" is plural)—"he put out a hand," "tied upon his hand," "as he drew back his hand," "upon whose hand was the scarlet thread."
+
+And since this is so, it is logical to say that the content and the "sign" also hint at an event in the future belonging to "hand," and connected to the number four—and therefore Rashi explains "corresponding to the four bans that Achan violated... the four items he took."
+
+And with this, the reason for the preference of Rashi’s first interpretation over the second is also understood: since "four hands are written here"—four matters in connection to "hand" and each with different content ("he put out," "drew back," etc., as above)—it is logical to say that in the "sign" as well, four different events occurred; and therefore Rashi’s first interpretation is "corresponding to the four bans that Achan violated," which are four different actions, at four different times; whereas according to the second interpretation, that they are "corresponding to the four items he took," there are not four different takings ("hands"), but four details in one taking.
+
+**E.** However, Rashi was not satisfied with the first interpretation and also brings the words of the "some say"—"corresponding to the four items he took"—because there is an advantage (also) in the second interpretation.
+
+And one can say that Rashi hints at this through the change (mentioned above in section B), that in the first interpretation he did not specify the bans, and in the second interpretation he specified the four items.
+
+And the explanation for this:
+The reason in *peshat* why Rashi did not specify what are the four bans is because in the literal meaning of the text there is no certainty as to what are the bans that Achan violated, for in the text it is explicitly stated only regarding the violation of the ban of Jericho, but not regarding the other violations.
+
+### 188
+
+And even though from Achan’s statement, "and thus and thus I have done," we know (as Rashi says there) that he violated "also other bans"—we do not know from this (a) how many bans he violated, (b) and which bans he violated [to the point that some say he violated three or five bans, and we also find that there is a long discussion among the commentators as to what the bans are].
+
+And this is the advantage of the second interpretation over the first—because the "(four) items he took" are specified in the literal meaning of the text. And therefore Rashi is precise to specify the four items—because superficially it is specified in the text only three items: "a good mantle of Shinar, two hundred shekels of silver, and one tongue of gold" (mantle, silver, gold), and therefore Rashi specifies and explains that there were here "two pieces of silver of two hundred shekels."
+
+Unlike the four violations of Achan (in the first interpretation), as above, which we do not find specified in the literal meaning of the text.
+
+**F.** And one can further say, and by way of introduction: It is understood and simple that the fact that Zerach did not merit the birthright because Achan descended from him is specifically because the deeds of Achan (which are hinted at in the four hands written here) harmed the entire Jewish people; this is not a matter of his private sin, but a sin that concerns the entire collective.
+
+[For it is simple that the fact that one of the descendants of Zerach is wicked (and even a very great wicked person) is not a reason for which Zerach would lose his birthright, and all the more so that the text would recount this immediately at the birth of Zerach].
+
+And this is the difficulty in Rashi’s first interpretation (which is why Rashi was not satisfied with it alone), according to which (also) the first three violations of Achan are hinted at here, which did not harm the entire Jewish people, but are his private sins (to the point that the text did not descend to recount them)—and if so, why did the text hint at them at the birth of Zerach as a reason for the loss of the birthright?
+
+Unlike the second interpretation, where the hint in the "four hands" is only in connection to the violation of the ban of Jericho, which harmed the entire Jewish people as recounted in its place (in the Book of Joshua).
+
+**G.** The *pnimiyus* of Torah in this Rashi:
+It is stated in the *Sefer HaBahir* that "Zerach" and "Peretz" are sun and moon, and the matter of sun and moon in the service of Hashem—"sun" hints at the service of the *tzaddikim*, whose service is "the daily offerings in their order," without change (like the light of the sun which has no changes), and the moon hints at *baalei teshuvah* (like the new moon and the full moon that comes after its diminution).
+
+And therefore from Peretz (who corresponds to) the moon came the kingdom of the House of David—for David "established the yoke of *teshuvah*," up to King Moshiach—for one of the innovations of Moshiach is, as the *Zohar* says, Moshiach comes to bring the *tzaddikim* to *teshuvah*, that even *tzaddikim* will reach the level of *teshuvah*. And this is hinted at in the name "Peretz"—from "You have broken a breach (*peretz*) for yourself," which indicates the matter of breaking the boundary, which is the essence of the service of *teshuvah*, which is "with strength" in general and "with greater strength," above measurement and limitation ("with all your might").
+
+And the reason that Peretz came out first and is the firstborn—is because the service of *teshuvah* is above the service of *tzaddikim*, as the saying goes, "In the place where *baalei teshuvah* stand, complete *tzaddikim* cannot stand."
+
+And with this, the hint in the story of the manner of the birth of Peretz and Zerach is also understood:
+Since Zerach (by his own nature) is the service of *tzaddikim*, therefore he began to come out first, for the beginning and the head of the intent is that everyone should be at the level of a *tzaddik*; but through the fact that Achan descended from him, it became necessary for the level of *teshuvah* to be revealed [and according to the literal matter, that Achan was a *baal teshuvah*, who confessed his sins and has a share in the World to Come]—and this is the essence of Peretz—"You have broken a breach for yourself," the rectification of "Achan" through the breaking of the boundary, through the service of *teshuvah*.
+
+---
+
+
+## מקץ
+
+_Section: מקץ_
+
+**Hebrew:**
+
+## שיחה א
+
+## 190
+
+### שיחה א
+
+א. בפסוק[ftnref\_1608\_1] "וירא יעקב כי יש שבר במצרים ויאמר יעקב לבניו למה תתראו" פרש"י[ftnref\_1609\_2]: למה[ftnref\_1610\_3] תראו עצמכם בפני בני ישמעאל ובני עשו כאלו אתם שבעים, כי באותה שעה עדיין הי' להם תבואה.
+וידועה התמי': מדוע נקט רש"י "למה תראו עצמכם בפני בני ישמעאל ובני עשו", שלא גרו בארץ כנען (כמפורש בקרא, שבני ישמעאל שכנו "מחוילה עד שור אשר על פני מצרים"[ftnref\_1611\_4], ועשו ובניו ישבו בארץ שעיר[ftnref\_1612\_5]) — ולא אמר שלא יראו עצמם בפני שכניהם בארץ כנען גופא[ftnref\_1613\_6]?
+במפרשים מצינו כמה תירוצים ע"ז — אבל כולם דחוקים לכאורה, ולדוגמא:
+א) הרמב"ן בפירושו תירץ "ואולי היו בני ישמעאל ובני עשו באים מארץ אחוזתם אל יוסף לשבור והיו באים דרך ארץ כנען עוברים עליו ואמר להם שלא יראו עצמן שבעים בפניהם כי יחשדוהו שיש ליעקב תבואה ויבואו אליו לאכול עמו לחם בביתו".
+אבל כבר תמה עליו הרא"ם ד"ארץ אדום וארץ מצרים שתיהן בדרומה של ארץ כנען. . והבא מארץ אדום לארץ מצרים אין לו לעבור בארץ כנען"[ftnref\_1614\_7].
+ועוד ועיקר[ftnref\_1615\_8]: ביאורו זה של הרמב"ן מיישב רק מדוע יש חשש גם מפני בני ישמעאל ובני עשו הרחוקים — אבל עיקר התמי' במקומה עומדת: מדוע נקט רש"י "בפני בני ישמעאל ובני עשו" (שב­זה שולל שאר אומות), ולא כתב בלשון סתמי וכללי "בפני האומות" (או כלשון הרשב"ם[ftnref\_1616\_9] "בפני האנשים") — וכולם בכלל?
+ב) הרא"ם תי' שלא נקט בני ארץ כנען מפני "שכל אנשי ארץ כנען הי' להם תבואה כמותם", משא"כ "בני עשו וישמעאל השוכנים סביבות ארץ כנען (ש)לא הי' להם תבואה כאנשי כנען".
+אבל גם זה קשה (כמו שהקשו במפר­שים[ftnref\_1617\_10]): מפשטות לשון הכתוב לעיל[ftnref\_1618\_11] "ויהי רעב בכל הארצות", וכן ממש"נ לאח"ז בעת הליכת בני יעקב למצרים "ויבואו גו' בתוך הבאים כי הי' הרעב
+
+## 191
+
+בארץ כנען"[ftnref\_1619\_12], משמע, שבעת אמירתו של יעקב "למה תתראו" הי' הרעב בארץ כנען, ואנשי כנען באו לארץ מצרים לשבור בר[ftnref\_1620\_13].
+ועוד זאת: עדיין אינו מתורץ (כמו שהקשה המהרש"א[ftnref\_1621\_14]) — מדוע נקט רש"י בני ישמעאל ובני עשו דוקא, ולא "עמון ומואב שהיו ג"כ שכיני ארץ כנען"? והעיקר (כנ"ל): למה לי' לרש"י בכלל לפרט שמות של אומות, ולא כתב סתם "בפני האומות" וכיו"ב[ftnref\_1622\_15]?
+ג) בגור ארי' כתב ד"מאחר כי עשו וישמעאל אחים לכם יאמרו לכם וחי אחיך עמך[ftnref\_1623\_16] ולפיכך היו יראים מפני עשו וישמעאל ולא מאנשי כנען".
+אבל גם סברא זו צ"ע לפי פשוטו של מקרא (נוסף על הדוחק לומר שבני ישמעאל ובני עשו יבואו לתבוע מזון מיעקב ובניו) — כי רואים במוחש, שאדם דואג יותר משכניו שאינם קרוביו מאשר קרוביו[ftnref\_1624\_17] שבמדינה אחרת[ftnref\_1625\_18].
+ד) בכלי יקר[ftnref\_1626\_19] מבאר שנקט בני ישמעאל ובני עשו "כי שניהם סוברים שיצחק גזל הצלחת ישמעאל[ftnref\_1627\_20] ויעקב גזל הצלחת עשו ע"י השתדלות" (כי יעקב לקח ברכותיו של עשו במרמה[ftnref\_1628\_21]), ולכן הם מקנאים לישראל יותר מכל האומות, ומשום זה חשש יעקב לקנאת בני ישמעאל ובני עשו דוקא.
+אבל ג"ז אינו מובן: אפילו את"ל שבני ישמעאל ובני עשו היתה בהם מדה יתירה של קנאה מבשאר האומות, מ"מ פשוט, שגם אנשי כנען קינאו ליעקב ו­בניו בראותם שהללו שבעים בשעה שהם רעבים [וע"ד שמצינו לעיל ביצחק, ד­כאשר הקב"ה ברכו והצליחו בארץ פלשתים בשנת רעבון[ftnref\_1629\_22] באופן שהי' לו "מקנה צאן גו' ועבודה רבה"[ftnref\_1630\_23], הרי משו"ז — "ויקנאו אותו פלשתים"[ftnref\_1630\_23]].
+ומכיון שכן, עיקר התמי' במקומה עומדת: מדוע נקט רש"י "בפני בני יש­
+
+## 192
+
+מעאל ובני עשו", היינו שהחשש הוא רק מפני אומות אלו[ftnref\_1632\_24], ולא מפני שכניו ב­ארץ כנען?
+ב. ויובן זה בהקדים כמה דיוקים ב­לשון רש"י:
+א) לכאורה רש"י סותר את עצמו, דבתחילה כתב "למה תראו עצמכם. . כאלו אתם שבעים"[ftnref\_1633\_25], שמשמעו שבאמת לא היו שבעים ורק הראו עצמם כאלו הם שבעים — וממשיך "כי באותה שעה עדיין הי' להם תבואה"[ftnref\_1634\_26]?
+אשר ע"כ צ"ל, שכוונת רש"י ב"כאילו אתם שבעים" היא[ftnref\_1635\_27], שבני יעקב הראו עצמם כאילו יש להם הרבה תבואה[ftnref\_1636\_28] שתספיק להם לפרנס את עצמם זמן רב — ובאמת היתה להם תבואה רק "באותה שעה" [היינו רק לאותה שעה בלבד, ו­כמובן מהמשך הפרשה, ש"כלו לאכול את השבר אשר הביאו ממצרים"[ftnref\_1637\_29] והוצ­רכו לירד עוה"פ למצרים לשבר אוכל] — וע"ז הזהירם יעקב "למה תתראו".
+אבל עדיין צ"ע, מדוע יתנהגו בני יעקב באופן כזה, שיראו עצמם כאילו הם שבעים יותר מכפי כמות התבואה שבידם? וגם אם יש איזה טעם להנהגה כזו — מנ"ל לרש"י הא? והלא יכולים ללמוד בפשטות, שיעקב הזהירם "למה תתראו" על השובע של אותה השעה?
+ב) מקורו של רש"י הוא בגמ' תענית[ftnref\_1638\_30] — ושם הלשון: אמר להם יעקב לבניו אל תראו עצמכם כשאתם שבעין לא ב­פני עשו ולא בפני ישמעאל כדי שלא יתקנאו בכם.
+ויש להבין טעם השינויים בלשון רש"י[ftnref\_1639\_31]:
+(א) בגמ' מקדים עשו לישמעאל ורש"י מהפך הסדר — "בני ישמעאל ובני עשו"[ftnref\_1640\_32].
+(ב) רש"י משמיט[ftnref\_1641\_33] סיום לשון חז"ל "כדי שלא יתקנאו בכם"[ftnref\_1642\_34].
+
+## 193
+
+ג. ויש לומר, ששאלות אלו מתורצות אחת בחברתה:
+ע"ד הפשט החשש ד"למה תתראו" אינו משום ענין הקנאה, כי מכיון שלא הי' ליעקב ובניו הרבה תבואה, כ"א רק "באותה שעה" (כנ"ל), הרי מעיקרא אין מקום לקנאה מצד העמים[ftnref\_1643\_35] (ואין זה דו­מה להצלחתו הגדולה של יצחק באופן של "ויגדל גו' הלוך וגדל גו' גדל מאד, ויהי לו גו' ועבודה רבה"[ftnref\_1644\_36]);
+והחשש ד"למה תתראו" הוא (לא על עצם הצלחת בני יעקב, שהיתה להם תבואה בשעת הרעב, כ"א) רק על זה שהראו עצמם כאלו הם שבעים, וחשש זה ד"למה תתראו" הוא ענין מיוחד ה­שייך רק לבני ישמעאל ובני עשו (כד­לקמן).
+וזהו גם טעם השינוי, שבגמ' מקדים עשו לישמעאל ורש"י מהפך את סדרם: לפי המפורש בגמ', שטעם החשש הוא "שלא יתקנאו בכם", הרי מובן, שעיקר חששו של יעקב הי' מפני קנאתם של בני עשו אחיו, שלקח ממנו הברכות "במר­מה"[ftnref\_1628\_21] — וכמפורש בכתוב[ftnref\_1646\_37] "וישטום עשו את יעקב על הברכה גו'" — ופשוט שקנאת בני עשו היתה יותר גדולה פי כמה מקנאתם של בני ישמעאל[ftnref\_1647\_38] על אשר "יצחק[ftnref\_1648\_39] גזל הצלחת ישמעאל"; משא"כ לפי פרש"י אין החשש ד"למה תתראו" שייך לענין הקנאה (או נקמה), ולכן מונאם לפי סדר הדורות — בני ישמעאל ובני עשו.
+ד. הסברת הענין:
+כבר מצינו בכתובים לפנ"ז שהי' מצב של רעב בארץ כנען הן בימי אברהם והן בימי יצחק, ושניהם עזבו בגלל זה את מקומם — אברהם ירד מצרימה לגור שם[ftnref\_1649\_40], ויצחק הלך אל אבימלך מלך פלשתים גררה[ftnref\_1650\_41] (ו"הי' דעתו לרדת ל­מצרים כמו שירד אביו בימי הרעב" אלא שהקב"ה ציווה לו "אל תרד מצ­רימה"[ftnref\_1651\_42]).
+והטעם שסיבב הקב"ה כך שהוצרכו לגלות ממקומם, אינו משום שלא היו ראויים ח"ו שהקב"ה יכלכל אותם גם
+
+## 194
+
+בימי הרעב — והראי', שבהיות יצחק בגרר, למרות "שהיתה שנת רעבון. . הארץ קשה והשנה קשה"[ftnref\_1652\_43], בכ"ז בירכו ה' בהצלחה נסית ש"וימצא גו' מאה שערים גו' ויגדל האיש גו' עד כי גדל מאד"[ftnref\_1653\_44] — אלא צ"ל שהליכתם ממקומם היתה מחמת סיבות צדדיות.
+וכמפורש גבי אברהם שזה הי' "ל­נסותו אם יהרהר אחר דבריו של הקב"ה שאמר לו ללכת אל ארץ כנען ועכשיו משיאו לצאת ממנה"[ftnref\_1654\_45]. ועד"ז ביצחק, שזה שהקב"ה לא כלכל אותו במקומו (כ"א שהוצרך ללכת גררה) הי' בשביל ענין צדדי. ואולי ע"ד באברהם. וא"צ לפרש — כי מובן מעצמו.
+ומעתה יובן תוכן הנהגתם של בני יעקב, שהראו עצמם כאילו הם שבעים:
+בני יעקב היו חזקים בבטחונם[ftnref\_1655\_46] ש­הקב"ה לא יעזוב את יעקב וב"ב בימי הרעב. ובראותם שיש להם תבואה בעת שכל אנשי ארץ כנען רעבים מפני חוסר התבואה, הי' ברור להם שזכו לברכה (והצלחה) אלקית שלמעלה מן הטבע (ובאופן שהקב"ה יכלכלם במקומם);
+ולכן, אף שלמעשה היתה להם תבואה רק "באותה שעה" (ולא תבואה רבה, כנ"ל) — מ"מ לא הי' שום ספק בלבם ש­גם להבא ימשיך הקב"ה לפרנסם באופן נסי (כהנהגת הקב"ה עם האבות בכלל), ולכן הראו עצמם כאילו הם שבעים (ב­רב תבואות), כי כך הרגישו בבטחונם החזק בה', ועד אשר התבואה הרבה שעדיין לא היתה בידם נחשבה בעיניהם כאילו כבר ישנה בידם.
+ועל הנהגה זו טען יעקב "למה תת­ראו" — "למה תראו עצמכם בפני בני ישמעאל ובני עשו כאילו אתם שבעים":
+הנהגה כזו, להראות "עצמכם. . כאילו אתם שבעים" (ואין צורך ללכת אל ארץ מצרים לשבר בר), יכולה ל­עורר קטרוגם של בני ישמעאל ובני עשו — יוצאי חלציהם של אברהם ויצחק: איך יתכן שיעקב ובניו יושבים בטח ב­ארץ כנען בשנות רעב אלו? — וכי טובים הם מזקניהם אברהם ויצחק ש­הוזקקו ללכת מארץ כנען בימי הרעב? שהרי בני ישמעאל ובני עשו לא ידעו הטעם האמיתי של יציאת אברהם ויצחק ממקומם.
+וטענה כזו בכוחה לעורר קטרוג וכו'[ftnref\_1656\_47] עד שיצטרכו להטלטל ממקומם.
+ה. ביאור הענין ע"ד הרמז:
+דבר זה, שבעצם אין ישראל זקוקים לקבל תבואתם ממצרים (שלכן היו בני יעקב בטוחים שאין צורך לשבר בר ממצרים) משתלשל (ככל דבר) מהענין כפי שהוא בשרשו ברוחניות.
+והביאור:
+הטעם לזה שארץ מצרים היתה מקור שפע התבואה והלחם לכל הארצות[ftnref\_1657\_48], הוא לפי שכ"ה ברוחניות הענינים, שהיא היתה מקורה של ה"תבואה" הרוחנית.
+
+## 195
+
+כלומר: "תבואה" רוחנית ענינה חכ­מה. וכמו שמצינו שהתורה נקראת בשם "לחם", "כי[ftnref\_1658\_49] כמו שהלחם הגשמי זן את הגוף כשמכניסו בתוכו וקרבו ממש ונהפך שם להיות דם ובשר כבשרו ואזי יחי' ויתקיים כך בידיעת התורה והשגתה בנפש האדם שלומדה היטב בעיון שכלו עד שנתפסת בשכלו ומתאחדת עמו והיו לאחדים נעשה מזון לנפש וחיים בקרבה כו'". כלומר, השכל דתורה הוא הנקרא לחם, כי תכונת השכל היא, שהמושכל מתאחד עם כח השכל ונעשים לאחדים[ftnref\_1659\_50], כמו שהלחם הגשמי נכנס לתוך הגוף ונעשה דם ובשר כבשרו. ומזה מובן שמעין זה הוא להבדיל בכל חכמה ושכל[ftnref\_1660\_51].
+וזהו הטעם (הפנימי) שמכל הארצות באו לשבר בר ("חכמה") מארץ מצרים דוקא — כי מצרים היתה מקורה של "חכמה", כדאיתא בזהר[ftnref\_1661\_52] ש"היתה חכמת מצרים יותר מכל העולם".
+אמנם, בד"א — באומות העולם, אבל בנ"י אינם זקוקים כלל לחכמת מצרים עבור לימוד החכמה, כי עם היות שכמה עניני תורה קשורים בידיעת חכמות העו­לם — ולדוגמא: המצוה לחשוב בחשבוני התקופות והמזלות בשביל קידוש החודש ועיבור השנה[ftnref\_1662\_53], ועוד[ftnref\_1663\_54] — מ"מ, בשנים כ­תיקונן, הידיעה בחכמות אלו באה מן התורה עצמה[ftnref\_1664\_55] (ע"ד המסופר בחז"ל[ftnref\_1665\_56] שר' יהושע בן חנני' למד זמן עיבור נחש מן הכתוב), ובעת מן העתים הדורש ידי­עה בחכמות אלו, נמצאות הן בשלימותן אצל חכמי ישראל[ftnref\_1666\_57] ובספריהם ואין צורך ללומדן מחכמי האומות. וכמ"ש ה­רמב"ם[ftnref\_1667\_58] בנוגע לחשבונות התקופות וה­מזלות, שבימי הנביאים חברו חכמי ישר­אל מבני יששכר ספרים בענינים אלו אלא שלא הגיעו לידינו[ftnref\_1668\_59].
+וזהו הטעם הפנימי לזה שבעצם לא היו בני יעקב צריכים לשבור בר ב­מצרים.
+ו. עפ"ז יובן גם התוכן הפנימי ב­טענת יעקב "למה תתראו" — כי דבר זה, שישראל אין נזקקים כלל ל"חכמת מצרים", יכול לגרום לטענה מצד ה­עמים. כי אף שגם האומות יודעים ש­הקב"ה בחר בנו מכל העמים ונתן לנו את תורתו, ויש הבדל בין ישראל ל­עמים, מ"מ הרי בהידיעה בעניני העולם — לכאורה דומים הם לבני ישראל, וגם אצלם ישנם חכמות אלו.
+ויתירה מזו: יתכן שאליבא דאמת "חכמה" זו שבידי האומות היא אותה החכמה שאצל ישראל, ועד שאפשר לסמוך על מסקנת חכמי האומות להלכה למעשה, וכמ"ש הרמב"ם[ftnref\_1669\_60] לענין חכמת
+
+## 196
+
+התקופות כו', דהדברים שיש עליהם "ראיות ברורות. . שאין בהם דופי ואי אפשר לאדם להרהר אחריהם אין חוש­שין למחבר בין שחברו אותם נביאים בין שחברו אותם האומות", וכן ציוותה התורה[ftnref\_1670\_61] "ורפא ירפא" וסומכין על רופא מומחה לרבים גם אינו יהודי בדיני פקו"נ לדחות כל התורה כולה[ftnref\_1671\_62], ועוד —
+בכ"ז אין בנ"י זקוקים כלל (בשנים כתיקונם) לחכמי האומות אלא הכל בא מן התורה עצמה (ועכ"פ מחכמי ישר­אל)[ftnref\_1672\_63], כי גם בידיעות אלו יש "הבדלה" בין ישראל לעמים. כלומר: ההבדל בין חכמות אלו כפי שהם בתורה לגבי ה­חכמות כפי שהם באומות אינו רק ב­מקורן (אם מקורן היא התורה, או שכל האדם) אלא גם בעצם הגישה לענין החכמה והידיעה ותכליתן[ftnref\_1673\_64], ובלשון רז"ל[ftnref\_1674\_65] "יש חכמה בגוים תאמן. . יש תורה בגוים אל תאמן".
+והביאור:
+"תורה" היא לשון הוראה[ftnref\_1675\_66], כלומר ענינה של תורה הוא לא רק להסביר האמת שבכל דבר ודבר (תורת אמת), אלא להוציא את המסקנא וההוראה ל­מעשה, להורות לאדם את המעשה אשר יעשון כו', וכמחז"ל[ftnref\_1676\_67] גדול תלמוד ש­מביא לידי מעשה, שה"גדלות" של ת"ת היא בזה[ftnref\_1677\_68] שמביא לידי מעשה.
+משא"כ "חכמה" (סתם) — הנמצאת גם אצל האומות — אין ענינה להורות לה­אדם את המעשה אשר יעשון כו'[ftnref\_1678\_69], כ"א רק לבאר ולהסביר את הענין כשל­עצמו[ftnref\_1679\_70], ואין ענינה בירור בגדרי טוב או רע.
+ומטעם זה, התואר ד"לחם" ומזון יתכן רק בנוגע לחכמת התורה. כי כמו שה­לחם הגשמי שנכנס למעיו של אדם, הרי ע"י שנהפך שם להיות דם ובשר כבשרו, ה"ה מחי' את הגוף — כך הוא בענין החכמה, שהתואר "לחם" חל רק על חכמה זו שאינה מוגבלת רק לשכלו של האדם, אלא ענינה הוא "להזין" את ה­אדם. וזהו ענין התורה, שאינה רק חכמה
+
+## 197
+
+לחוד, אלא היא הוראה המשפיעה ופו­עלת בכל חלקי הנפש שהנהגתם תהי' בהתאם להוראת התורה.
+וכ"ה בענין החכמות השונות הנצרכות להבנת (חלקים מסויימים של) התורה — שאצל איש ישראל, ענינן של חכמות אלו הוא כדי שיביאו לידי הוראה ל­מעשה — לדעת כיצד לקדש החודש ולעבר השנה וכיו"ב.
+ולכן בשנים כתיקונן אין מקום לקבל חכמות אלו מחכמי אומות — מאחר שבעצם גדר הגישה לחכמות אלו יש הבדלה בין ישראל לעמים.
+ורק מצד חושך הגלות נוצר המצב שיש צורך "לשבור בר" מחכמי ה­אומות[ftnref\_1680\_71],
+אבל "באותו הזמן", בבוא משיח צדקנו, שוב יחזרו כל חכמות אלו לחכ­מי ישראל (ולא יצטרכו לחכמי האומות), והידיעה בהן תבוא מן התורה עצמה — כי "תרבה הדעה והחכמה"[ftnref\_1681\_72], ו"יהיו ישראל חכמים גדולים. . כי[ftnref\_1682\_73] מלאה הארץ דעה את ה' כמים לים מכסים"[ftnref\_1683\_74], במהרה בימינו ממש.
+[quotation](משיחות ש"פ מקץ ומוצאי זאת חנוכה תשמ"א) [/quotation]
+
+**English:**
+
+## Sicha 1
+
+## 190
+
+### Sicha 1
+
+A. Regarding the verse, "And Yaakov saw that there was grain in Mitzrayim, and Yaakov said to his sons, 'Why do you show yourselves?'" Rashi explains: "Why do you show yourselves before the children of Yishmael and the children of Esav as if you are satisfied?"—for at that time they still had grain.
+
+A well-known question is: Why did Rashi specify "before the children of Yishmael and the children of Esav," who did not live in the land of Canaan (as is explicit in the verse, that the children of Yishmael dwelt "from Chavilah to Shur, which is before Mitzrayim," and Esav and his children dwelt in the land of Seir)—rather than saying not to show themselves before their neighbors in the land of Canaan itself?
+
+We find several answers to this in the commentaries, but they all seem forced. For example:
+
+1) The Ramban explains in his commentary: "Perhaps the children of Yishmael and the children of Esav were coming from their own land to Yosef to buy grain, and they were passing through the land of Canaan. He told them not to show themselves as satisfied before them, lest they suspect that Yaakov had grain and they would come to him to eat bread in his house."
+
+However, the Mizrachi already questioned this: "The land of Edom and the land of Mitzrayim are both to the south of the land of Canaan... and one coming from the land of Edom to the land of Mitzrayim does not need to pass through the land of Canaan."
+
+Furthermore, and most importantly: This explanation of the Ramban only resolves why there was a concern regarding the distant children of Yishmael and Esav, but the main question remains: Why did Rashi specify "before the children of Yishmael and the children of Esav" (thereby excluding other nations), instead of using a general, neutral expression like "before the nations" (or as the Rashbam says, "before the people")—which would include everyone?
+
+2) The Mizrachi explains that he did not mention the people of the land of Canaan because "all the people of the land of Canaan had grain just like them," whereas "the children of Esav and Yishmael, who dwelt around the land of Canaan, did not have grain like the people of Canaan."
+
+But this is also difficult (as other commentators have noted): The plain meaning of the previous verse, "And the famine was in all the lands," as well as what is stated later when the sons of Yaakov went to Mitzrayim, "And they came... among those who came, for the famine was in the land of Canaan," implies that at the time Yaakov said "Why do you show yourselves," there was a famine in the land of Canaan, and the people of Canaan were coming to Mitzrayim to buy grain.
+
+Moreover: It still does not explain (as the Maharsha asked) why Rashi specifically mentioned the children of Yishmael and Esav, and not "Ammon and Moav, who were also neighbors of the land of Canaan"? And the main point (as above): Why did Rashi need to list specific nations at all, instead of writing simply "before the nations" or the like?
+
+3) The Gur Aryeh writes that "since Esav and Yishmael are your brothers, they will say to you, 'Let your brother live with you,' and therefore they were afraid of Esav and Yishmael, but not of the people of Canaan."
+
+But this reasoning is also questionable according to the plain meaning of the text (in addition to the far-fetched nature of saying that the children of Yishmael and Esav would come to demand food from Yaakov)—for we see tangibly that a person worries more about neighbors who are not his relatives than about relatives who are in another country.
+
+4) The Kli Yakar explains that he mentioned the children of Yishmael and Esav "because both of them believe that Yitzchak stole the success of Yishmael and Yaakov stole the success of Esav through manipulation" (because Yaakov took his blessings by deceit), and therefore they are more jealous of Yisrael than all other nations, and for this reason Yaakov was concerned specifically about the jealousy of the children of Yishmael and Esav.
+
+But this, too, is not understood: Even if we were to say that the children of Yishmael and Esav had a greater measure of jealousy than other nations, it is still obvious that the people of Canaan were also jealous of Yaakov and his sons when they saw that they were satisfied while they were hungry [similar to what we find earlier regarding Yitzchak, that when Hashem blessed him and he succeeded in the land of the Pelishtim during a year of famine to the point that he had "flocks of sheep... and much labor," the result was that "the Pelishtim envied him."].
+
+Since this is so, the main question remains: Why did Rashi specify "before the children of Yishmael and the children of Esav"—meaning that the concern is only regarding these nations—and not regarding his neighbors in the land of Canaan?
+
+B. This can be understood by prefacing a few points of precision in Rashi’s language:
+
+1) Seemingly, Rashi contradicts himself. At first, he writes, "Why do you show yourselves... as if you are satisfied," which implies that they were not actually satisfied and only made themselves appear as if they were—yet he continues, "for at that time they still had grain"?
+
+Therefore, we must say that Rashi’s intent in "as if you are satisfied" is that the sons of Yaakov showed themselves as if they had a large amount of grain that would suffice to sustain them for a long time—while in truth, they only had grain "at that time" [meaning only for that moment, and as is understood from the continuation of the parsha, that "they finished eating the grain which they had brought from Mitzrayim" and were forced to go down to Mitzrayim again to buy food]—and regarding this, Yaakov warned them, "Why do you show yourselves?"
+
+But it is still puzzling: Why would the sons of Yaakov behave in such a way, showing themselves as if they were satisfied more than the amount of grain they actually possessed? And even if there is some reason for such behavior—how does Rashi know this? Could we not simply learn that Yaakov warned them "Why do you show yourselves" regarding the satisfaction of that very moment?
+
+2) Rashi’s source is in the Gemara Taanis—and the language there is: Yaakov said to his sons, "Do not show yourselves when you are satisfied, neither before Esav nor before Yishmael, so that they will not be jealous of you."
+
+One must understand the reason for the changes in Rashi’s language:
+(a) In the Gemara, Esav precedes Yishmael, while Rashi reverses the order—"the children of Yishmael and the children of Esav."
+(b) Rashi omits the conclusion of the Chazal, "so that they will not be jealous of you."
+
+C. It can be said that these questions resolve one another:
+
+According to the simple meaning, the concern of "Why do you show yourselves" is not because of the matter of jealousy. Since Yaakov and his sons did not have much grain, but only [enough] "at that time" (as above), there is no basis for jealousy on the part of the nations (and this is not similar to the great success of Yitzchak, which was in the manner of "And the man became great... and he grew more and more... and he had... much labor");
+
+Rather, the concern of "Why do you show yourselves" is (not about the actual success of the sons of Yaakov, that they had grain during the famine, but) only about the fact that they showed themselves as if they were satisfied. And this concern of "Why do you show yourselves" is a specific matter that applies only to the children of Yishmael and the children of Esav (as will be explained below).
+
+This is also the reason for the change in order: In the Gemara, Esav precedes Yishmael, while Rashi reverses their order. According to the Gemara, which explicitly states that the reason for the concern is "so that they will not be jealous of you," it is understood that Yaakov’s primary concern was the jealousy of the children of Esav, his brother, from whom he took the blessings "by deceit"—as is explicit in the verse, "And Esav hated Yaakov because of the blessing..."—and it is simple that the jealousy of the children of Esav was many times greater than the jealousy of the children of Yishmael over the fact that "Yitzchak stole the success of Yishmael." However, according to Rashi, the concern of "Why do you show yourselves" is not related to jealousy (or revenge), and therefore he lists them according to the order of the generations—the children of Yishmael and the children of Esav.
+
+D. Explaining the matter:
+
+We have already found in the Scriptures earlier that there was a state of famine in the land of Canaan in the days of Avraham and in the days of Yitzchak, and both of them left their place because of it—Avraham went down to Mitzrayim to dwell there, and Yitzchak went to Avimelech, king of the Pelishtim, in Gerar (and "it was his intention to go down to Mitzrayim as his father had gone down in the days of the famine," but Hashem commanded him, "Do not go down to Mitzrayim").
+
+The reason Hashem orchestrated it so that they were forced to leave their place is not because they were unworthy, Heaven forbid, of Hashem sustaining them even in the days of the famine—and the proof is that when Yitzchak was in Gerar, despite the fact that "it was a year of famine... the land was hard and the year was hard," Hashem still blessed him with miraculous success, that "he found... a hundredfold... and the man became great... until he became very great"—rather, it must be that their departure from their place was due to peripheral reasons.
+
+As is explicit regarding Avraham, that it was "to test him, whether he would complain about the words of Hashem, who had told him to go to the land of Canaan, and now He was urging him to leave it." And likewise regarding Yitzchak, that the fact that Hashem did not sustain him in his place (but rather he had to go to Gerar) was for a peripheral matter. And perhaps it is similar to the case of Avraham. And there is no need to explain—for it is understood by itself.
+
+From this, one can understand the content of the behavior of the sons of Yaakov, who showed themselves as if they were satisfied:
+
+The sons of Yaakov were strong in their trust that Hashem would not abandon Yaakov and his household in the days of the famine. And seeing that they had grain at a time when all the people of the land of Canaan were hungry due to the lack of grain, it was clear to them that they had merited a Divine blessing (and success) that was above nature (in a way that Hashem would sustain them in their place);
+
+Therefore, even though in reality they only had grain "at that time" (and not a large amount of grain, as above)—nevertheless, there was no doubt in their hearts that in the future, too, Hashem would continue to sustain them in a miraculous way (like Hashem’s conduct with the Patriarchs in general). Therefore, they showed themselves as if they were satisfied (with an abundance of grain), because that is how they felt in their strong trust in Hashem, to the point that the abundant grain that was not yet in their possession was considered in their eyes as if it were already in their possession.
+
+And regarding this behavior, Yaakov argued, "Why do you show yourselves"—"Why do you show yourselves before the children of Yishmael and the children of Esav as if you are satisfied":
+
+Such behavior, to show "yourselves... as if you are satisfied" (and there is no need to go to the land of Mitzrayim to buy grain), can arouse the accusation of the children of Yishmael and the children of Esav—the descendants of Avraham and Yitzchak: How is it possible that Yaakov and his sons sit securely in the land of Canaan during these years of famine? Are they better than their elders, Avraham and Yitzchak, who were forced to leave the land of Canaan in the days of the famine? For the children of Yishmael and the children of Esav did not know the true reason for the departure of Avraham and Yitzchak from their place.
+
+And such an argument has the power to arouse an accusation, etc., until they would be forced to be uprooted from their place.
+
+E. Explaining the matter according to the *Remez* (allusion):
+
+This matter—that in essence, Yisrael does not need to receive their grain from Mitzrayim (which is why the sons of Yaakov were confident that there was no need to buy grain from Mitzrayim)—is derived (like everything else) from the matter as it is in its root in spirituality.
+
+And the explanation:
+
+The reason that the land of Mitzrayim was the source of the abundance of grain and bread for all the lands is because that is how it is in the spirituality of matters, that it was the source of the spiritual "grain."
+
+That is to say: Spiritual "grain" refers to *chochmah* (wisdom). And as we find that the Torah is called by the name "bread," "for just as physical bread nourishes the body when it enters it and becomes close to it, and is transformed there to become blood and flesh of his flesh, and then he lives and exists—so too with the knowledge of Torah and its comprehension in the soul of the person who studies it well with the depth of his intellect, until it is grasped in his intellect and becomes unified with him, and they become one—it becomes food for the soul and life within it, etc." In other words, the intellect of Torah is what is called bread, because the nature of the intellect is that the comprehended object becomes unified with the power of the intellect and they become one, just as physical bread enters the body and becomes blood and flesh of his flesh. And from this, it is understood that something similar is the case, *lehavdil*, in every wisdom and intellect.
+
+And this is the (inner) reason that from all the lands they came to buy grain ("wisdom") from the land of Mitzrayim specifically—because Mitzrayim was the source of "wisdom," as it is stated in the Zohar that "the wisdom of Mitzrayim was greater than all the world."
+
+However, this is true—among the nations of the world. But Bnei Yisrael do not need the wisdom of Mitzrayim at all for the study of wisdom, because even though several matters of Torah are connected to the knowledge of the wisdoms of the world—for example: the mitzvah to calculate the cycles and the constellations for the sanctification of the month and the intercalation of the year, and more—nevertheless, in normal years, the knowledge of these wisdoms comes from the Torah itself (similar to what is recounted in Chazal that Rabbi Yehoshua ben Chananya learned the time of a snake’s gestation from the verse), and at times when knowledge of these wisdoms is required, they are found in their perfection among the sages of Yisrael and in their books, and there is no need to learn them from the sages of the nations. And as the Rambam wrote regarding the calculations of the cycles and the constellations, that in the days of the Prophets, the sages of Yisrael from the tribe of Yissachar composed books on these matters, but they did not reach us.
+
+And this is the inner reason that, in essence, the sons of Yaakov did not need to buy grain in Mitzrayim.
+
+F. According to this, the inner content of Yaakov’s argument, "Why do you show yourselves," is also understood—because this matter, that Yisrael does not need the "wisdom of Mitzrayim" at all, can cause an argument on the part of the nations. For even though the nations also know that Hashem chose us from all the nations and gave us His Torah, and there is a difference between Yisrael and the nations, nevertheless, in the knowledge of the matters of the world—seemingly they are similar to Bnei Yisrael, and they also possess these wisdoms.
+
+And furthermore: It is possible that in truth, this "wisdom" that is in the hands of the nations is the same wisdom that is among Yisrael, to the point that it is possible to rely on the conclusion of the sages of the nations for *halacha lema'aseh*, and as the Rambam wrote regarding the wisdom of the cycles, etc., that matters for which there are "clear proofs... that have no flaw and it is impossible for a person to complain about them, we do not care about the author, whether they were composed by prophets or whether they were composed by the nations," and so too the Torah commanded "he shall surely heal," and we rely on a physician who is an expert for the masses, even if he is not a Jew, in laws of *pikuach nefesh* to override the entire Torah, and more—
+
+Nevertheless, Bnei Yisrael do not need the sages of the nations at all (in normal years), but everything comes from the Torah itself (or at least from the sages of Yisrael), because even in these items of knowledge, there is a "distinction" between Yisrael and the nations. That is to say: The difference between these wisdoms as they are in the Torah versus the wisdoms as they are among the nations is not only in their source (whether their source is the Torah or human intellect), but also in the very approach to the matter of wisdom and knowledge and their purpose, and in the language of Chazal, "If someone says to you, 'There is wisdom among the nations, believe it'... 'There is Torah among the nations, do not believe it.'"
+
+And the explanation:
+
+"Torah" is a term for instruction (*horaa*), meaning that the matter of Torah is not only to explain the truth in every single thing (the Torah of truth), but to extract the conclusion and the instruction for action, to instruct man in the deed that they shall do, etc., and as Chazal say, "Great is study, for it leads to action," that the "greatness" of Torah study is in this—that it leads to action.
+
+Whereas "wisdom" (in general)—which is also found among the nations—its purpose is not to instruct man in the deed that they shall do, etc., but only to clarify and explain the matter as it is in itself, and its purpose is not clarification within the boundaries of good or evil.
+
+And for this reason, the title of "bread" and food is possible only regarding the wisdom of the Torah. For just as physical bread that enters a person’s bowels, by being transformed there into blood and flesh of his flesh, sustains the body—so it is in the matter of wisdom, that the title "bread" applies only to this wisdom which is not limited only to the intellect of man, but its purpose is to "nourish" the person. And this is the matter of the Torah, which is not just wisdom alone, but is an instruction that influences and acts upon all parts of the soul so that their conduct will be in accordance with the instruction of the Torah.
+
+And so it is in the matter of the various wisdoms needed for the understanding of (certain parts of) the Torah—that for a person of Yisrael, the purpose of these wisdoms is so that they will lead to instruction for action—to know how to sanctify the month and intercalate the year, and the like.
+
+And therefore, in normal years, there is no place to receive these wisdoms from the sages of the nations—since in the very definition of the approach to these wisdoms, there is a distinction between Yisrael and the nations.
+
+And only because of the darkness of the *galus* is the situation created where there is a need to "buy grain" from the sages of the nations.
+
+But "at that time," when *Mashiach Tzidkeinu* comes, all these wisdoms will return to the sages of Yisrael (and they will not need the sages of the nations), and the knowledge of them will come from the Torah itself—for "knowledge and wisdom will increase," and "Yisrael will be great sages... for the earth will be full of the knowledge of Hashem as the waters cover the sea," speedily in our days, truly.
+
+(From the *sichos* of *Shabbos Parshas Mikeitz* and *Motzoei Zos Chanukah* 5741)
+
+---
+
+
+## חנוכה
+
+_Section: חנוכה_
+
+**Hebrew:**
+
+## שיחה א
+
+## 204
+
+### שיחה א
+
+א. בענין זמנו של נצחון המלחמה בנס חנוכה מצינו ב' שיטות בראשונים: א) דעת הרמב"ם שהי' בכ"ה בכסלו, וב­לשונו[ftnref\_1729\_1] "וכשגברו ישראל על אויביהם ואבדום בחמשה ועשרים בחודש כסליו הי'[ftnref\_1730\_2] ונכנסו להיכל כו'". ב) דעת המאירי[ftnref\_1731\_3] ש"תגבורת זה הי' בכסלו בכ"ד בו"[ftnref\_1732\_4].
+והנה ידוע שיש ב' דיעות[ftnref\_1733\_5] בנוגע ל­גדרם של ימי חנוכה, אם קבעום רק להלל ולהודאה ולא למשתה ושמחה[ftnref\_1734\_6], או שקבעו אותם אף למשתה ושמחה[ftnref\_1735\_7], ובלשון הרמב"ם[ftnref\_1736\_8] "שמונת ימים האלו שתחלתן (ליל[ftnref\_1737\_9]) חמשה ועשרים בכסליו ימי שמחה[ftnref\_1738\_10] והלל"[ftnref\_1739\_11].
+ולכאורה יש לומר שזה קשור עם הפלוגתא הנ"ל (באיזה יום הי' נצחון ה­מלחמה), ובהקדם משנ"ת במ"א[ftnref\_1740\_12], שה­פלוגתא אי ימי חנוכה הם ימי שמחה, תלוי' בטעם קביעת ימי חנוכה: להדעות שימי חנוכה הם רק ימי הלל והודאה נקבע היו"ט (בעיקר) על נס הנרות, דכיון שזהו (בעיקר) ענין רוחני, לכן גם חגיגת היו"ט היא על ידי הלל והודאה להשם (ענין רוחני); משא"כ לדעת הרמב"ם (עיקר) קביעת ימי חנוכה הוי מפני נצחון המלחמה, ולכן תקנו חכמים שיהיו גם ימי שמחה, שמחה גשמית וגופנית, כמו שנצחון המלחמה הי' הצלה גופנית, וזה
+
+## 205
+
+שנקבעו (גם) להלל והודאה שהוא ענין רוחני, י"ל שזהו ענין נוסף בשביל נס הנרות (ענין רוחני).
+ועפ"ז יש לומר, ששני הענינים שכתב הרמב"ם — (א) שימי חנוכה הם ימי שמחה, (ב) (גם) נצחון המלחמה הי' בכ"ה — שייכים זל"ז, כי לדעתו קביעת היו"ט דחנוכה היא לזכר שני הענינים שאירעו באותו היום; משא"כ הדיעה שעיקר קבי­עת היו"ט דחנוכה (שתחלתו בליל כ"ה) היא מפני נס הנרות ולא בשביל ניצוח המלחמה — י"ל שהיא בהתאם להדיעה שנצחון המלחמה הי' ביום שלפניו (כ"ד בחודש), ובכ"ה בכסלו אירע (רק) נס הנרות.
+ועפ"ז מדוייק לשון המאירי[ftnref\_1731\_3], כש­מבאר תוכן חגיגת הלילה הראשון (שלא הי' בו לכאורה שום נס בהשמן), שכ' "מברכין על הגאולה ועל הודאת מציאת הפך" — והיינו, שלא הסתפק בזה שמבר­כין "על הגאולה" (נצחון המלחמה) אלא מוסיף גם "על הודאת מציאת הפך" — כי מצד הגאולה עצמה היו קובעים את היו"ט ביום כ"ד (יום נצחון המלחמה), ולכן מוסיף שהטעם ליום ראשון דחנוכה הוא גם מצד מציאת הפך (הקשורה עם הדלקת המנורה דליל כ"ה).
+ב. אמנם כד דייקת אין הדברים מוכרחים, שהרי בפורים מצינו במפורש שהיו"ט הוא בשביל נצחון המלחמה, "אשר ישלטו היהודים המה בשונאי­
+הם"[ftnref\_1742\_13], ומ"מ נקבע היו"ט (לא ביום ה­נצחון אלא) ביום המנוחה, "ונוח בארבעה עשר. . בחמשה עשר בו ועשה אותו יום משתה ושמחה"[ftnref\_1743\_14]. וא"כ גם בחנוכה אפ"ל כן, דאף שנצחון המלחמה הי' ביום כ"ד בחודש, מ"מ נקבע היו"ט (על נצחון זה) ביום שלאח"ז, כ"ה בכסלו, שהוא יום המנוחה (וכידוע גם הרמז בשם חנוכ"ה[ftnref\_1744\_15] — "חנו בכ"ה"[ftnref\_1745\_16], היינו שכ"ה הוא יום המנוחה[ftnref\_1746\_17]).
+וכן נקט אדמו"ר הזקן[ftnref\_1747\_18] ד"יו"ט דפסח הוא ביום שנעשה הנס, משא"כ בחנוכה ופורים שהן ביום המנוחה" (וכדלקמן סעיף ד)[ftnref\_1748\_\*17].
+ועפ"ז נמצא, שלדעת הרמב"ם, דס"ל שנצחון המלחמה הי' ביום כ"ה, וס"ל ש­קביעת היו"ט היא על שם נצחון המל­חמה כנ"ל (ולדעת הפר"ח[ftnref\_1749\_19], לשיטת ה­רמב"ם יום ראשון דחנוכה הוא רק ע"ש נצחון המלחמה) — הרי היו"ט דחנוכה הוא (לא ביום המנוחה שלאח"ז, כב­פורים, אלא) ביום הנצחון, כמו בפסח; משא"כ לדעת המאירי שנצחון המלחמה הי' בכ"ד, הרי קביעות היו"ט (שהיא גם על הגאולה) היא ביום המנוחה (כב­פורים).
+ויש לומר שהפלוגתא אם חנוכה הוי ביום המנוחה או ביום הנצחון, תלוי' בהסברת השייכות דנצחון המלחמה לה­יו"ט דחנוכה.
+
+## 206
+
+כלומר: לכו"ע היו"ט דחנוכה שייך הן לנצחון המלחמה והן לנס הנרות, אלא דפליגי אם הנס דנצחון המלחמה אינו אלא הקדמה והכשרה לנס הנרות, שהוא הגמר ושלימות, וזהו סיבת קביעת החג, או שנצחון המלחמה לא נחשב כהקדמה בלבד, אלא דומה בתוקפו לנס הנרות בשייכות לקביעת ימי חנוכה.
+[ולכן להדיעה שנצחון המלחמה הוא רק הקדמה והכשרה, ויו"ט דחנוכה הוא על זה שטהרו את המקדש והדליקו נרות — נס הנרות, הרי ימי חנוכה אינם ימי שמחה, משא"כ לדעת הרמב"ם שנצחון המלחמה שווה בתוקפו בתור סיבת קבי­עת ימי חנוכה, יש בחנוכה שני ענינים, גם "ימי שמחה"].
+ג. והביאור בזה:
+ימים טובים שנקבעו לזכרון על נס שאירע לבנ"י בזמן מסויים, יש בהם ב' אופנים ופרטים: (א) היו"ט נקבע על הצלת וגאולת ישראל, ולא על אופן ה­הצלה והגאולה, (ב) קביעת היו"ט היא לא רק על עצם ההצלה וגאולת ישראל, אלא גם על אופן הגאולה, שהיתה באופן מיוחד.
+ויש לומר, שלדעת הרמב"ם, זהו אחד החילוקים בין פורים וחנוכה, דאף שב­שניהם היתה הצלת וגאולת ישראל מיד אויביהם ושונאיהם [ואדרבה, עיקר הצלת וגאולת ישראל בגלוי היתה בימי הפורים, שאז ניצלו מגזירת המן ש"בקש להשמיד להרוג ולאבד את כל היהודים מנער ועד זקן טף ונשים ביום אחד"[ftnref\_1750\_20]], הרי בפורים עיקר קביעת היו"ט הוא על התוצאה, הצלת וגאולת ישראל[ftnref\_1751\_21], וטעם הדבר הוא, כי ההצלה ונצחון המלחמה גופא לא היו ע"י נס גלוי, אלא ע"י נס המלובש בדרכי הטבע; משא"כ בחנוכה, שקביעת החג היא לא רק על התוצאה, ישועת והצלת ישראל, כ"א גם על אופן הנס, "ועל הנסים כו' מסרת גבורים ביד חלשים ורבים ביד מעטים"[ftnref\_1750\_20].
+ולכן בפורים נחשב נצחון המלחמה רק כעין הכשרה והקדמה להעיקר — ישועת ישראל, ולכן נקבע החג לא ביום שבו הי' נצחון המלחמה אלא ביום ה­מנוחה שבו מודגשת הצלת ישראל; משא"כ בחנוכה שגם הנצחון הוא מעצם הנס ושייך להיו"ט, הרי קביעת היו"ט היא באותו יום שהי' הנצחון.
+ד. והנה הובא לעיל שרבינו הזקן נקט כשיטת המאירי[ftnref\_1753\_22], ומבאר שחנוכה אינו כמו פסח, שחנוכה נקבע ביום המנו­חה (והנצחון הי' ביום שלפניו), משא"כ בפסח שהיו"ט נקבע ביום שנעשה הנס [וכמו שמבאר שם הטעם ע"פ פנימיות הענינים[ftnref\_1754\_23], דכאשר הנצחון והיו"ט הם בשני ימים ה"ז מורה שנצחון האויב הוא ענין נפרד מהיו"ט עצמו (ורק הכנה אליו), משא"כ בפסח שהי' הנס על ידי שנגלה עליהם ממה"מ הקב"ה בכבודו ובעצמו, שלמעלה מחילוקי דרגות, לכן היו שני הדברים ביחד, בלי התחלקות בין נגוף למצרים ורפוא לישראל].
+אבל י"ל, שתוכן ביאור אדמו"ר הזקן מתאים גם לשיטת הרמב"ם (שנצחון ה­
+
+## 207
+
+מלחמה הי' בכ"ה), כי אינו דומה חנוכה לפסח, שבפסח היו שני הדברים — נגוף למצרים (מכת בכורות) ורפוא (גאולה) לישראל — בנושא אחד, כמ"ש אדמו"ר הזקן[ftnref\_1754\_23] (ומוסיף "ומ"ש בספרים שזה הי' קודם חצות וזה לאחר חצות אינו אלא הכל בזמן אחד"); משא"כ בחנוכה, אף שגם נצחון המלחמה הוי בכלל הנס ש­עליו נקבע היו"ט, מ"מ, עיקר הנס דחנו­כה הי' נס השמן והנרות, שבזה הי' נס גלוי ממש, ש"לא[ftnref\_1731\_3] הי' בו אלא להדליק יום אחד נעשה בו נס והדליקו ממנו שמונה ימים", ועוד זאת, שנס הנרות מורה על הצלת דת ישראל (היפך ביטול דתם וכו'[ftnref\_1757\_24]) — וא"כ היו כאן ב' נסים שונים שארעו בשני זמנים שונים, נצחון המלחמה ונס פך השמן (שהוא שלימות הצלת וגאולת ישראל).
+[ותוכן פלוגתת הרמב"ם והמאירי אי נצחון המלחמה בחנוכה הי' בכ"ד או בכ"ה י"ל: להמאירי, אף שביחס לפורים נחשב נצחון המלחמה דחנוכה בכלל הנס, מ"מ, עיקר הנצחון דחנוכה הוא נצחון הדת (ובפרט שנצחון המלחמה לא הי' נס גלוי כנס פך השמן, שהרי הי' לנצחון זה אחיזה בטבע), והנס דנצחון המלחמה נחשב רק כהכשרה להעיקר[ftnref\_1758\_25], ולכן ס"ל דגם בחנוכה היו"ט הוא (לא ביום נצחון המלחמה, כ"א) ביום המנוחה, כמו בפורים [ועפ"ז מובן מה שמדייק המאירי שבלילה הראשון "מברכין על הגאולה[ftnref\_1759\_26] ועל הודאת מציאת הפך" כנ"ל]; משא"כ הרמב"ם ס"ל, שגם נצחון המלחמה (וההצלה הגשמית) הוא ענין עיקרי בחנוכה (אף שגם הרמב"ם ס"ל שאחד הדברים העיקריים שבנצחון ד­חנוכה הוא הצלת הדת)].
+ולפי זה יוצא, שלדעת הרמב"ם — ג' חלוקות בדבר: בפורים קביעת היו"ט אינה ביום הנצחון אלא ביום המנוחה; בחנוכה קביעת היו"ט היא ביום שהיו בו ב' הדברים — נצחון המלחמה וגם הנס דפך השמן, שהם ב' דברים שונים שהיו בשני זמנים; ובפסח היו שני הדברים (נגוף למצרים ורפוא לישראל) בנושא אחד.
+ולפי המבואר בכ"מ (בפנימיות התו­רה) שגדרו של יום טוב הוא, דהוי יום מיוחד שבו היתה (וישנה) התגלות והמ­שכת קדושה (נוספת) בעולם, י"ל, ש­שלשת אופנים אלה מורים על ג' אופנים בגילוי קדושתו של הקב"ה בעולם:
+בפורים היתה התגלות הקדושה בעי­קר בהצלת וישועת ישראל, ואיבוד המן ונצחון המלחמה הם כעין הקדמה להת­גלות זו; בחנוכה גם בנצחון המלחמה הי' התגלות הקדושה, אבל דרגת הקדו­שה אינה בשווה להתגלות הקדושה שב­נס פך השמן; ובפסח היתה התגלות קדו­שה אלקית נעלית כ"כ שגילוי' הי' בב' הענינים בשווה, שגם ב"נגוף למצרים", מכת בכורות, היתה התגלות קדושה השווה לקדושה שמתגלית ע"י גאולת ישראל.
+ה. והנה כל הדברים הללו ישנם גם בעבודת האדם, שסדר עבודתו הוא "סור מרע ועשה טוב"[ftnref\_1760\_27], ובעבודה זו דסור מרע (נצחון המלחמה) שבכאו"א מישראל ישנם ג' אופנים:
+
+## 208
+
+א) "סור מרע" שענינו ביעור הרע מקרבו שיהא כלי נקי וראוי להשראת השכינה, שבאופן זה הסור מרע אינו אלא הכשר והכנה לעיקר עבודתו שהוא קיום מצות ה' — עשה טוב, "ע"ד משל המלך שרוצה להיות לו דירה בבית חדש אזי מתחלה צריך לנקותה מכל טינוף ולכלוך"[ftnref\_1761\_28], כן בעבודת האדם שתחלה צריך "לבער הרע ובערת הרע מקרבך[ftnref\_1762\_29] שלא יהי' שום לכלוך וטינוף ח"ו"[ftnref\_1763\_30] שהו"ע סו"מ, ואח"כ אפשר להיות קיום מ"ע שהוא "עד"מ תיקון וסידור כלים נאים שעי"ז תהי' הדירה בתח­תונים" ע"י המשכת קדושתו ית' בעולם[ftnref\_1763\_30].
+ב) למעלה מזה הוא כאשר האדם אינו צריך לנקיון מטינוף ולכלוך, להיותו זהיר בקיום מצות ל"ת, ובמילא ה"ה כלי נקי — דמ"מ צריך להיות אצלו העבודה דסור מרע, שהו"ע של אתכפיא וקבלת עול, שכופה א"ע ומבטל א"ע לקיים רצון הבורא. כי ע"י זה שהאדם הוא יש ומציאות בפ"ע, הרי בזה גופא הוא סותר כביכול להשראת השכינה, שאין הקב"ה שורה אלא על דבר שבטל אצלו ית'[ftnref\_1765\_31] ודוקא כאשר האדם כופה ומבטל א"ע, דהיינו תנועה דסו"מ, אפשר להיות בו השראת הקדושה[ftnref\_1766\_32], וע"י אופן זה העבו­דה ד"סור מרע" אינה רק הכשרה והקד­מה, אלא זהו חלק מהשראת קדושתו ית'.
+ג) למעלה מזה הוא אופן ששניהם שווים:
+גם כשהאדם נקי מכל לכלוך, והענין ד"סור מרע" אצלו הוא באופן של כפי' וביטול, שעי"ז אינו בבחי' יש ומציאות בפ"ע, מ"מ ישנו עדיין הפרש אצלו בין העבודה דסו"מ והעבודה דוע"ט, שבעשה טוב נרגש אצלו שמקיים רצון העליון שבזה ממשיך עליו קדושתו ית', ובסו"מ מרגיש שלילת המניעה, שכופה ומבטל א"ע כי אם לאו ה"ז סתירה להשראת השכינה;
+אבל יש מדריגה עליונה יותר בעבו­דה, שביטולו לרצון העליון הוא מוחלט עד כ"כ שאינו מרגיש את החילוק בין הדרכים שעל ידם מביא השראת ה­שכינה, אם זהו ע"י מניעת השלילה או ע"י המשכת הקדושה, להיותו בטל ל­רצון העליון ומקיימו בלי שום חשבונות (וע"ד מאמר ר' עקיבא[ftnref\_1767\_33] שישראל אמרו בשעת מ"ת על הן הן ועל לאו הן, שבין במ"ע בין במל"ת הי' נרגש אצלם ציווי (הכללי) של הקב"ה), ודוקא ע"י ביטול מוחלט זה שלמעלה מחשבון, המשכת הקדושה עי"ז היא בתכלית השלימות[ftnref\_1768\_34].
+[quotation]משיחות ש"פ וישב, ערב חנוכה, תשכ"ו, תשמ"ו) [/quotation]
+
+**English:**
+
+## Sicha 1
+
+### 204
+
+1. Regarding the timing of the military victory in the miracle of Chanukah, we find two opinions among the Rishonim: 
+a) The opinion of the Rambam is that it occurred on the 25th of Kislev. In his words: "And when the Jewish people overcame their enemies and destroyed them on the twenty-fifth of the month of Kislev, they entered the Sanctuary, etc."
+b) The opinion of the Meiri is that "this victory occurred on the 24th of Kislev."
+
+Now, it is well known that there are two opinions regarding the definition of the days of Chanukah: whether they were established only for Hallel and thanksgiving and not for feasting and rejoicing, or whether they were established even for feasting and rejoicing. In the words of the Rambam: "These eight days, beginning on the twenty-fifth of Kislev, are days of rejoicing and Hallel."
+
+Seemingly, it can be said that this is connected to the aforementioned dispute (as to which day the military victory occurred). This can be understood by prefacing what is explained elsewhere: that the dispute over whether the days of Chanukah are days of rejoicing depends on the reason for establishing the days of Chanukah. According to the opinions that the days of Chanukah are only days of Hallel and thanksgiving, the Yom Tov was established (primarily) because of the miracle of the oil. Since this is (primarily) a spiritual matter, the celebration of the Yom Tov is also through Hallel and thanksgiving to Hashem (a spiritual matter). This is in contrast to the opinion of the Rambam, where the (primary) establishment of the days of Chanukah is due to the military victory. Therefore, the Sages ordained that they should also be days of rejoicing—physical and bodily rejoicing—just as the military victory was a physical salvation. And this
+
+## 205
+
+that they were (also) established for Hallel and thanksgiving, which is a spiritual matter, can be said to be an additional element due to the miracle of the oil (a spiritual matter).
+
+Based on this, it can be said that the two matters written by the Rambam—(a) that the days of Chanukah are days of rejoicing, and (b) that the military victory (also) occurred on the 25th—are related to one another. For according to him, the establishment of the Yom Tov of Chanukah is in memory of both matters that occurred on that day. This is in contrast to the opinion that the primary establishment of the Yom Tov of Chanukah (which begins on the night of the 25th) is because of the miracle of the oil and not because of the military victory—it can be said that this is in accordance with the opinion that the military victory occurred on the preceding day (the 24th of the month), and on the 25th of Kislev (only) the miracle of the oil occurred.
+
+Accordingly, the language of the Meiri is precise when he explains the content of the celebration of the first night (in which, seemingly, there was no miracle regarding the oil). He writes: "They recite a blessing over the redemption and over the thanksgiving for the finding of the flask." That is to say, he did not suffice with the blessing "over the redemption" (the military victory), but added "over the thanksgiving for the finding of the flask." For, from the perspective of the redemption itself, they would have established the Yom Tov on the 24th (the day of the military victory). Therefore, he adds that the reason for the first day of Chanukah is also due to the finding of the flask (which is connected to the lighting of the Menorah on the night of the 25th).
+
+2. However, when you examine it closely, these things are not definitive. For in Purim, we find explicitly that the Yom Tov is because of the military victory, "that the Jews ruled over those who hated them," and yet the Yom Tov was established (not on the day of the victory, but) on the day of rest: "And rested on the fourteenth... on the fifteenth of it, and made it a day of feasting and rejoicing." If so, we can say the same regarding Chanukah: even though the military victory was on the 24th of the month, the Yom Tov (for this victory) was established on the following day, the 25th of Kislev, which is the day of rest (as is known, there is also a hint in the name *Chanukah*—*Chanu b'Chaf-Hei*, "they rested on the 25th," meaning that the 25th is the day of rest).
+
+Similarly, the Alter Rebbe held that "the Yom Tov of Pesach is on the day the miracle occurred, unlike Chanukah and Purim, which are on the day of rest" (as will be explained in section 4).
+
+Based on this, it follows that according to the Rambam, who holds that the military victory was on the 25th, and who holds that the establishment of the Yom Tov is in the name of the military victory as mentioned above (and according to the Pri Chadash, according to the Rambam, the first day of Chanukah is only in the name of the military victory)—then the Yom Tov of Chanukah is (not on the day of rest that follows, as in Purim, but) on the day of the victory, like in Pesach. This is in contrast to the opinion of the Meiri, that the military victory was on the 24th, so the establishment of the Yom Tov (which is also for the redemption) is on the day of rest (as in Purim).
+
+It can be said that the dispute over whether Chanukah is on the day of rest or on the day of victory depends on the explanation of the connection of the military victory to the Yom Tov of Chanukah.
+
+## 206
+
+Meaning: Everyone agrees that the Yom Tov of Chanukah relates both to the military victory and to the miracle of the oil. They only disagree as to whether the miracle of the military victory is merely a preface and preparation for the miracle of the oil—which is the conclusion and perfection, and is the reason for the establishment of the holiday—or whether the military victory is not considered merely a preface, but is equal in its strength to the miracle of the oil in its connection to the establishment of the days of Chanukah.
+
+[And therefore, according to the opinion that the military victory is only a preface and preparation, and the Yom Tov of Chanukah is because they purified the Sanctuary and lit the candles—the miracle of the oil—then the days of Chanukah are not days of rejoicing. This is in contrast to the opinion of the Rambam, that the military victory is equal in its strength as a reason for the establishment of the days of Chanukah; thus, there are two matters in Chanukah, including "days of rejoicing."]
+
+3. The explanation of this:
+Yomim Tovim that were established in memory of a miracle that occurred to the Jewish people at a certain time have two modes and details: (a) The Yom Tov is established for the salvation and redemption of Israel, and not for the manner of the salvation and redemption. (b) The establishment of the Yom Tov is not only for the essence of the salvation and redemption of Israel, but also for the manner of the redemption, which was in a special way.
+
+It can be said that according to the Rambam, this is one of the differences between Purim and Chanukah. For although in both there was the salvation and redemption of Israel from the hands of their enemies and haters [and on the contrary, the primary salvation and redemption of Israel in a revealed way was in the days of Purim, when they were saved from the decree of Haman who "sought to destroy, kill, and annihilate all the Jews, from young to old, children and women, in one day"], in Purim the primary establishment of the Yom Tov is for the result, the salvation and redemption of Israel. The reason for this is that the salvation and the military victory themselves were not through a revealed miracle, but through a miracle clothed in the ways of nature. This is in contrast to Chanukah, where the establishment of the holiday is not only for the result, the salvation and rescue of Israel, but also for the manner of the miracle, "And for the miracles... You delivered the strong into the hands of the weak, and the many into the hands of the few."
+
+Therefore, in Purim, the military victory is considered only as a kind of preparation and preface to the main point—the salvation of Israel—and therefore the holiday was established not on the day the military victory occurred, but on the day of rest, in which the salvation of Israel is emphasized. This is in contrast to Chanukah, where the victory itself is also of the essence of the miracle and relates to the Yom Tov; therefore, the establishment of the Yom Tov is on the same day that the victory occurred.
+
+4. Now, it was mentioned above that the Alter Rebbe held according to the opinion of the Meiri, and explains that Chanukah is not like Pesach, for Chanukah was established on the day of rest (and the victory was on the day before), unlike Pesach, where the Yom Tov was established on the day the miracle occurred [as he explains there the reason according to the inner dimensions of the matters, that when the victory and the Yom Tov are on two different days, it indicates that the victory over the enemy is a matter separate from the Yom Tov itself (and only a preparation for it). This is in contrast to Pesach, where the miracle occurred through the Holy One, blessed be He, revealing Himself to them in His glory and essence, which is above different levels; therefore, both things were together, without a division between striking the Egyptians and healing the Israelites].
+
+However, it can be said that the content of the Alter Rebbe's explanation also fits the opinion of the Rambam (that the military victory was on the 25th). For Chanukah is not comparable to Pesach. In Pesach, both things—striking the Egyptians (the plague of the firstborn) and healing (redemption) for Israel—were in one subject, as the Alter Rebbe writes (and he adds, "and what is written in the books that this was before midnight and this was after midnight is all in one time"). This is in contrast to Chanukah: even though the military victory is also included in the miracle for which the Yom Tov was established, nevertheless, the primary miracle of Chanukah was the miracle of the oil and the candles, in which there was a truly revealed miracle, that "there was only enough to light for one day, yet a miracle was performed with it and they lit for eight days." Furthermore, the miracle of the candles indicates the salvation of the religion of Israel (the opposite of the nullification of their religion, etc.). If so, there were two different miracles that occurred at two different times: the military victory and the miracle of the flask of oil (which is the perfection of the salvation and redemption of Israel).
+
+[And the content of the dispute between the Rambam and the Meiri as to whether the military victory in Chanukah was on the 24th or the 25th can be said to be: According to the Meiri, although in relation to Purim the military victory of Chanukah is considered part of the miracle, nevertheless, the primary victory of Chanukah is the victory of the religion (especially since the military victory was not a revealed miracle like the miracle of the flask of oil, for this victory had a foothold in nature), and the miracle of the military victory is considered only as a preparation for the main point. Therefore, he holds that even in Chanukah the Yom Tov is (not on the day of the military victory, but) on the day of rest, like in Purim [and based on this, it is understood why the Meiri is precise that on the first night "they recite a blessing over the redemption and over the thanksgiving for the finding of the flask" as mentioned above]. This is in contrast to the Rambam, who holds that the military victory (and the physical salvation) is also a primary matter in Chanukah (even though the Rambam also holds that one of the primary things in the victory of Chanukah is the salvation of the religion).]
+
+According to this, it emerges that according to the Rambam, there are three distinctions: In Purim, the establishment of the Yom Tov is not on the day of victory but on the day of rest; in Chanukah, the establishment of the Yom Tov is on the day that had both things—the military victory and also the miracle of the flask of oil, which are two different things that happened at two different times; and in Pesach, both things (striking the Egyptians and healing for Israel) were in one subject.
+
+And according to what is explained in many places (in the inner dimensions of Torah) that the definition of a Yom Tov is that it is a special day in which there was (and is) a revelation and drawing down of (additional) holiness into the world, it can be said that these three modes indicate three modes in the revelation of the holiness of the Holy One, blessed be He, in the world:
+
+In Purim, the revelation of holiness was primarily in the salvation and rescue of Israel, and the destruction of Haman and the military victory are like a preface to this revelation; in Chanukah, there was also a revelation of holiness in the military victory, but the level of holiness is not equal to the revelation of holiness in the miracle of the flask of oil; and in Pesach, there was a revelation of Divine holiness so lofty that its revelation was in both matters equally, such that even in "striking the Egyptians," the plague of the firstborn, there was a revelation of holiness equal to the holiness revealed through the redemption of Israel.
+
+5. Now, all these things are also present in the *avodah* of man, whose order of *avodah* is "turn from evil and do good." In this *avodah* of turning from evil (the military victory) that is in every Jew, there are three modes:
+
+## 208
+
+a) "Turning from evil," the meaning of which is to purge the evil from within oneself so that one becomes a clean vessel worthy of the indwelling of the *Shechinah*. In this mode, the "turning from evil" is nothing more than a preparation and readiness for the primary *avodah*, which is the fulfillment of the *mitzvos* of Hashem—"doing good." "Like the parable of a king who wants to have a dwelling in a new house; first he must clean it of all filth and dirt." So too in the *avodah* of man, first he must "purge the evil and purge the evil from your midst so that there will be no dirt or filth, G-d forbid," which is the matter of turning from evil. Afterward, it is possible to have the fulfillment of the *mitzvos*, which is "like the parable of arranging and setting up fine vessels, through which the dwelling in the lower worlds will be achieved" by drawing down His holiness into the world.
+
+b) Higher than this is when a person does not need cleaning from filth and dirt, because he is careful in the fulfillment of the negative *mitzvos*, and consequently he is a clean vessel. Nevertheless, he still must have the *avodah* of turning from evil, which is the matter of *iskafya* and accepting the yoke, where he forces himself and nullifies himself to fulfill the will of the Creator. For through the fact that a person is a *yesh* and an independent existence, in that very fact he is, as it were, contradicting the indwelling of the *Shechinah*, for the Holy One, blessed be He, only dwells upon something that is nullified to Him. And specifically when a person forces and nullifies himself—which is the movement of turning from evil—it is possible for there to be an indwelling of holiness. Through this mode, the *avodah* of "turning from evil" is not just a preparation and preface, but is a part of the indwelling of His holiness.
+
+c) Higher than this is the mode where both are equal:
+Even when a person is clean of all dirt, and the matter of "turning from evil" for him is in a way of coercion and nullification—through which he is not in a state of *yesh* and independent existence—there is still a difference for him between the *avodah* of turning from evil and the *avodah* of doing good. In doing good, he feels that he is fulfilling the Supreme Will, through which he draws down His holiness upon himself; and in turning from evil, he feels the negation of the obstacle, that he is forcing and nullifying himself because otherwise it would be a contradiction to the indwelling of the *Shechinah*.
+But there is a higher level in *avodah*, where his nullification to the Supreme Will is so absolute that he does not feel the difference between the ways through which he brings about the indwelling of the *Shechinah*—whether it is through preventing the negative or through drawing down holiness—because he is nullified to the Supreme Will and fulfills it without any calculations (similar to the statement of Rabbi Akiva, that the Jewish people said at the time of the Giving of the Torah, "on the 'yes' we say 'yes,' and on the 'no' we say 'no'," meaning that whether in a positive *mitzvah* or a negative *mitzvah*, they felt the (general) command of the Holy One, blessed be He). And specifically through this absolute nullification that is above calculation, the drawing down of holiness is in the ultimate perfection.
+
+---
+
+_Section: חנוכה_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 209
+
+### שיחה ב
+
+א. בתפלת "ועל הניסים" שאומרים בימי חנוכה "מסרת גבורים ביד חלשים ורבים ביד מעטים וטמאים ביד טהורים ורשעים ביד צדיקים וזדים ביד עוסקי תורתך"[ftnref\_1769\_1]. וכבר תמהו מפרשי התפלות, ששלשת הסוגים האחרונים ("וטמאים כו' ורשעים כו' וזדים כו'") "לכאורה[ftnref\_1770\_2] אין זה מפעולת הנס, דטומאה וטהרה ורשעים וצדיקים וזדים ועוסקי תורה אינם מ­עניני גבורה וחולשה לחשוב התגברות הטהורים על הטמאים לנס".
+יש שתירצו[ftnref\_1771\_3] ע"פ מאמר חז"ל[ftnref\_1772\_4] "מאן חולין רבנן" ("דאפילו[ftnref\_1773\_5] בבריאותן הן תשושי כח מפני שהתורה מתשת כחם"[ftnref\_1774\_6]), ונמצא ש"יש גם בענינים אלו גבורה וחולשה וגברו מכח הנס החלשים על הגבורים" [ולפ"ז אין כאן אלא תוספת ביאור על לפנ"ז "גבורים ביד חלשים", שזה שבנ"י היו חלשים אינו מפני שכן הי' טבע גופם, אלא להיותם "עוסקי תו­רתך", שהתורה מתשת כחו של אדם].
+אמנם (נוסף לזה שלפי זה אין זה מדגיש גודל הנס, ולמאי נפק"מ מהי סיבת החולשה והגבורה, הרי גם בגוף הענין) לפי פשוטו קשה לפרש כן, כי ענין זה שייך רק לאלה שתורתם אומנתם עד ש"התורה מתשת כחם", כנ"ל, וא"כ, מלבד זאת שעדיין אינו מבואר טעם אמירת "טמאים ביד טהורים ורשעים ב­יד צדיקים", שלא מודגשת בהם מעלתם בתור לומדי תורה[ftnref\_1775\_7] — הרי גם בנוגע ל­"זדים ביד עוסקי תורתך" קשה לפרש כן, כי דוחק לומר ש(כל) אנשי הצבא של מתתיהו ובניו היו "רבנן" ש"תורתם אומנתם"!
+[ובפרט ע"פ מחז"ל[ftnref\_1776\_8] ש"אילמלא דוד (שהי' עוסק בתורה[ftnref\_1777\_9]) לא עשה יואב מל­חמה" ("זכותו של דוד (שעסק בתורה) עומדת לו ליואב במלחמותיו של דוד"[ftnref\_1777\_9]), שמזה מובן, שבעת המלחמה — על תל­מידי חכמים ("רבנן") החוב להתחזק עוד יותר בלימוד התורה, כדי שזכותם תגן על אנשי הצבא הנלחמים, ואדרבה, דוקא בזה תלוי נצחון המלחמה].
+ולכאורה צ"ל, שאין הפירוש ב"זדים ביד עוסקי תורתך", שכל אנשי הצבא היו "רבנן" ש"תורתם אומנתם", אלא ש­מנהיגי המנצחים במלחמה היו "עוסקי תורתך".
+ויותר נ"ל, ש"עוסקי תורתך" כאן היינו (לא רק אלו ש"תורתם אומנתם",
+
+## 210
+
+אלא) כל לומדי תורה (גם בעלי עסק הקובעים עתים לתורה), שכולם נקראים "עוסקי תורתך". וכדמוכח מזה שכאו"א מישראל חייב בברכות התורה, כולל הברכה "לעסוק[ftnref\_1779\_10] בדברי תורה".
+[ועוד יש לומר, שהלשון "עוסקי תור­תך" (ולא "לומדי תורתך") כאן לא בא להדגיש אופן ההתעסקות בלימוד התו­רה, אלא כולל גם עסק המצוות[ftnref\_1780\_11] שהוא תכלית הלימוד (לימוד המביא לידי מעשה). וזהו שנק' "עוסקי" (לא "לומדי"), כי "לומדי תורתך" היינו אלו הלומדים תורה, שזה שייך לשכלו והבנתו של האדם; משא"כ עסק בתורה[ftnref\_1781\_12] מורה שה­אדם בכל עניניו וכוחותיו עסוק בתורה, והיינו כשלומד ע"מ לעשות, באופן שכל עשיותיו בכל רמ"ח אבריו יהיו ע"פ הוראות התורה.
+ועפ"ז מתורצת בפשיטות קושיית ה­מפרשים[ftnref\_1782\_13] "למה אומר זדים ביד עוסקי תורתך ולא אומר דבר והיפוכו כמו ש­אמר בכל האחרים" — כי לפי הנ"ל גם בבא זו היא "דבר והיפוכו", ד"עוסקי תורתך" הם המקיימים את מצוות התורה, היפך ה"זדים", העוברים בזדון[ftnref\_1783\_14] על ציוויי התורה].
+והדרא קושיא לדוכתה — מהו הנס ב"מסרת. . טמאים ביד טהורים ורשעים ביד צדיקים וזדים ביד עוסקי תורתך"?
+ב. לכאורה י"ל, דמ"ש "וטמאים ביד טהורים כו'" קאי על מ"ש לפנ"ז — "כש­עמדה מלכות יון הרשעה על עמך ישר­אל להשכיחם תורתך ולהעבירם מחוקי רצונך", דהיינו (לא מלחמה כפשוטה, אלא) גזירות על הדת, מלחמה רוחנית; ומזה מובן, שתיאור נצחונם של ישראל שלאח"ז, צריך לכלול לא רק את נצחון מלחמת אנשי הצבא, אלא גם (ואדרבה, בעיקר) את הנצחון הרוחני, התגברות על הגזירות וביטולן. ולכן אומרים "וטמאים ביד טהורים ורשעים ביד צדיקים וזדים ביד עוסקי תורתך", להדגיש ולתאר את נצחונם הרוחני של ישראל (אף ש"אין זה מפעולת הנס").
+אבל לכאורה דוחק לפרש שפרטים
+
+## 211
+
+אלו שאומרים בהמשך ל"ועל הנסים כו'" אינם בכלל הנסים והנפלאות "שעשית לאבותינו בימים ההם".
+ויש לומר הביאור בזה: ידוע מדברי הימים ההם, שאף שהגזירות נגד דת ישראל ("להשכיחם תורתך ולהעבירם מחוקי רצונך") נגזרו ע"י "מלכות יון הרשעה", שהם "גזרו גזירות על ישראל ובטלו דתם ולא הניחו אותם לעסוק ב­תורה ובמצות כו'"[ftnref\_1784\_15], מ"מ היו כו"כ מבנ"י (המתיוונים) שהצטרפו להיוונים (נוסף על אלה שעשו כן מפני האונס), ועד שמיעוט מבנ"י נשארו שלימים בגלוי עם ה' ותורתו.
+ואולי י"ל, שהכוונה בשלשת הענינים הנ"ל ("טמאים ביד טהורים ורשעים ביד צדיקים וזדים ביד עוסקי תורתך") היא למתיוונים מבנ"י[ftnref\_1785\_16], היינו, שנוסף על הנס שבני חשמונאי גברו על מלכות יון (ב­אופן ד"מסרת גבורים ביד חלשים ורבים ביד מעטים"), הנה עוד זאת, שנמסרו לידם גם ה"טמאים. . ורשעים. . וזדים" מבנ"י גופא[ftnref\_1786\_17].
+וזה מגדיל ביותר את הנס — ומשתי הבחינות: הן נצחון המלחמה כפשוטו, וכמובן בפשטות גודל הנס כאשר מבנ"י היו לצידם של היוונים, ומ"מ נצחו ה"טהורים. . צדיקים. . עוסקי תורתך"; והן מצד רוחניות הענינים, זה שהקב"ה עשה לישראל נס זה [שזהו תוכן אמירת "ועל הניסים", להדגיש שלא הי' זה נצחון טבעי אלא נס שנעשה ע"י הקב"ה, "ואתה ברחמיך הרבים עמדת להם בעת צרתם רבת כו' דנת כו' נקמת כו' מסרת כו'"] — דאע"פ שכמה מישראל לא היו ראויים לנס זה, מ"מ התחשב הקב"ה עם המיעוט שהיו "טהורים. . צדיקים. . עוסקי תורתך" ועשה להם נס זה.
+ג. ולפי פירוש זה (ש"מסרת כו' טמאים כו' ורשעים כו' וזדים כו'" קאי על המתיוונים מבנ"י), יש לבאר ג"כ הא דנקט ג' תוארים אלו דוקא, באופן של "דבר והיפוכו" (כנ"ל ס"א) — "טמאים ביד טהורים ורשעים ביד צדיקים וזדים ביד עוסקי תורתך" — כי הניגוד בג' דברים אלה[ftnref\_1787\_18] שייך (לאמיתתו) רק בבנ"י גופא (ולא בהיחס שבין ישראל לעמים).
+כלומר: בהיחס בין ישראל לעמים, לא מתאים כ"כ לתאר האומות כ"טמאים. . רשעים. . זדים" בניגוד לבנ"י שהם "טהורים. . צדיקים. . עוסקי תורתך" — כי גדר טהרה וצדקות ועסק התורה אצל בנ"י הוא מסוג אחר לגמרי מכפי שהם אצל ב"נ ואין זה בגדרם כלל (כדלקמן), ובמילא לא שייך לומר שהם מנגדים לישראל בענינים אלו (מצד זה שהם "טמאים. . ורשעים. . וזדים"), דכשם
+
+## 212
+
+שלא שייך אצלם הענין ד"טהורים. . צדיקים. . עוסקי תורתך" כפי שהם בבנ"י, כך לא שייך לומר שהם מנגדים לדברים אלו ועושים הפכם.
+והביאור בזה:
+גדר טומאה וטהרה ("טמאים ביד טהורים") — ע"פ הלכה — שייך רק ב­ישראל, כי הגוי אינו מיטמא, ובלשון הרמב"ם[ftnref\_1788\_19] "עכו"ם שנגע במת כו' ה"ה כמי שלא נגע הא למה זה דומה לבהמה שנגעה במת כו' ולא בטומאת המת בלבד אלא בכל הטומאות כולן אין העכו"ם ולא הבהמה מתטמאין בהן", שכוונת הרמב"ם באריכות לשונו ("ה"ה כמי שלא נגע הא למה זה דומה לבהמה כו'") היא, דזה שהעכו"ם אין מתטמאין, אין הפירוש בזה שרק נפקעו בפועל מדין טומאה, אלא שאינם בגדר טומאה וטהרה, דל­ענין זה אינם מציאות[ftnref\_1789\_20] שיכול לחול עלי' שם טומאה, וכמו בהמה שאינה בגדר זה כלל;
+ענין הצידקות (והפכו) בבנ"י תלוי בקיום תרי"ג מצות שניתנו לישראל דוקא, משא"כ ב"נ, שענין הצידקות וה­רשעות הוא רק בקיום ז' מצות שלהם, שהחילוק בין תרי"ג מצות של ישראל וז' מצות ב"נ אינו רק במספר המצות (ז' או תרי"ג) אלא הם שני סוגים שונים ב­החלט, כמבואר במ"א בארוכה[ftnref\_1790\_21],
+[שלכן מצינו שעיקר הענין דשכר ועונש הוא רק בישראל[ftnref\_1791\_22], כמ"ש[ftnref\_1792\_23] "רק אתכם ידעתי מכל משפחות האדמה על כן אפקוד עליכם את כל עוונותיכם", "איננו[ftnref\_1793\_24] חושש עליהם אם ייטיבו או יריעו. . וכן ארז"ל[ftnref\_1794\_25] שאני עכו"ם דלא מפקיד דינא עלייהו" ("אין ממהרין מן השמים לפקוד עוונותם עליהם"[ftnref\_1795\_26]), והיינו שאין מעשיהם חשובים לפני המקום לה­חשב חטא, וכמו שארז"ל עה"פ[ftnref\_1796\_27] "חטא חטאה ירושלים" — "אוה"ע כו' אע"פ ש­חוטאין אינן כלום"];
+"זדים ביד עוסקי תורתך" — השם "עוסקי תורתך" שייך רק בבנ"י, שהרי "עכו"ם שעוסק בתורה חייב מיתה"[ftnref\_1797\_28] [דאף שב"נ חייבים ללמוד ההלכות ד­"שבע מצות דידהו"[ftnref\_1797\_28] — מ"מ אינם בגדר "עוסקי תורתך", שהם רק העוסקים ב­תורת ה' שניתנה לישראל דוקא], וכיון שאין העכו"ם בגדר "עוסקי תורתך", הרי מובן, שאינם גם בגדר "זדים" המנגדים ל"עוסקי תורתך".
+
+## 213
+
+ד. ומכאן עידוד וחיזוק גדול לבנ"י בדורנו זה, שנוסף לזה ש"אתם המעט מכל העמים"[ftnref\_1799\_29], הנה גם מבנ"י גופא, הרי שומרי תומ"צ בשלימות (ולכל פרטיהן) הם לע"ע מיעוט לגבי שאר אחבנ"י שליט"א, וההתבוננות במצב זה יכולה להביא את האדם לידי יאוש ח"ו, או עכ"פ לגרום חלישות — דכיצד יזכו בנ"י לגאולה האמתית והשלימה שתלוי' בתשובה (דאין ישראל נגאלין אלא בתשובה[ftnref\_1800\_30]), כאשר כמה מישראל עדיין רחוקים מזה?
+וע"ז ישנו הלימוד בכ"ש וק"ו מימי חנוכה, דכמו בימי חנוכה שאז היו "טמאים. . ורשעים. . וזדים", ומ"מ ניצחו ה"טהורים. . צדיקים. . עוסקי תורתך", ועד"ז בדורנו, כאשר כמה מ­ישראל שאינם שומרי תומ"צ בשלימות לע"ע הרי הם "תינוקות שנשבו" — וה"טהורים. . צדיקים. . עוסקי תורתך" עומדים על משמרתם במס"נ על שמירת התומ"צ, הרי הקב"ה עוזרם וכו' ועד שמביא ישועה והצלה לעולם.
+ועוד זאת — שניתן להם הכח להת­גבר על אלו שאינם "טהורים כו'", כי זה שהטהורים כו' הם המיעוט, זהו בכמות, אבל באיכות הרי הטהורים כו' העיקר, כי להם יש התוקף של קדושה שמקורה בקדושתו של מקום, ואילו תוקפם של "טמאים. . ורשעים. . וזדים" הוא גשמי בלבד.
+ולכן סו"ס הם המנצחים באופן של "מסרת", שלא זו בלבד שצד הקדושה מ­נצח, אלא עוד זאת, שהצד שכנגד נמסר ביד הקדושה, שהם נהפכים לטוב, "נכב­שים" תחת שליטת הקדושה, עד שנ­הפכים להיות "טהורים. . צדיקים. . עוסקי תורתך".
+ה. כשם שהוא בנוגע לכלל ישראל — כמו"כ הוא אצל כל אחד ואחת:
+אחז"ל[ftnref\_1801\_31] "הרבה עשו. . כרשב"י ולא עלתה בידם", דרוב בנ"י אינם יושבי אהל אלא בעלי עסק, שרוב היום עסו­קים הם בצרכיהם הגשמיים, ומיעוט ה­יום עוסקים הם בדברים שבקדושה ממש — תפלה, קביעות עתים לתורה וקיום המצות.
+וגם שעושים כל מעשיהם "לשם שמים"[ftnref\_1802\_32] ו"בכל דרכיך דעהו"[ftnref\_1803\_33] — הרי נקראים "מעשיך" ו"דרכיך", אלא שנע­שים "לשם שמים".
+ואולי אפשר שתעלה בלבו של אדם מחשבת "מרה שחורה", דכיצד יש ב­יכולתו לקיים הציווי "ועשו לי מקדש ושכנתי בתוכם"[ftnref\_1804\_34] — בתוך כאו"א מישר­אל, שקדושתו ית' תשרה בתוכו ובתוך ביתו ממש — כאשר רוב זמנו בענינים גשמיים?
+ובזה הלימוד מימי חנוכה, דזה ש­מדמה בנפשו שרק "מיעוטו" מושקע בטהרה וצדקות ועסק התורה — ה"ז רק בכמות, אבל באיכות — עיקרו הם אותם השעות שעוסק בתפלה ובתורה ובמצות, והם הם הקובעים את מציאותו האמיתית.
+ועוד זאת: ע"י הכרה זו גופא, זוכה ל"מסרת כו' וטמאים ביד טהורים ו­רשעים ביד כו'" — שגם בעת עסקו
+
+## 214
+
+בדברים גשמיים, נרגש אצלו שכל זה אינו העיקר שלו, והם טפלים לעיקרו ומהותו האמיתית, שהיא עבודת ה'.
+ומכאן למדנו ג"כ עידוד לאלו החוזרים בתשובה, שגם אם כמה ימים בעבר היו ר"ל במצב של "טמאים", ועוד זאת — "רשעים. . וזדים", יצרם התגבר עליהם אז — ומרגישים עצמם "חלשים" ו"מעטים" — הנה עליהם לידע, שהם לאמתתם "טהורים. . צדיקים. . עוסקי תורתך", וזהו עיקר מציאותם, ועי"ז יתגברו על העבר שלהם,
+וכאו"א יבנה את "מקדשו" הפרטי — בתחילה מטהר את עצמו מכל עניניו הבלתי רצויים, "ופנו את היכלך וטהרו את מקדשך", ואח"כ מדליק נר נשמתו (נר ה' נשמת אדם) — "והדליקו נרות בחצרות קדשך", עד שזוכה "להודות ולהלל לשמך הגדול".
+[quotation](משיחת ש"פ מקץ תשל"ב) [/quotation]
+
+**English:**
+
+## Sicha 2
+
+1. In the *Al HaNissim* prayer recited during the days of Chanukah, we say: "You delivered the mighty into the hands of the weak, the many into the hands of the few, the impure into the hands of the pure, the wicked into the hands of the righteous, and the wanton into the hands of those who occupy themselves with Your Torah." Commentators on the prayers have already raised a difficulty: the last three categories ("the impure... the wicked... the wanton...") seemingly do not describe a miracle. Impurity and purity, wickedness and righteousness, and wantonness and Torah study are not matters of strength and weakness, such that the victory of the pure over the impure would be considered a miracle.
+
+Some have explained this based on the teaching of Chazal that "Who are the 'weak'? The Rabbis" ("for even in their health they are physically weak because the Torah drains their strength"). Thus, "there is also strength and weakness in these matters, and through the power of the miracle, the weak overcame the mighty." [According to this, this is merely an additional explanation of the previous phrase, "the mighty into the hands of the weak"—that the reason Bnei Yisrael were weak was not due to their natural physical constitution, but because they were "those who occupy themselves with Your Torah," for Torah drains a person's strength.]
+
+However (aside from the fact that this does not highlight the magnitude of the miracle, and what difference does it make what the cause of the weakness and strength was, since the essence of the matter remains), it is difficult to interpret it according to its simple meaning. This concept applies only to those whose Torah is their craft, to the point that "the Torah drains their strength," as mentioned above. If so, aside from the fact that it still does not explain why we say "the impure into the hands of the pure" and "the wicked into the hands of the righteous," where their status as Torah scholars is not emphasized —it is also difficult to interpret it regarding "the wanton into the hands of those who occupy themselves with Your Torah." It is forced to say that (all) the soldiers of Mattisyahu and his sons were "Rabbis" whose "Torah was their craft"!
+
+[Especially according to the teaching of Chazal that "Were it not for Dovid (who occupied himself with Torah), Yoav would not have waged war" ("the merit of Dovid (who occupied himself with Torah) stood for Yoav in the wars of Dovid"). From this it is understood that during wartime, it is the duty of the Torah scholars ("Rabbis") to strengthen themselves even more in Torah study, so that their merit will protect the soldiers fighting the war; on the contrary, the victory of the war depends precisely on this.]
+
+Seemingly, we must say that "the wanton into the hands of those who occupy themselves with Your Torah" does not mean that all the soldiers were "Rabbis" whose "Torah was their craft," but rather that the leaders of those victorious in the war were "those who occupy themselves with Your Torah."
+
+It seems more likely that "those who occupy themselves with Your Torah" here refers (not only to those whose "Torah is their craft," but) to all who study Torah (even those who have other occupations and set times for Torah), for all are called "those who occupy themselves with Your Torah." This is proven by the fact that every Jew is obligated in the blessings of the Torah, including the blessing "to occupy ourselves with the words of Torah."
+
+[Furthermore, it can be said that the expression "those who occupy themselves with Your Torah" (and not "those who study Your Torah") is not intended to emphasize the manner of engagement in Torah study, but also includes the engagement in mitzvos, which is the ultimate purpose of study (study that leads to action). This is why they are called "those who occupy themselves" (and not "those who study"), for "those who study Your Torah" refers to those who learn Torah, which relates to a person's intellect and understanding; whereas "occupying oneself with Torah" indicates that a person is occupied with Torah in all his affairs and faculties. This is the case when one studies in order to perform, such that all his actions, with all his 248 limbs, are according to the instructions of the Torah.
+
+Based on this, the difficulty raised by the commentators —"Why does it say 'the wanton into the hands of those who occupy themselves with Your Torah' and not state a thing and its opposite as it does with all the others"—is simply resolved. For according to the above, this clause is also a "thing and its opposite," as "those who occupy themselves with Your Torah" are those who fulfill the mitzvos of the Torah, the opposite of the "wanton," who transgress the commandments of the Torah willfully.]
+
+Yet the question remains: what is the miracle in "You delivered... the impure into the hands of the pure, the wicked into the hands of the righteous, and the wanton into the hands of those who occupy themselves with Your Torah"?
+
+2. Seemingly, one could say that the phrase "the impure into the hands of the pure, etc." refers to what was stated previously: "When the wicked Greek kingdom rose up against Your people Yisrael to make them forget Your Torah and force them to stray from the laws of Your will." This refers (not to war in the literal sense, but) to decrees against the religion—a spiritual war. From this, it is understood that the description of the subsequent victory of Yisrael must include not only the victory of the soldiers' war, but also (and primarily) the spiritual victory: overcoming the decrees and nullifying them. Therefore, we say "the impure into the hands of the pure, the wicked into the hands of the righteous, and the wanton into the hands of those who occupy themselves with Your Torah," to emphasize and describe the spiritual victory of Yisrael (even though "this is not an act of a miracle").
+
+However, it is seemingly forced to interpret that these details, which we say in continuation of "Al HaNissim," are not included in the miracles and wonders "that You performed for our ancestors in those days."
+
+The explanation for this is as follows: It is known from the history of those days that although the decrees against the religion of Yisrael ("to make them forget Your Torah and force them to stray from the laws of Your will") were enacted by the "wicked Greek kingdom," who "enacted decrees against Yisrael, nullified their religion, and did not allow them to occupy themselves with Torah and mitzvos, etc.", there were nevertheless many from Bnei Yisrael (the Hellenists) who joined the Greeks (in addition to those who did so out of duress), to the point that only a minority of Bnei Yisrael remained openly whole with Hashem and His Torah.
+
+Perhaps it can be said that the intent of the three aforementioned matters ("the impure into the hands of the pure, the wicked into the hands of the righteous, and the wanton into the hands of those who occupy themselves with Your Torah") is to refer to the Hellenists from among Bnei Yisrael. That is, in addition to the miracle that the Chashmonaim overcame the Greek kingdom (in the manner of "You delivered the mighty into the hands of the weak, and the many into the hands of the few"), there is this further point: that the "impure... wicked... and wanton" from Bnei Yisrael themselves were also delivered into their hands.
+
+This greatly magnifies the miracle—from two perspectives: first, the victory of the war in the literal sense, and it is understood simply that the miracle is greater when Bnei Yisrael were on the side of the Greeks, yet the "pure... righteous... and those who occupy themselves with Your Torah" were victorious. Second, from the perspective of the spirituality of the matter: the fact that the Ribono shel Olam performed this miracle for Yisrael [which is the content of saying "Al HaNissim," to emphasize that this was not a natural victory but a miracle performed by the Ribono shel Olam, "And You, in Your abundant mercy, stood by them in their time of distress... You judged... You avenged... You delivered..."]—that even though many of Yisrael were not worthy of this miracle, the Ribono shel Olam nevertheless took into account the minority who were "pure... righteous... and those who occupy themselves with Your Torah" and performed this miracle for them.
+
+3. According to this interpretation (that "You delivered... the impure... the wicked... and the wanton" refers to the Hellenists from among Bnei Yisrael), we must also explain why these three specific titles were chosen, in the manner of "a thing and its opposite" (as mentioned in section 1)—"the impure into the hands of the pure, the wicked into the hands of the righteous, and the wanton into the hands of those who occupy themselves with Your Torah"—because the contrast in these three things applies (in truth) only to Bnei Yisrael themselves (and not to the relationship between Yisrael and the nations).
+
+That is to say: in the relationship between Yisrael and the nations, it is not entirely appropriate to describe the nations as "impure... wicked... wanton" in contrast to Bnei Yisrael, who are "pure... righteous... and those who occupy themselves with Your Torah." For the definition of purity, righteousness, and Torah occupation among Bnei Yisrael is of an entirely different category than it is among the nations of the world, and it is not in their category at all (as will be explained). Consequently, it is not appropriate to say that they oppose Yisrael in these matters (in the sense that they are "impure... wicked... and wanton"), for just as the concept of "pure... righteous... and those who occupy themselves with Your Torah" as they exist in Bnei Yisrael does not apply to them, so too it is not appropriate to say that they oppose these things and do the opposite.
+
+The explanation for this is:
+The definition of impurity and purity ("the impure into the hands of the pure")—according to Halacha—applies only to Yisrael, for a non-Jew does not become impure. In the words of the Rambam : "A non-Jew who touched a corpse, etc., is as if he did not touch it. To what is this comparable? To an animal that touched a corpse, etc. And not only regarding the impurity of a corpse, but regarding all impurities, neither the non-Jew nor the animal becomes impure by them." The intent of the Rambam in his lengthy phrasing ("is as if he did not touch it. To what is this comparable? To an animal, etc.") is that the fact that non-Jews do not become impure does not mean that they are merely exempt in practice from the law of impurity, but that they are not in the category of impurity and purity at all. Regarding this, they are not an entity upon which the name of impurity can apply, just as an animal is not in this category at all.
+
+The matter of righteousness (and its opposite) in Bnei Yisrael depends on the fulfillment of the 613 mitzvos that were given specifically to Yisrael. This is not the case for a non-Jew, for whom the matter of righteousness and wickedness is only in the fulfillment of their seven mitzvos. The difference between the 613 mitzvos of Yisrael and the seven mitzvos of the non-Jew is not only in the number of mitzvos (seven or 613), but they are two entirely different types, as explained at length elsewhere.
+
+[Therefore, we find that the primary matter of reward and punishment exists only in Yisrael, as it is written : "Only you have I known from all the families of the earth; therefore I will visit upon you all your iniquities." "He does not concern Himself with them whether they do good or evil... And so Chazal said : 'The non-Jew is different, for judgment is not visited upon them'" ("They do not hasten from Heaven to visit their iniquities upon them"). This means that their actions are not significant before the Makom to be considered a sin, as Chazal said regarding the verse : "Jerusalem has sinned a sin"—"The nations of the world, etc., even though they sin, they are nothing."]
+
+"The wanton into the hands of those who occupy themselves with Your Torah"—the title "those who occupy themselves with Your Torah" applies only to Bnei Yisrael, for "a non-Jew who occupies himself with Torah is liable for death" [for although non-Jews are obligated to learn the laws of "their seven mitzvos", they are not in the category of "those who occupy themselves with Your Torah," which refers only to those who occupy themselves with the Torah of Hashem that was given specifically to Yisrael]. Since the non-Jew is not in the category of "those who occupy themselves with Your Torah," it is understood that they are also not in the category of "wanton" who oppose "those who occupy themselves with Your Torah."
+
+4. From here comes great encouragement and strength for Bnei Yisrael in our generation. In addition to the fact that "you are the fewest of all the peoples", even from among Bnei Yisrael themselves, those who observe Torah and mitzvos in their entirety (and in all their details) are, for the time being, a minority compared to the rest of our Jewish brethren. Contemplating this situation can lead a person to despair, G-d forbid, or at least cause weakness—for how will Bnei Yisrael merit the true and complete Redemption, which depends on teshuvah (for Yisrael is only redeemed through teshuvah), when many of Yisrael are still far from this?
+
+Regarding this, there is a lesson *kal v'chomer* from the days of Chanukah. Just as in the days of Chanukah there were "impure... wicked... and wanton," and nevertheless the "pure... righteous... and those who occupy themselves with Your Torah" were victorious, so too in our generation, when many of Yisrael who are not observing Torah and mitzvos in their entirety are, for now, "infants captured among the nations"—the "pure... righteous... and those who occupy themselves with Your Torah" stand at their post with *mesiras nefesh* for the observance of Torah and mitzvos. The Ribono shel Olam helps them, and brings salvation and rescue to the world.
+
+Furthermore, they are given the strength to overcome those who are not "pure, etc.," because the fact that the pure, etc., are the minority is only in quantity. In quality, the pure, etc., are the essence, for they possess the power of holiness that originates in the holiness of the Makom, whereas the power of the "impure... wicked... and wanton" is merely physical.
+
+Therefore, in the end, they are the victors in the manner of "You delivered," meaning not only that the side of holiness is victorious, but also that the opposing side is delivered into the hands of holiness, whereby they are transformed to good, "conquered" under the dominion of holiness, until they are transformed to become "pure... righteous... and those who occupy themselves with Your Torah."
+
+5. Just as it is regarding the collective of Yisrael, so it is for each and every individual:
+Chazal said : "Many have done like Rabbi Shimon bar Yochai, and it did not succeed for them." Most of Yisrael are not "dwellers of the tent" but are people of business, who are occupied most of the day with their physical needs, and only a minority of the day are they occupied with matters of holiness—tefillah, setting times for Torah, and fulfilling mitzvos.
+
+And even when they do all their actions "for the sake of Heaven" and "in all your ways know Him" —they are still called "your actions" and "your ways," even if they are done "for the sake of Heaven."
+
+Perhaps a thought of "melancholy" might arise in a person's heart: how is it in his power to fulfill the command "And they shall make Me a sanctuary, and I will dwell among them" —within each and every Jew, that His holiness, may He be blessed, should dwell within him and within his home—when most of his time is spent on physical matters?
+
+In this, there is a lesson from the days of Chanukah: the fact that one imagines that only a "minority" of himself is invested in purity, righteousness, and Torah study is only in quantity. In quality, the essence is those hours that he is occupied in tefillah, Torah, and mitzvos, and they are what determine his true reality.
+
+Furthermore: through this very recognition, one merits "You delivered... the impure into the hands of the pure, and the wicked into the hands of, etc."—that even when he is occupied with physical matters, he feels that this is not his essence, and they are secondary to his essence and true being, which is the service of Hashem.
+
+From here we also learn encouragement for those who are returning in teshuvah, that even if for many days in the past they were, G-d forbid, in a state of "impure," and even worse—"wicked... and wanton," their *yetzer* having overcome them then—and they feel themselves "weak" and "few"—they must know that in their truth they are "pure... righteous... and those who occupy themselves with Your Torah," and this is the essence of their being. Through this, they will overcome their past, and each one will build their private "sanctuary"—first by purifying themselves from all undesirable matters, "Clear out Your sanctuary and purify Your temple," and then by lighting the candle of their soul (the candle of Hashem is the soul of man)—"And they lit candles in the courtyards of Your holiness," until they merit "to thank and praise Your great Name."
+
+(From the Sicha of Shabbos Parshas Mikeitz, 5732)
+
+---
+
+
+## ויחי
+
+_Section: ויחי_
+
+**Hebrew:**
+
+## שיחה א
+
+## 236
+
+### שיחה א
+
+א. ואני בבואי מפדן מתה עלי רחל גו' בדרך גו' ואקברה שם בדרך גו'[ftnref\_1997\_1], ופרש"י[ftnref\_1998\_2] "ואני בבואי מפדן וגו', ואע"פ שאני מטריח עליך להוליכני להקבר בארץ כנען ולא כך עשיתי לאמך שהרי מתה סמוך לבית לחם. . ואקברה שם[ftnref\_1999\_3], ולא הולכתי' אפי' לבית לחם להכניסה לארץ וידעתי שיש בלבך עלי אבל דע לך שע"פ הדבור קברתי' שם שתהא לעזרה לבני' כשיגלה[ftnref\_2000\_4] אותם נבוזראדן והיו עוברים דרך שם יצאת רחל על קברה ובוכה ומבקשת עליהם רחמים שנאמר[ftnref\_2001\_5] קול ברמה נשמע וגו' והקב"ה משיבה[ftnref\_2002\_6] יש שכר לפעולתך נאום ה' וגו' ושבו בנים לגבולם".
+ואינו מובן:
+כמה ממפרשי המקרא ביארו את הכתוב "ואני בבואי גו'" — שבלשון ה­כתוב עצמו מבוארת התנצלותו של יעקב על שלא הוליך את רחל למערת המכ­פלה, כמו פירוש הרמב"ן[ftnref\_2003\_7] ש"מתה בדרך בפתע פתאום ולא יכול לקברה שם (במערת המכפלה) כי איך יעזוב את בניו ואת מקנהו בדרך כו'", או כפירוש ה­ספורנו ש"כל כך גברה עלי טרדתי ו­אבלותי שלא עצרתי כח להוליכה כו'"[ftnref\_2004\_8] — ולמה עזב רש"י פירושים אלו שהם לפי דרך הפשט, ונקט דברי אגדה שאין להם כל רמז במקרא[ftnref\_2005\_9]? ואדרבה, לפירוש רש"י נמצא, ש"תמהון הענין"[ftnref\_2006\_10] (הנהגת יעקב, שקבר את רחל בדרך ולא ה­כניסה אפילו לבית לחם) מפורש בכתוב, ואילו העיקר, הטעם להנהגה זו, לא נזכר כלל בקרא!
+גם יש לדייק בלשון רש"י בתשובת הקב"ה לרחל[ftnref\_2007\_11], "יש שכר לפעולתך נאום ה' וגו' (ושבו בנים לגבולם)" — ואינו מובן, שלא מוזכר כאן שום "פעולה" של רחל שעבורה מגיע לה שכר ("יש שכר לפעולתך"), כ"א רק שהיא "מבקשת עלי­הם רחמים",
+[במפרשים[ftnref\_2008\_12] הביאו דברי המדרש[ftnref\_2009\_13],
+
+## 237
+
+שבבקשתה הזכירה רחל שהכניסה צרתה (לאה) לביתה ומסרה לה הסימנים כו', וע"ז ענה לה הקב"ה "יש שכר לפעולתך" ("לפעולתך ולצדקתך שמסרת סימנך ל­אחותך"[ftnref\_2010\_14]), אבל בפרש"י כאן לא הזכיר זה כלל[ftnref\_2011\_15]],
+ולכאורה הי' מתאים להביא כאן[ftnref\_2012\_16] המשך דברי הקב"ה[ftnref\_2013\_17] "ויש תקוה לאח­ריתך נאום ה'" (ובפרט שזה נאמר ב­סמיכות ממש ל"ושבו בנים לגבולם")?
+ב. ויובן זה בהקדם תוספת ביאור בדברי רש"י שיעקב אמר ליוסף "ידעתי שיש בלבך עלי", שלכאורה אינו מובן:
+מזה גופא שיעקב לא התנצל לפני יוסף במשך כל השנים על קבורת רחל בדרך, משמע[ftnref\_2014\_18], שעיקר התרעומת של יוסף נתעוררה לאחרי שהשביעו יעקב לטרוח להוליכו לארץ כנען ולקוברו שם,
+[וכמובן גם מלשון רש"י "ואע"פ שאני מטריח עליך להוליכני להקבר בארץ כנען ולא כך עשיתי לאמך כו'", היינו שהתרעומת על ש"לא כך עשיתי לאמך" היא תוצאה מזה "שאני מטריח עליך להוליכני כו'"],
+ולכאורה תמוה, שהרי זה נראה כמו רגש של נקמה ח"ו, שמצד עצם הדבר לא היתה ליוסף תרעומת על יעקב, ורק כשהטריחו להוליכו לארץ כנען אזי נתעורר אצלו רגש של תרעומת על שלא טרח לקבור את רחל במערת המכפלה — וכי חשד יעקב את יוסף בכך[ftnref\_2015\_19]?
+ולכן נ"ל שאין כוונת רש"י ב"ידעתי שיש בלבך עלי" לענין של תרעומת[ftnref\_2016\_20]
+— דח"ו לחשוד את יוסף שהיתה לו טענה ליעקב על שלא קבר את רחל במערת המכפלה, כי ודאי הבין יוסף שיעקב הי' עושה ככל יכולתו לקבור את רחל במערת המכפלה (שתהי' קבורה ביחד עמו), ובפרט בידעו גודל אהבתו של יעקב לרחל, ואם לא עשה יעקב כן ודאי שאינו אשם בזה כלל —
+אלא הדיוק הוא "יש בלבך עלי": עם היות שהוא מבין בשכלו שאין להאשים את יעקב, מ"מ סו"ס הרי חסרה אצל רחל מעלה זו של קבורה במערת ה­מכפלה, וכיון שהחסרון קיים, "יש בלבו" של יוסף על יעקב[ftnref\_2017\_21], שהרגש הכאב ש­בלב נשאר, דלמה יוגרע חלקה של רחל שלא תקבר במערת המכפלה[ftnref\_2018\_22]?
+
+## 238
+
+ותוקף רגש זה נתעורר אצל יוסף כשיעקב אמר לו להוליכו להקבר בארץ כנען במערת המכפלה, שזה מדגיש את גודל המעלה שבקבורה במערת המכ­פלה, עד שבגלל זה מטריח את יוסף (ובפרהסיא ואף שנהג בו כבוד) להוליכו לשם — ה"ז מגדיל ביותר את הרגשת החסרון אצל רחל שלא זכתה להקבר שם.
+וכדי לבטל רגש זה מלבו של יוסף, אמר יעקב "ואני בבואי גו' ואקברה שם גו'", וכפרש"י שיעקב הסביר ליוסף "שע"פ הדבור קברתי' שם שתהא לעזרה לבני' כו'".
+ומתורץ בפשטות הטעם שהוצרך רש"י להביא דברי אגדה אלו, ולא פירש כהפשטנים הנ"ל (ס"א) — כי לפירושם אין כאן אלא דברי התנצלות שיעקב לא הי' אשם בזה, ואין בדברים אלו כדי לבטל מה שב"לבו" של יוסף; ורק ע"פ דברי אגדה אלו יש טעם לכך שרחל נקברה בדרך, "שתהא לעזרה לבני' כו'", ועוד (ועיקר?) זה מדגיש מעלה מיוחדת ברחל (שהיא דוקא הביאה הבטחת הקב"ה "ושבו בנים לגבולם"), וכדלקמן, ולכן יש בזה תשובה מספקת המסלקת את הרגש הזה שבלב.
+ביאור הדבר:
+זה שקבר יעקב את רחל בדרך "ע"פ הדבור. . שתהא לעזרה לבני' כו'", אין הכוונה בזה שנגרע מרחל בשביל טובת בני', אלא אדרבה, כיון שזהו גאולת בני' של רחל — ה"ז טובת ואושרה של רחל, ודאי שרחל עצמה היתה מסכמת לכך ודורשת זה[ftnref\_2019\_23].
+ויש לומר, שזוהי כוונת רש"י בהביאו את הכתוב "(והקב"ה משיבה) יש שכר לפעולתך נאום ה'" — ואינו מזכיר שום פעולה של רחל — כי כוונתו לזה גופא שנקברה בדרך, שזהו כדי "שתהא ל­עזרה לבני'", דזה שהקב"ה ציווה את יעקב לעשות כן הוא משום שזה הוא רצונה וחפצה של רחל. בסגנון אחר קצת: בקשת הרחמים של רחל דוקא יש בכוחה להביא את ההבטחה "ושבו בנים לגבולם", בזכות "פעולה" זו, שהיא מוכ­נה לוותר על המעלה דקבורה במערת המכפלה כדי "שתהא לעזרה לבני'".
+ג. עפ"ז יש לבאר (עכ"פ בפנימיות הענין) המשך הכתובים, שדבר זה אמר יעקב ליוסף בהמשך לדבריו אודות אפרים ומנשה
+[וכבר תמהו במפרשים[ftnref\_2020\_24] — דהו"ל ל­יעקב להקדים דברי התנצלות אלו לבק­שתו לפנ"ז, כשהשביעו "ונשאתני ממצ­רים וקברתני בקבורתם"[ftnref\_2021\_25], ולא במעמד זה שבו לא הזכיר כלל ע"ד קבורתו ב­ארץ כנען (אלא רק דברי ברכה[ftnref\_2022\_26], ואשר אפרים ומנשה יכנסו לחשבון שאר ה­שבטים ליטול חלק בארץ[ftnref\_2023\_27])]
+דיש לומר שבזה רמז לו הטעם ש"שני בניך הנולדים לך בארץ מצרים עד בואי אליך מצרימה לי הם"[ftnref\_2024\_28]:
+זה שגם בנים שנולדו בארץ מצרים ("עד בואי אליך") נכנסים "בחשבון שאר בני"[ftnref\_2025\_29], הוא מפני זכותה של רחל, דכיון שהיא היתה מוכנת להקבר בדרך (שלא ביחד עם יעקב) כדי "שתהא לעזרה לבני'", לכן זכתה, שבני בנה[ftnref\_2026\_30] שנולדו "בארץ מצרים עד בואי אליך מצרימה (לא בסמיכות ליעקב) — לי הם".
+ד. והנה איתא בגמ'[ftnref\_2027\_31] על פסוק זה "ואני בבואי מפדן מתה עלי רחל", ש"אין אשה מתה אלא לבעלה", ומבואר ב­חדא"ג מהרש"א, שמאמר זה בא בהמשך למ"ש בסוגיא שם לפנ"ז[ftnref\_2028\_32] אודות "אשתו ראשונה" ("אשת נעורים"), כי זה שאמר יעקב "מתה עלי רחל", "אף שהיו לו נשים אחרות", היינו מפני ש"לא מצא קורת רוח רק בה שהיא אשתו ראשונה[ftnref\_2029\_33] ועקרת הבית" [וכמובא גם בפרש"י עה"ת[ftnref\_2030\_34] שרחל היתה "עקרת הבית", וכן איתא במדרש[ftnref\_2031\_35] ש"רחל היתה עיקרו של בית", ועד שבגלל זה "נקראו ישראל על שמה"].
+וע"פ הנ"ל יש לומר, ששני הענינים שבכתוב זה (א) התנצלותו של יעקב על שקבר את רחל בדרך, כדי "שתהא ל­עזרה לבני'", (ב) הדיוק "מתה עלי רחל", המדגיש שהיא היתה "עקרת הבית" — שייכים זל"ז[ftnref\_2032\_36]. כי תכונה זו שמצינו ב­רחל — הוויתור על מעלת עצמה (להיות קבורה עם יעקב אבינו במערת המכפלה) כדי "שתהא לעזרה לבני'" — היא היא התכונה העיקרית שישנה בכל אשה כשרה בישראל, שתפקידה להיות "עקרת הבית".
+ביאור הענין:
+אף שהכלל "אני נבראתי לשמש את קוני"[ftnref\_2033\_37] חל על אנשים ונשים בשוה, מ"מ קיים הבדל בין האיש והאשה[ftnref\_2034\_38], שעיקר ענין של עבודת השם של האיש הוא — עסק התורה והתפלה וקיום כל המצות, ובזה נכללה (כיון שצריך לעסוק בדרך ארץ ועסק הפרנסה[ftnref\_2035\_39] —) גם עבודתו "בכל דרכיך דעהו"[ftnref\_2036\_40] ו"כל מעשיך יהיו לשם שמים"[ftnref\_2037\_41]; משא"כ בנוגע לנשים — פטורות ממ"ע שהזמ"ג[ftnref\_2038\_42] (וכן פטורות מתלמוד תורה[ftnref\_2039\_43]), כיון שצ"ל עסוקות ב­צרכי הבית (כמבואר בראשונים[ftnref\_2040\_44] שמ­טעם זה אשה פטורה ממ"ע שהזמ"ג — לפי שצרכי הבית עלי').
+ואולי י"ל שבזה ניכרת מעלת הנשים: באנשים, עיקר ענין עבודת ה' שלהם הוא באופן גלוי, ולכן עבודה זו יכולה לגרום לרגש של שביעת רצון ("שמח בחלקו"[ftnref\_2041\_45]) ומזה — לרגש של ישות (עכ"פ
+
+## 239
+
+בדקות דדקות[ftnref\_2042\_46]); משא"כ בנשים.
+ובזה מבואר טעם החילוק בענין היחוס, שעצם וכללות שם ישראל תלוי דוקא בהאם, שהנולד לאם ישראלית הוי ישראל (גם כשהאב אינו יהודי), אבל הפרטים, החילוקים בבני ישראל גופא — כהן לוי ישראל — תלויים במשפחת ה­אב:
+להיות יהודי — תלוי בזה שהוא חלק אלקה ממעל ממש[ftnref\_2043\_47], למעלה מהתחלקות לפרטים; ואילו החילוקים דכהן לוי ישראל, שהן דרגות שונות בגילוי ה­קדושה, הרי זה תלוי בהאיש שעבודת השם שלו היא בעניני קדושה גלוי'.
+ה. וזוהי כוונת יעקב באמרו ליוסף "ואע"פ שאני מטריח עליך להוליכני להקבר בארץ כנען ולא כך עשיתי לאמך כו'" — שזהו החילוק בין יעקב לרחל:
+מצד ענינו ועבודתו של יעקב צריך הוא להיות קבור במערת המכפלה, ביחד עם שאר האבות — במצב ומקום של קדושה גלוי';
+ומעלתה המיוחדת של רחל[ftnref\_2044\_48] — "עיקרו של בית", "עקרת הבית" — שהיא מוותרת על שלימות ומעלת עצמה להיות קבורה במערת המכפלה, כדי "שתהא לעזרה לבני'", ובזה גופא — בנים שיהיו לאחרי כו"כ דורות, ובנים שיהיו במעמד ומצב בלתי רצוי, עד כדי כך שיתחייבו גלות; ובשביל אותם הבנים שחטאו וגלו — מוותרת רחל אמנו על זכות קבורה במערת המכפלה ביחד עם יעקב אבינו במשך מאות ואלפי שנים, כדי שעי"ז תוכל להיות "לעזרה לבני'".
+וזהו הטעם שהיא הביאה את ההבטחה ד"ושבו בנים לגבולם" — דהיות שהיא וויתרה על מעלת עצמה, בשביל בנים אלו, מצד הקשר העצמי שבינה ובינם (בכל מצב שיהיו), הרי זה ממשיך מל­מעלה "מדה כנגד מדה", שלמרות מצבם הגלוי של הבנים (שנתחייבו גלות), הבטיח הקב"ה "ושבו בנים לגבולם", ש­להיותם בנים הרי ודאי שישובו לגבולם, בגאולה האמיתית והשלימה, במהרה בימינו ממש.
+[quotation](משיחת ש"פ ויחי תשמ"ו) [/quotation]
+
+**English:**
+
+## Vayechi
+
+### Sicha 1
+
+1. "And as for me, when I came from Padan, Rachel died upon me in the land of Canaan on the way... and I buried her there on the way..." Rashi comments: "And as for me, when I came from Padan, etc., even though I am troubling you to take me to be buried in the land of Canaan, I did not do so for your mother, for she died near Beis Lechem... and I buried her there, and I did not even take her to Beis Lechem to bring her into the land. I know that you have a grievance against me, but know that I buried her there by Divine command, so that she would be of assistance to her children when Nevuzaradan would exile them and they would pass by there. Rachel would emerge from her grave, weeping and seeking mercy for them, as it is said: 'A voice is heard in Ramah, etc.,' and the Holy One, Blessed be He, replies to her: 'There is reward for your labor, says Hashem, etc., and the children shall return to their border.'"
+
+This is difficult to understand:
+Many biblical commentators explain the verse "And as for me, when I came from Padan, etc." as containing Yaakov’s own apology for not taking Rachel to the Me'aras HaMachpeilah. For example, the Ramban writes that "she died on the way suddenly, and he could not bury her there [in the Me'aras HaMachpeilah], for how could he leave his children and his livestock on the way, etc.?" Or, as the Sforno explains, "My distress and mourning were so great that I did not have the strength to take her, etc." Why did Rashi abandon these explanations, which follow the literal meaning of the text, and instead adopt an Aggadic teaching that has no hint in the Scripture? On the contrary, according to Rashi’s interpretation, it turns out that the "puzzling nature of the matter" (Yaakov’s conduct in burying Rachel on the way and not even bringing her to Beis Lechem) is explicitly mentioned in the text, while the essential point—the reason for this conduct—is not mentioned in the verse at all!
+
+Furthermore, one must analyze Rashi’s language regarding the Holy One, Blessed be He’s response to Rachel: "There is reward for your labor, says Hashem, etc. (and the children shall return to their border)." This is difficult to understand, as no "labor" of Rachel is mentioned here for which she deserves a reward ("There is reward for your labor"), other than the fact that she "seeks mercy for them."
+
+[Commentators cite the Midrash that in her plea, Rachel mentioned that she brought her rival (Leah) into her home and gave her the signs, etc., and to this the Holy One, Blessed be He, replied, "There is reward for your labor" ("For your labor and your righteousness in that you gave your signs to your sister"). However, Rashi here does not mention this at all.]
+
+Seemingly, it would have been appropriate to include here the continuation of the Holy One, Blessed be He’s words: "And there is hope for your future, says Hashem" (especially since this is stated in immediate proximity to "and the children shall return to their border").
+
+2. This can be understood by first adding further explanation to Rashi’s words that Yaakov said to Yosef, "I know that you have a grievance against me." Seemingly, this is difficult to understand:
+The very fact that Yaakov did not apologize to Yosef for all these years regarding Rachel’s burial on the way implies that Yosef’s primary grievance was only aroused after Yaakov made him swear to take the trouble to bring him to the land of Canaan and bury him there.
+
+[As is also understood from Rashi’s language, "Even though I am troubling you to take me to be buried in the land of Canaan, I did not do so for your mother, etc.," meaning that the grievance regarding "I did not do so for your mother" is a result of "I am troubling you to take me, etc."]
+
+Seemingly, this is puzzling, for it appears to be a feeling of vengeance, Heaven forbid—that in and of itself, Yosef had no grievance against Yaakov, and only when he was troubled to bring him to the land of Canaan did a feeling of grievance arise regarding why he did not trouble himself to bury Rachel in the Me'aras HaMachpeilah. Did Yaakov suspect Yosef of such a thing?
+
+Therefore, it seems to me that Rashi’s intent in "I know that you have a grievance against me" is not a matter of a complaint—for Heaven forbid to suspect Yosef of having a claim against Yaakov for not burying Rachel in the Me'aras HaMachpeilah, as Yosef certainly understood that Yaakov would have done everything in his power to bury Rachel in the Me'aras HaMachpeilah (so that she would be buried together with him), especially knowing the greatness of Yaakov’s love for Rachel. If Yaakov did not do so, he was certainly not to blame at all.
+
+Rather, the precision is "you have a grievance against me": even though he understands intellectually that Yaakov is not to be blamed, nevertheless, the fact remains that Rachel lacked this level of burial in the Me'aras HaMachpeilah. Since the deficiency exists, Yosef "has a grievance" against Yaakov—the feeling of pain in his heart remains: why should Rachel’s portion be diminished by not being buried in the Me'aras HaMachpeilah?
+
+The intensity of this feeling was aroused in Yosef when Yaakov told him to take him to be buried in the land of Canaan in the Me'aras HaMachpeilah, which emphasizes the greatness of the level of burial in the Me'aras HaMachpeilah, to the point that because of this, he is troubling Yosef (publicly, and even though he treated him with honor) to take him there. This greatly increases the feeling of the deficiency in Rachel, who did not merit to be buried there.
+
+To nullify this feeling from Yosef’s heart, Yaakov said, "And as for me, when I came from Padan, etc., and I buried her there, etc.," as Rashi explains that Yaakov was telling Yosef "that I buried her there by Divine command, so that she would be of assistance to her children, etc."
+
+The reason Rashi needed to bring these Aggadic words, rather than explaining like the aforementioned literalists, is simply resolved: according to their interpretation, there is nothing here but an apology that Yaakov was not to blame, and these words are insufficient to nullify what is in Yosef’s "heart." Only according to these Aggadic words is there a reason for Rachel being buried on the way—"so that she would be of assistance to her children, etc."—and furthermore (and perhaps essentially?), this emphasizes a special level in Rachel (that she is the one who brought the promise of the Holy One, Blessed be He, "and the children shall return to their border"), as will be explained below. Therefore, this provides a sufficient answer that removes this feeling from the heart.
+
+Explanation of the matter:
+The fact that Yaakov buried Rachel on the way "by Divine command... so that she would be of assistance to her children, etc." does not mean that Rachel was diminished for the sake of her children’s benefit. Rather, on the contrary, since this is the redemption of Rachel’s children, this is Rachel’s own benefit and happiness. Certainly, Rachel herself would have agreed to this and requested it.
+
+It can be said that this is Rashi’s intent in bringing the verse "(and the Holy One, Blessed be He, replies to her) 'There is reward for your labor, says Hashem, etc.'"—and he does not mention any labor of Rachel—because his intent is to the very fact that she was buried on the way, which is in order "that she would be of assistance to her children." The fact that the Holy One, Blessed be He, commanded Yaakov to do so is because this is Rachel’s own will and desire. In slightly different terms: Rachel’s plea for mercy specifically has the power to bring the promise "and the children shall return to their border," by virtue of this "labor"—that she was willing to forgo the level of burial in the Me'aras HaMachpeilah so that "she would be of assistance to her children."
+
+3. Based on this, one can explain (at least in the inner dimension of the matter) the continuation of the verses, that Yaakov said this to Yosef in continuation of his words regarding Ephraim and Menashe.
+
+[Commentators have already wondered—Yaakov should have preceded his request with these words of apology earlier, when he made him swear, "And you shall carry me out of Egypt and bury me in their burial place," and not at this occasion, where he did not mention at all about his burial in the land of Canaan (but only words of blessing, and that Ephraim and Menashe would be included in the count of the other tribes to take a portion in the land).]
+
+It can be said that in this, he hinted to him the reason that "your two sons who were born to you in the land of Egypt until I came to you to Egypt, are mine."
+The fact that even children born in the land of Egypt ("until I came to you") are included "in the count of the other sons" is because of Rachel’s merit. Since she was willing to be buried on the way (not together with Yaakov) so that "she would be of assistance to her children," she merited that the children of her son who were born "in the land of Egypt until I came to you to Egypt (not in proximity to Yaakov)—are mine."
+
+4. There is a Gemara on this verse, "And as for me, when I came from Padan, Rachel died upon me," which states, "A woman dies only to her husband." The Maharsha explains in *Chiddushei Aggados* that this statement comes in continuation of what was discussed in the *sugya* there earlier regarding the "first wife" ("wife of one's youth"). For the fact that Yaakov said "Rachel died upon me," "even though he had other wives," is because "he found satisfaction only in her, for she is his first wife and the mainstay of the home." [As is also brought in Rashi on the Torah that Rachel was the "mainstay of the home," and so it is in the Midrash that "Rachel was the mainstay of the home," to the point that because of this "Yisrael were named after her."]
+
+According to the above, it can be said that the two matters in this verse—(a) Yaakov’s apology for burying Rachel on the way, in order "that she would be of assistance to her children," and (b) the precision "Rachel died upon me," which emphasizes that she was the "mainstay of the home"—are related to one another. For this trait that we find in Rachel—the forgoing of her own level (to be buried with Yaakov Avinu in the Me'aras HaMachpeilah) so that "she would be of assistance to her children"—is the very trait that exists in every kosher woman in Yisrael, whose role is to be the "mainstay of the home."
+
+Explanation of the matter:
+Although the principle "I was created to serve my Maker" applies to men and women equally, there is nevertheless a difference between a man and a woman. The primary aspect of a man’s *avodas Hashem* is the study of Torah, prayer, and the fulfillment of all *mitzvos*. Included in this (since one must engage in *derech eretz* and business for livelihood) is also his service of "In all your ways know Him" and "Let all your deeds be for the sake of Heaven." This is not the case regarding women, who are exempt from time-bound positive *mitzvos* (and are also exempt from Torah study), because they must be occupied with the needs of the home (as explained by the *Rishonim* that for this reason a woman is exempt from time-bound positive *mitzvos*—because the needs of the home are upon her).
+
+Perhaps it can be said that in this, the merit of women is evident: in men, the primary aspect of their *avodas Hashem* is in a revealed manner, and therefore this service can cause a feeling of satisfaction ("happy with his portion") and from this—a feeling of selfhood (at least in the most subtle of subtleties); this is not the case with women.
+
+In this is explained the reason for the difference regarding lineage: the essence and the totality of the name "Yisrael" depends specifically on the mother, for one born to a Jewish mother is a Jew (even when the father is not Jewish). However, the details—the distinctions among Bnei Yisrael themselves, *Kohen*, *Levi*, *Yisrael*—depend on the father’s family.
+Being a Jew depends on the fact that one is a literal "part of Elokus from above," above the division into details. Whereas the distinctions of *Kohen*, *Levi*, and *Yisrael*, which are different levels in the revelation of holiness, depend on the man, whose *avodas Hashem* is in matters of revealed holiness.
+
+5. This is Yaakov’s intent in saying to Yosef, "Even though I am troubling you to take me to be buried in the land of Canaan, I did not do so for your mother, etc."—this is the difference between Yaakov and Rachel:
+By virtue of his status and his service, Yaakov must be buried in the Me'aras HaMachpeilah, together with the other Patriarchs—in a state and place of revealed holiness.
+And Rachel’s special merit—"the mainstay of the home," "the mainstay of the home"—is that she forgoes her own perfection and level of being buried in the Me'aras HaMachpeilah, so that "she would be of assistance to her children." And in this very thing—children who will be born after many generations, and children who will be in an undesirable state and situation, to the point that they will become liable for exile—for the sake of those children who sinned and were exiled, Rachel Imeinu forgoes the merit of burial in the Me'aras HaMachpeilah together with Yaakov Avinu for hundreds and thousands of years, so that through this she can be "of assistance to her children."
+
+This is the reason she brought the promise "and the children shall return to their border"—since she forwent her own level for the sake of these children, by virtue of the essential bond between her and them (in whatever state they may be), this draws down from above "measure for measure" that despite the children’s revealed state (that they became liable for exile), the Holy One, Blessed be He, promised "and the children shall return to their border." For as they are children, they will certainly return to their border, in the true and complete redemption, speedily in our days, truly.
+
+(From a *sicha* of Shabbos Parshas Vayechi, 5746)
+
+---
+
+_Section: ויחי_
+
+**Hebrew:**
+
+## שיחה ב
+
+## 241
+
+### שיחה ב
+
+א. "וירא ישראל את בני יוסף ויאמר מי אלה, ויאמר יוסף אל אביו בני הם אשר נתן לי אלקים בזה"[ftnref\_2045\_1]. ופרש"י כוונת שאלתו של יעקב "מי אלה"
+[דלפי פשוטו תמוה: הרי רש"י פירש התיבות "וירא ישראל את בני יוסף" — "בקש לברכם", ז.א. שידע שהם בני יוסף (ואף ש"עיני ישראל כבדו מזוקן לא יוכל לראות"[ftnref\_2046\_2] — י"ל בפשטות שהכי­רם מקולם וכיו"ב (ובפרט שהיו רגילים אצלו[ftnref\_2047\_3]), או שיעקב הבין דכאשר קרבו ימיו למות יביא יוסף את בניו אתו כדי שיברכם יעקב לפני מותו[ftnref\_2048\_4]) — ומהי שאלתו "מי אלה"? — ולכן פירש]
+"מהיכן יצאו אלו שאינן ראויין לבר­כה" (ובא בהמשך לזה ש"בקש לברכם ונסתלקה שכינה ממנו כו'" (כמ"ש רש"י בד"ה שלפנ"ז), שמזה הבין יעקב שבני יוסף אינם ראויים לברכה[ftnref\_2049\_5]); וע"ז ענה יוסף "בני הם אשר נתן לי אלקים בזה" — "הראה לו שטר אירוסין ושטר כתובה".
+וכתבו במפרשים[ftnref\_2050\_6], שיעקב חשד אשר בני יוסף "אינן ראויין לברכה" מפני שלא נולדו בכשרות כדת וכהלכה — שמא לקח יוסף אשה מבנות המצריים או משאר אומות (ולא גיירה) — וע"ז הראה לו יוסף שטר אירוסין כו', להוכיח ש­נשאה לאשה "בענין שיתפסו בה קידושין וקידשה בקידושין גמורים"[ftnref\_2051\_7].
+וכבר תמהו על פירוש זה[ftnref\_2052\_8] — "הלא[ftnref\_2053\_9] כל י"ז שנה היו יושבין ועוסקין בתורה לפניו. . א"כ הרי בודאי ידע והכיר אם יש בהם פגם ייחוס או לאו ולא הי' צריך להראות לו בשביל זאת שטר אירוסין ושטר כתובה", ועוד — "איך[ftnref\_2053\_9] אפשר להעלות על הלב. . לחשוד את יוסף שבא על אחת מכל העריות כו'[ftnref\_2055\_10]. . והא ודאי שלא חשד יעקב ליוסף ש­לקח אשה מבנות המצריים או משאר או­מות בגיותה חלילה אלא ודאי נתגיירה קודם" [וכמו שפירש"י לעיל עה"פ[ftnref\_2056\_11]
+
+## 242
+
+"וישתחו ישראל על ראש המטה" — "על שהיתה מטתו שלימה. . שהרי יוסף. . עומד בצדקו"].
+ולכן פירשו[ftnref\_2057\_12] שיעקב לא חשד שמא יש בהם פגם יחוס, אלא "שחשב יעקב. . שלא לקח יוסף את אסנת רק לפילגש בלא אירוסין ובלא כתובה כיון שלא לקחה מעצמו בבחירתו רק על פי המלך שנתנה לו לאשה. . לכך הראה לו שטר אירוסין ושטר כתובה לראי' שהיא אשתו ממש ולא פילגש שהרי אין כותבין כתובה לפילגש"[ftnref\_2058\_13].
+אבל לכאורה עדיין לא העלו ארוכה לתמי' הנ"ל — כי אף שלא הי' בנשואי אסנת שום איסור שהרי גם לאברהם הייתה פילגש (ורק ש"בני הפלגשים אשר לאברהם" שלחם מעל יצחק בנו, ועד ש"שם טומאה מסר להם"[ftnref\_2059\_14]) — מ"מ, את"ל שבבנים אלו יש איזה חסרון ב­קדושתם כו' (עד שאין ראויים לברכה) איך לא הרגיש זה יעקב במשך כל י"ז שנים אלו?
+ועוד זאת: כדי להוכיח שאסנת לא היתה פילגש אלא אשתו ממש הי' מספיק להראות לו שטר כתובה ואין צורך ל­הראות שטר אירוסין — שהרי לפרש"י[ftnref\_2060\_15] זהו ההפרש בין נשים ופילגשים, "נשים בכתובה פלגשים בלא כתובה", וכיון שיש לה כתובה ודאי שאינה פילגש.
+וביותר תמוה: בדחז"ל (שלפנינו) — תרגום יונתן[ftnref\_2061\_16] ומס' כלה[ftnref\_2062\_17] — אכן נזכר רק שטר כתובה ולא שטר אירוסין; ומה הזקיקו לרש"י להוסיף שטר אירוסין?
+ב. גם צריך להבין מ"ש רש"י "הראה לו שטר אירוסין ושטר כתובה" — דלכ­אורה: בשלמא שטר כתובה הוא דבר הרגיל בכל נישואין (ולהעיר שגם אצל האומות ישנו ענין של כתובה, וכדמצינו לעיל גבי שכם[ftnref\_2063\_18], שאמר "הרבו עלי מאד מהר", ופרש"י "כתובה") — אבל מהיכא תיתי לומר שיוסף קידש את אסנת בקידושי שטר דוקא, עד שיהי' שטר אירוסין תחת ידו[ftnref\_2064\_19]?!
+יש מפרשים[ftnref\_2065\_20], שיוסף עשה כך מל­כתחילה "כדי שיוכל להראות ראי' ברו­רה לאביו יעקב שלקחה לאשה ולא ל­פילגש לפי שהי' חכם הרואה את ה­נולד". אבל מלבד הקושיא הנ"ל (סעיף
+
+## 243
+
+א) שיוסף לא הי' צריך שטר אירוסין "להראות ראי' ברורה לאביו יעקב ש­לקחה לאשה ולא לפילגש", כי לזה מספיק שטר כתובה — הרי אין כל רמז בפרש"י שיוסף עשה כן מלכתחילה "לפי שהי' חכם הרואה את הנולד" (וגם צ"ע בעצם הסברא, שיוסף חשש מראש ש­אביו יעקב לא יאמין לדבריו שלכן עליו להכין "ראי' ברורה" שנשא אשה ב­אירוסין).
+ויש שתירצו[ftnref\_2066\_21] ע"ד ההלכה "עם מ"ש הרמב"ם בריש הל' אישות דקידושי שטר וביאה הן מן התורה וקידושי כסף מד"ס ופירשו שם המפרשים דקרי לה מד"ס משום שאין מפורש בתורה קידושי כסף אלא מג"ש ילפינן להו קיחה קיחה מ­שדה עפרון וידוע דקיי"ל דאין אדם דן ג"ש מעצמו אא"כ קיבלו מרבו ויוסף כשפירש מאביו י"ל דאכתי לא הוה גמיר להך ג"ש ולכך לא הי' יכול לל­מוד כן מדעתו (ולא קידש בביאה דרב מנגיד אמאן דקדיש בביאה[ftnref\_2067\_22], ולכן הוזקק לקדש בשטר)".
+אבל, לכאורה, כ"ז הוא ע"ד הפלפול וההלכה, משא"כ פרש"י עה"ת שהוא ע"ד הפשט דוקא.
+ולכן נראה, שאין כוונת רש"י ב"שטר אירוסין" לשטר שבו נתארסה, לקידושי שטר [ובפרט שבפשוטי המקראות וב­פרש"י עה"ת לא מצינו — גם לאחרי מתן תורה[ftnref\_2068\_23], וכש"כ לפני מ"ת — שהאשה מת­קדשת בשטר[ftnref\_2069\_24]] — אלא ל"שטר" במובנו הרגיל והפשוט (גם אצל "בן חמש ל­מקרא"): שטר הנכתב (רק) לראי' על איזה דבר, לזכרון דברים. וכן בעניננו, שהי' אצל יוסף שטר ראי' על אירוסיו[ftnref\_2070\_25].
+אבל גם לפירוש זה צ"ע, מדוע כתב יוסף שטר ראי' על האירוסין שלו, דבר שלא מצינו לו חבר במשך כל הדורות[ftnref\_2071\_26], וכ"ש וק"ו בזמן האבות והשבטים (וכנ"ל, דוחק לומר שכתב זה רק כדי שתהי' לו "ראי' ברורה לאביו יעקב" שנשא אשה באירוסין)?
+ג. ויובן כל זה בהקדים בירור כללי בענין אירוסין ונישואין לפני מ"ת:
+דבר פשוט, גם לפי פשוטו של מקרא, שקיים אברהם אבינו כל התורה כולה עד שלא ניתנה, וכפרש"י[ftnref\_2072\_27] שקיים אפילו "גזרות (דרבנן). . שניות לעריות כו'. . תורה שבעל פה הלכה למשה מסיני", וגבי יעקב כתב[ftnref\_2073\_28] "ותרי"ג מצות שמרתי", שמזה מובן שהוא הדבר בנוגע ליצחק (ומפורש בפרש"י[ftnref\_2074\_29] שקיים כו"כ מצות) — ומ"מ לא נתפרש
+
+## 244
+
+(בפשש"מ) שקידשו נשותיהם לפני שנשאו אותן; ואדרבה — מפשטות לשון הכתובים גבי יצחק[ftnref\_2075\_30], "ויביאה יצחק האהלה שרה אמו ויקח את רבקה ותהי לו לאשה", משמע, שלא היו קידושין לפני כן, אלא הכניסה תיכף לביתו.
+[בדרז"ל מצינו אמנם שיצחק קידש את רבקה, אם ע"י הכלי כסף וכלי זהב שנתן אליעזר לרבקה[ftnref\_2076\_31], או כשבאה ל­ביתו[ftnref\_2077\_32] — אבל כ"ז לא הובא כלל ב­פרש"י על התורה].
+וכן מצינו ביעקב, דכאשר הכניס לבן את לאה ליעקב במקום רחל ויבוא אלי', היתה טענת יעקב רק "למה רימיתני"[ftnref\_2078\_33], אבל לא ערער על נישואין כאלו בלי קידושין[ftnref\_2079\_34].
+ומכיון שפשטות המקראות מורה שלא היו אירוסין לפני הנישואין אצל האבות — את"ל שס"ל לרש"י שאינו כן, אלא שקידשו נשותיהן לפני הנישואין, הו"ל לכתוב כן בפירוש.
+ד. ויש לומר הביאור בזה:
+בנוגע לאופן הנישואין לפני מ"ת כתב הרמב"ם בריש הל' אישות "קודם מ"ת הי' אדם פוגע אשה בשוק אם רצה הוא והיא. . מכניסה לתוך ביתו ובועלה בינו לבין עצמו ותהי' לו לאשה", וממשיך: כיון שנתנה תורה נצטוו ישראל שאם ירצה האיש לישא אשה יקנה אותה תחלה בפני עדים ואחר כך תהי' לו ל­אשה שנאמר[ftnref\_2080\_35] כי יקח איש אשה. . וליקוחין אלו הן הנקראין קידושין או אירוסין בכל מקום. . וכיון שנקנית האשה ונעשית מקודשת אע"פ שלא נבעלה ולא נכנסה לבית בעלה הרי היא אשת איש והבא עלי' חוץ מבעלה חייב מיתת ב"ד.
+ויש לומר, שזה שלפני מ"ת לא היו קיימים "ליקוחין אלו. . הנקראין קידו­שין או אירוסין" אינו (רק) מפני שעדיין לא נצטוו ע"ז, אלא משום שלפני הדיבור אין כל ענין "ליקוחין" הללו. שהרי ענין "אשת איש" (בפשטות) אינו שהאשה קנוי' לבעל כחפץ הנקנה לאדם, אלא שהאיש ואשה חיים ביחד, ע"ד לשון הכתוב[ftnref\_2081\_36] "ודבק באשתו". ולכן, לולא ציווי ותוקף התורה, אין מקום לומר שיש "ליקוחין" שבכחם לפעול קשר שיחול על האשה שם "אשת איש" כאשר עדיין "לא נבעלה ולא נכנסה (אפילו) לבית בעלה". ואין זה אלא חידוש התורה, שהאדם קונה "אותה תחלה. . ואחר כך תהי' לו לאשה", היינו שהתורה חידשה לא רק את החיוב, שהאדם צריך לקדש את האשה תחלה,
+
+## 245
+
+אלא גם עצם האפשריות לקנות אשה (לפני נישואי' בפועל), שרק ציווי התורה הוא הוא המהווה מציאות ("ליקוחין") כזו[ftnref\_2082\_37].
+ויש לומר, שגם ע"פ פשוטו של מקרא כן הוא — דאף שענין זה לא הובא ב­פירוש רש"י על התורה[ftnref\_2083\_\*37] (היינו — בלי­מוד ע"ד הפשט), וכבר נת' כמ"פ שאין פירושי רש"י על התורה מוכרחים להת­אים עם המבואר בחלק ההלכה שבתורה, כי רש"י לא בא בפירושו אלא לפרש פשוטו של מקרא[ftnref\_2084\_38] — הרי ענין זה (ב­נוגע לגדר אירוסין) הוא מילתא שב­סברא (גם בדרך הלימוד ע"ד הפשט).
+ומה שכתב רש"י עה"פ[ftnref\_2085\_39] (אצל לוט) "חתניו לוקחי בנותיו" — "חתניו, שתי בנות נשואות כו'; לוקחי בנותיו, שאותן שבבית ארוסות להם", הרי להדיא שהי' גדר "ארוסה" גם לפני מ"ת (ואפילו אצל לוט) — ברור שאין הכוונה בזה לדין ארוסה שלאחר מ"ת (שבלאה"כ תמוה לומר שאנשי סדום "לוקחי בנותיו" של לוט התנהגו ע"פ דין תורה!), אלא ה­כוונה לשידוכין. דפשיטא שגם לפני מ"ת הי' ענין השידוכין וזמן הכנה לפני הני­שואין, וע"ד מה שמצינו אצל רבקה[ftnref\_2086\_40], שאמה ואחי' ביקשו שינתן לה "זמן י"ב חדש לפרנס את עצמה בתכשיטים" — אבל אין בכח שידוכין אלו לפעול חלות ענין חדש, "אשת איש" על האשה.
+וזהו הטעם שלא מצינו שהאבות (וה­שבטים) קידשו את נשותיהם לפני הני­שואין[ftnref\_2087\_41] — כי זה שקיימו האבות את כל התורה כולה עד שלא ניתנה, היינו ב­מצות כאלו שגם לפני מתן תורה יתכן קיומן באופן ע"ד לאחר מ"ת, אלא ש­עדיין לא נצטוו על עשייתן; משא"כ מצות שכל גדר קיומן נתהווה רק על ידי הציווי — אין מתאים לומר שקיימו אותן לפני מ"ת. והוא הדבר בנדון קידו­שי אשה, מכיון שכל גדר הקידושין נת­חדש ע"י ציווי התורה, לא שייך שקיימו זה לפני מ"ת[ftnref\_2088\_42].
+ה. ע"פ הנ"ל יש לבאר תוכן החידוש שמצינו אצל יוסף, שכתב "שטר אירו­סין":
+על פי האמור לעיל מובן ש"אירוסין" כאן פירושו "שידוכין", ו"שטר אירוסין" היינו שטר של ראי' שנתקשר בשידוך. והטעם לזה שהי' בידו שטר לראי' על שידוכין הוא משום שרצה להחמיר ע"ע ולהתנהג כפי האפשרי שיהי' אצלו עכ"פ מעין הקידושין שלאחרי מ"ת. ולכן כתב "שטר אירוסין" — שלא זו בלבד (שנישו­איו לא היו באופן של "אדם פוגע אשה בשוק. . מכניסה (תיכף) לתוך ביתו כו'", כ"א) שהיו אצלו אירוסין, היינו שידוכין
+
+## 246
+
+כו' וזמן הכנה להנישואין [שבזה לחוד אין חידוש, דודאי גם אצל האבות הי' כן[ftnref\_2089\_43] (ואפילו אצל בנות לוט), וכנ"ל] — אלא עוד זאת, שכתב אירוסין אלו ב­שטר, שיהי' לראי' שכן עשה, שבזה ניתן תוקף מיוחד בהתחייבות השידוכין שלו, שלא יוכלו להתחרט ממנה, ע"ד ומעין האירוסין שלאחרי מ"ת, שפועלים ומ­הווים ענין "אשת איש".
+וכמובן בפשטות: בפעולה שאינה בת קיימא, אין תועלת בכתיבת שטר לראי' בעתיד על פעולה זו; ורק בפעולה בת קיימא כותבים שטר לראי', כדי שלא יוכלו להכחישה בעתיד. וכן בעניננו: כדי לתת תוקף לאירוסין שלו [שמצד עצמם הרי (לפני מ"ת) אין להם תוקף כנ"ל] — כתב יוסף את אירוסיו בשטר, לראי' שאירס את אשתו[ftnref\_2090\_44].
+ויש לומר הטעם שרק ביוסף מצינו הידור זה — כי כיון שהי' במצרים, שה­מצריים הם "שטופי זימה"[ftnref\_2091\_45] (ובפרט ל­אחרי המאורע עם אשת פוטיפר), היתה צריכה להיות זהירות מיוחדת ותוספת חומרא וקדושה בעניני אישות, ולכך הו­סיף בנישואיו שיהי' עכ"פ מעין האירו­סין שלאחר מ"ת, שתיכף, בזמן ההכנה לנישואין, נעשית האשה מיוחדת לאיש זה וכו'.
+וע"פ זה יש לומר, שזה הי' המכוון בדברי יעקב "מהיכן יצאו אלו": אין ה­כוונה ב"יצאו" — נולדו, לחשוש שנולדו מנשואין שלא כהוגן, אלא זהו ביטוי של תמי': "מהיכן יצאו כו'" — מאיזה טעם וסיבה יצאו מהיות ראויים לברכה; וב­פשטות: כיון שנולדו בארץ של "שטופי זימה", חשש שמא זה גרם שלא יהיו ראויים לברכה.
+ומעתה יובן גם תוכן מענה יוסף על תמיהת יעקב ("מהיכן יצאו אלו שאינן ראויין לברכה") — "בני הם אשר נתן לי אלקים בזה", בניו (לא רק כפשוטו, אלא) "אשר נתן לי אלקים בזה", שהם בני נישואין כאלו שהיו בתכלית השלימות, אפילו לגבי הנהגת האבות עצמם — ולראי' על זה "הראה לו שטר אירוסין".
+ו. ויש לומר, שעד"ז היא כוונת רש"י ב"שטר כתובה" — ובהקדם מה שיש ל­דייק בלשון רש"י "ושטר כתובה" — ד­לכאורה תיבת "ושטר" מיותרת, והי' מספיק לכתוב "(שטר אירוסין ו)כתובה" (כפי שנק' בכל מקום, וגם בפרש"י לעיל)[ftnref\_2092\_46].
+והביאור:
+ענין הכתובה מצינו כבר לפנ"ז ואפי­
+
+## 247
+
+לו בנוגע לשכם, "הרבו עלי מאוד מהר — כתובה" (כנ"ל רס"ב), ומפורש בנוגע ליצחק ורבקה "שכך כתב לה יצחק ב­כתובתה ליטול שני גדיי עזים בכל יום"[ftnref\_2093\_47], וגם מפורש בפרש"י לעיל (כנ"ל) ד"נשים (סתם) בכתובה (ורק) פילגשים בלא כתובה".
+אבל כתובה בכלל (שמצינו גם לפני מ"ת) היא רק ההתחייבות דהבעל על נתינת ממון וכל הצרכים לאשה, אבל אינה קשורה עם עצם הנישואין, ולכן אין הכרח שתהי' בכתב; משא"כ אחר מ"ת, הרי ענין הכתובה שייך לעצם ה­נישואין, וכמ"ש הרמב"ם[ftnref\_2094\_48] "מ"ע לישא אשה בכתובה וקידושין", וכן אסור לדור עם אשתו אם אבדה כתובתה[ftnref\_2095\_49].
+וזהו דיוק לשון רש"י "שטר כתובה" — דכיון שיוסף השתדל שנישואיו יהיו מעין הנישואין שלאחרי מ"ת, לכן דייק שיהי' לו "שטר כתובה"[ftnref\_2096\_50].
+ז. מיינה של תורה שבפירוש רש"י:
+הטעם (הפנימי) לזה שלפני מ"ת לא הי' ענין של אירוסין וקידושין — הוא מפני שענין הקידושין (לאחרי מ"ת) אינו רק קנין בקשר לחיי אישות, אלא הוא ענין של קדושה, ובלשון הגמ'[ftnref\_2097\_51] בטעם שם "קידושין" — "דאסר לה אכולי עלמא כהקדש", שהאירוסין הם דוגמת הקדש[ftnref\_2098\_52], וכנוסח ברכת אירוסין "מקדש עמו ישראל על ידי חופה וקידושין". וארז"ל[ftnref\_2099\_53] "איש ואשה זכו שכינה שרוי' ביניהם", כי תכלית ענין הנישואין הוא שתהי' "שכינה שרוי' ביניהם".
+ולכן עצם ענין הקידושין לא יתכן אלא לאחרי מ"ת, כי לפני מ"ת לא הי' שייך שתהי' השראת קדושה כזו בגש­מיות העולם, כי אין זה ביכלתו של אדם (נברא) להמשיך בכח עצמו קדושה עליו­נה כזו, וזה נעשה רק על ידי ציווי ה­תורה, שזוהי נתינת כח מהבורא ית' להמשיך קדושה עליונה זו בחיי איש ואשה.
+אמנם מצד מעלתו של יוסף (גם לגבי האבות והשבטים) — כמבואר בכ"מ[ftnref\_2100\_54] — הי' ביכולתו להמשיך עכ"פ מעין קדושה זו גם לפני מ"ת. וע"ד משנ"ת במק"א[ftnref\_2101\_55] בדברי המדרש[ftnref\_2102\_56] "ששמר יוסף את השבת קודם שלא תינתן" — שקדושת השבת ב­עצמותה היא למעלה מגדר העולם, ו­מעלתו של יוסף היא, שגם קודם שניתנה קדושה זו למטה הי' מרגיש קדושה עליונה זו דשבת, שלמעלה מן הבריאה, וזוהי המעלה המיוחדת שבשמירת שבת
+
+## 248
+
+של יוסף "קודם שלא תינתן" — שב­שמירת שבת שלו היתה נרגשת קדושת שבת העליונה.
+וזהו גם הטעם (ע"פ פנימיות הענינים) שאצל יוסף הי' "שטר אירוסין" — להורות, שהאירוסין והקידושין שלו היו באופן שהמשיך את הקדושה שבענין האירוסין (עד כמה שהי' אפשר קודם מ"ת) למטה בגשמיות העולם, בדיו על הקלף — "שטר אירוסין"[ftnref\_2103\_57].
+[quotation](משיחות ש"פ ויחי וש"פ שמות תשמ"ז) [/quotation]
+
+**English:**
+
+## Sicha 2
+
+**1.** "And Yisrael saw the sons of Yosef and said, 'Who are these?' And Yosef said to his father, 'They are my sons, whom Elokim has given me here.'" Rashi explains the intent of Yaakov’s question, "Who are these?"
+
+[Seemingly, according to the literal meaning, this is puzzling: Rashi had already explained the words "And Yisrael saw the sons of Yosef" as "he sought to bless them," meaning he knew they were Yosef’s sons. (And even though "the eyes of Yisrael were heavy with age, he could not see," it can be explained simply that he recognized them by their voices or the like (especially since they were frequently with him), or that Yaakov understood that when his days drew near to die, Yosef would bring his sons with him so that Yaakov could bless them before his death)—so why his question, "Who are these?"—and therefore he explained:]
+
+"From where did these come, who are not worthy of a blessing?" (And this follows the context that "he sought to bless them and the Shechinah departed from him, etc." (as Rashi writes in the entry *She'lifnei Zeh*), from which Yaakov understood that Yosef’s sons were not worthy of a blessing); and to this Yosef answered, "They are my sons, whom Elokim has given me here"—"He showed him a *shtar erusin* (betrothal document) and a *shtar kesubah* (marriage contract)."
+
+The commentators write that Yaakov suspected that Yosef’s sons were "not worthy of a blessing" because they were not born in purity according to the law—perhaps Yosef had taken a wife from the daughters of the Egyptians or other nations (and had not converted her)—and to this Yosef showed him the *shtar erusin*, etc., to prove that he had taken her as a wife "in a manner that *kiddushin* would take effect, and he betrothed her with complete *kiddushin*."
+
+This interpretation has already been questioned—"For all seventeen years they were sitting and occupying themselves with Torah before him... If so, he surely knew and recognized whether there was a flaw in their lineage or not, and he would not have needed to show him a *shtar erusin* and *shtar kesubah* for this." Furthermore—"How is it possible to entertain the thought... to suspect Yosef of having relations with any of the forbidden unions, etc.... Surely Yaakov did not suspect Yosef of taking a wife from the daughters of the Egyptians or other nations in her state of paganism, Heaven forbid; rather, she was certainly converted beforehand" [as Rashi explains above on the verse "And Yisrael bowed upon the head of the bed"—"because his bed was complete... for Yosef... stands in his righteousness"].
+
+Therefore, they explained that Yaakov did not suspect a flaw in their lineage, but rather "Yaakov thought... that Yosef had taken Osnas only as a concubine without *erusin* and without a *kesubah*, since he had not taken her by his own choice but by the command of the King who gave her to him as a wife... therefore he showed him the *shtar erusin* and *shtar kesubah* as proof that she was his wife in truth and not a concubine, for one does not write a *kesubah* for a concubine."
+
+But seemingly, this still does not resolve the aforementioned difficulty—for even if there was no prohibition in the marriage to Osnas, as even Avraham had a concubine (and it was only that "the sons of the concubines that Avraham had," he sent away from Yitzchak his son, and even "he delivered a name of impurity to them")—nevertheless, if you say that these children had some deficiency in their holiness, etc. (to the point that they were not worthy of a blessing), how did Yaakov not sense this during all those seventeen years?
+
+Furthermore: to prove that Osnas was not a concubine but his actual wife, it would have been sufficient to show him the *shtar kesubah*; there was no need to show a *shtar erusin*—for according to Rashi, this is the difference between wives and concubines: "Wives [are taken] with a *kesubah*, concubines without a *kesubah*." Since she had a *kesubah*, she was certainly not a concubine.
+
+Most puzzling of all: in the words of Chazal (before us)—Targum Yonasan and Maseches Kallah—only the *shtar kesubah* is mentioned, not the *shtar erusin*. What compelled Rashi to add the *shtar erusin*?
+
+**2.** One must also understand what Rashi means by "He showed him a *shtar erusin* and a *shtar kesubah*." Seemingly: it is understandable that a *shtar kesubah* is a common thing in every marriage (and it should be noted that even among the nations there is the concept of a *kesubah*, as we found earlier regarding Shechem, who said, "Ask me never so much dowry," and Rashi explains "a *kesubah*")—but where would one get the idea that Yosef betrothed Osnas specifically through *kiddushei shtar* (betrothal by document), to the point that he had a *shtar erusin* in his hand?!
+
+Some commentators suggest that Yosef did this from the outset "so that he could show clear proof to his father Yaakov that he had taken her as a wife and not as a concubine, because he was a wise man who foresees the future." But aside from the aforementioned difficulty (Section 1) that Yosef did not need a *shtar erusin* "to show clear proof to his father Yaakov that he had taken her as a wife and not as a concubine," because a *shtar kesubah* is sufficient for that—there is no hint in Rashi that Yosef did this from the outset "because he was a wise man who foresees the future" (and the logic itself is also questionable, that Yosef feared in advance that his father Yaakov would not believe his words, and therefore he had to prepare "clear proof" that he had married her with *erusin*).
+
+Others have answered based on the *halacha* "with what the Rambam writes at the beginning of *Hilchos Ishus* that *kiddushei shtar* and *bi'ah* (cohabitation) are from the Torah, and *kiddushei kesef* (money) are from the Sages, and the commentators there explain that it is called 'from the Sages' because *kiddushei kesef* is not explicitly written in the Torah, but we derive it through a *gezeirah shavah* of 'taking' from the field of Efron. It is known that we hold that a person does not derive a *gezeirah shavah* on his own unless he received it from his teacher. When Yosef separated from his father, it is possible that he had not yet learned this *gezeirah shavah*, and therefore he could not learn it on his own (and he did not betroth through *bi'ah*, for the Sages punish one who betroths through *bi'ah*), and therefore he was compelled to betroth through a *shtar*."
+
+However, seemingly, all of this is in the style of *pilpul* and *halacha*, whereas Rashi on the Torah is strictly in the style of *peshat*.
+
+Therefore, it appears that Rashi’s intent in "a *shtar erusin*" is not a document by which she was betrothed, for *kiddushei shtar* (especially since in the simple reading of the verses and in Rashi on the Torah we do not find—even after the giving of the Torah, and certainly before the giving of the Torah—that a woman is betrothed by a document)—but rather a "document" in its regular and simple sense (even to a "five-year-old for Scripture"): a document written (only) as proof of a matter, for a record. And so it is in our case, that Yosef had a document of proof regarding his *erusin*.
+
+But even according to this interpretation, it is difficult: why did Yosef write a document of proof regarding his *erusin*, a thing for which we find no peer throughout all the generations, and certainly *kal v'chomer* during the time of the Patriarchs and the Tribes (and as mentioned above, it is forced to say that he wrote this only so that he would have "clear proof for his father Yaakov" that he had married her with *erusin*)?
+
+**3.** All of this will be understood by prefacing a general clarification regarding the matter of *erusin* and *nisuin* before the giving of the Torah:
+
+It is a simple matter, even according to the literal meaning of Scripture, that Avraham Avinu kept the entire Torah before it was given, as Rashi writes that he kept even "decrees (of the Sages)... secondary forbidden unions, etc.... the Oral Torah, *halacha l'Moshe mi'Sinai*." Regarding Yaakov, he wrote, "I have kept the 613 commandments," from which it is understood that this is the case regarding Yitzchak (and it is explicit in Rashi that he kept many commandments)—and yet it is not explained (in the simple reading of Scripture) that they betrothed their wives before they married them. On the contrary—from the simplicity of the language of the verses regarding Yitzchak, "And Yitzchak brought her into the tent of Sarah his mother, and he took Rivkah and she became his wife," it implies that there was no *kiddushin* beforehand, but rather he brought her immediately into his house.
+
+[In the words of Chazal, we do find that Yitzchak betrothed Rivkah, whether through the silver and gold vessels that Eliezer gave to Rivkah, or when she came to his house—but all of this is not brought at all in Rashi on the Torah.]
+
+And so we find regarding Yaakov, that when Lavan brought Leah to Yaakov in place of Rachel and he came to her, Yaakov’s complaint was only "Why have you deceived me?" but he did not challenge such a marriage without *kiddushin*.
+
+And since the simplicity of the verses indicates that there was no *erusin* before the *nisuin* among the Patriarchs—if you say that Rashi holds that it is not so, but rather that they did betroth their wives before the *nisuin*, he should have written so explicitly.
+
+**4.** It can be said that the explanation for this is:
+
+Regarding the manner of marriage before the giving of the Torah, the Rambam writes at the beginning of *Hilchos Ishus*, "Before the giving of the Torah, a man would encounter a woman in the marketplace; if he and she desired... he would bring her into his house and cohabit with her in private, and she would be his wife." He continues: Once the Torah was given, Yisrael were commanded that if a man wishes to marry a woman, he must acquire her first in the presence of witnesses, and afterwards she becomes his wife, as it is said, "When a man takes a woman..." And these "takings" are what are called *kiddushin* or *erusin* everywhere... And once the woman is acquired and becomes betrothed, even if she has not cohabited and has not entered her husband’s house, she is a married woman, and one who has relations with her other than her husband is liable to the death penalty by the court.
+
+It can be said that the fact that before the giving of the Torah these "takings... called *kiddushin* or *erusin*" did not exist is not (only) because they had not yet been commanded regarding it, but because before the [Divine] Speech, there is no such concept as these "takings." For the concept of a "married woman" (in the simple sense) is not that the woman is acquired by the husband like an object acquired by a person, but that the man and woman live together, according to the language of the verse, "And he shall cleave to his wife." Therefore, were it not for the command and the power of the Torah, there is no place to say that there are "takings" with the power to effect a bond that would impose upon the woman the status of a "married woman" when she still "has not cohabited and has not (even) entered her husband’s house." This is nothing but a innovation of the Torah, that the man acquires "her first... and afterwards she shall be his wife," meaning that the Torah innovated not only the obligation, that a man must betroth the woman first, but also the very possibility of acquiring a woman (before her actual marriage), for only the command of the Torah is what constitutes such a reality ("takings").
+
+It can be said that even according to the simple reading of Scripture this is so—for even though this matter was not brought explicitly in Rashi on the Torah (meaning—in learning according to *peshat*), and it has already been explained many times that Rashi’s commentaries on the Torah are not required to align with what is explained in the *halachic* part of the Torah, because Rashi only came in his commentary to explain the simple meaning of Scripture—this matter (regarding the definition of *erusin*) is a matter of logic (also in the way of learning according to *peshat*).
+
+And what Rashi wrote on the verse (regarding Lot), "his sons-in-law, who took his daughters"—"his sons-in-law, two married daughters, etc.; who took his daughters, those who were in the house were betrothed to them," clearly shows that there was a definition of "betrothed" even before the giving of the Torah (and even regarding Lot)—it is clear that the intent here is not the law of a betrothed woman after the giving of the Torah (for it is puzzling to say that the men of Sedom, "who took the daughters" of Lot, behaved according to the law of the Torah!), but rather the intent is to *shidduchin* (betrothal/engagement). For it is obvious that even before the giving of the Torah there was the concept of *shidduchin* and a time of preparation before the marriage, according to what we find regarding Rivkah, that her mother and brother requested that she be given "a time of twelve months to provide for herself with jewelry"—but these *shidduchin* do not have the power to effect the status of a new matter, "a married woman," upon the woman.
+
+And this is the reason we do not find that the Patriarchs (and the Tribes) betrothed their wives before the marriage—because the fact that the Patriarchs kept the entire Torah before it was given, refers to commandments that even before the giving of the Torah could be kept in a manner similar to after the giving of the Torah, only that they had not yet been commanded to do them; whereas commandments whose entire definition of existence was created only through the command—it is not appropriate to say that they kept them before the giving of the Torah. And this is the matter regarding the betrothal of a woman; since the entire definition of *kiddushin* was innovated by the command of the Torah, it is not applicable that they kept this before the giving of the Torah.
+
+**5.** Based on the above, one can explain the content of the innovation we find regarding Yosef, that he wrote a "shtar erusin":
+
+Based on what was said above, it is understood that "*erusin*" here means "*shidduchin*," and a "*shtar erusin*" means a document of proof that he had bound himself in a *shidduch*. The reason he had a document as proof of *shidduchin* is because he wanted to be stringent with himself and behave according to the possibility of having at least a semblance of the *kiddushin* that would exist after the giving of the Torah. Therefore, he wrote a "*shtar erusin*"—not only (that his marriage was not in the manner of "a man encounters a woman in the marketplace... brings her (immediately) into his house, etc.," but) that he had *erusin*, meaning *shidduchin*, etc., and a time of preparation for the marriage [in which there is no innovation on its own, for surely even among the Patriarchs this was so (and even among the daughters of Lot), as mentioned above]—but furthermore, that he wrote these *erusin* in a document, to serve as proof that he had done so, by which a special validity was given to his *shidduchin* commitment, so that they could not retract it, in the manner and semblance of the *erusin* after the giving of the Torah, which act and constitute the matter of a "married woman."
+
+And as is understood simply: in an action that is not lasting, there is no benefit in writing a document of proof for the future regarding this action; only in a lasting action does one write a document of proof, so that they cannot deny it in the future. And so in our case: to give validity to his *erusin* [which in themselves (before the giving of the Torah) have no validity, as mentioned above]—Yosef wrote his *erusin* in a document, as proof that he had betrothed his wife.
+
+It can be said that the reason we find this *hiddur* (beautification of a mitzvah) only in Yosef is because since he was in Egypt, and the Egyptians were "steeped in immorality" (especially after the incident with the wife of Potiphar), there needed to be special caution and an addition of stringency and holiness in matters of marriage, and therefore he added to his marriage that there should be at least a semblance of the *erusin* after the giving of the Torah, that immediately, during the time of preparation for marriage, the woman becomes designated to this man, etc.
+
+And based on this, it can be said that this was the intent in Yaakov’s words, "From where did these come": the intent of "come" is not "born," to suspect that they were born from a marriage that was not proper, but rather this is an expression of wonder: "From where did these come, etc."—for what reason and cause did they come out as not worthy of a blessing; and simply: since they were born in a land of those "steeped in immorality," he feared that perhaps this caused them not to be worthy of a blessing.
+
+And from now on, one can also understand the content of Yosef’s answer to Yaakov’s wonder ("From where did these come, who are not worthy of a blessing")—"They are my sons, whom Elokim has given me here," his sons (not only literally, but) "whom Elokim has given me here," that they are sons of such a marriage that was in the ultimate perfection, even regarding the conduct of the Patriarchs themselves—and as proof of this, "He showed him a *shtar erusin*."
+
+**6.** It can be said that this is likewise the intent of Rashi in "a *shtar kesubah*"—and by prefacing what must be noted in Rashi’s language, "and a *shtar kesubah*"—for seemingly the word "*shtar*" is superfluous, and it would have been sufficient to write "(a *shtar erusin* and) a *kesubah*" (as it is called everywhere, and also in Rashi above).
+
+The explanation:
+
+We already found the matter of the *kesubah* beforehand, and even regarding Shechem, "Ask me never so much dowry—a *kesubah*" (as mentioned above, 242), and it is explicit regarding Yitzchak and Rivkah "that Yitzchak wrote for her in her *kesubah* to take two young goats every day," and it is also explicit in Rashi above (as mentioned above) that "wives (in general) [are taken] with a *kesubah*, (only) concubines without a *kesubah*."
+
+But a *kesubah* in general (which we find even before the giving of the Torah) is only the husband’s obligation regarding the giving of money and all the needs of the woman, but it is not connected with the marriage itself, and therefore there is no necessity that it be in writing; whereas after the giving of the Torah, the matter of the *kesubah* belongs to the marriage itself, as the Rambam writes, "A positive commandment to marry a woman with a *kesubah* and *kiddushin*," and likewise it is forbidden to live with his wife if her *kesubah* is lost.
+
+And this is the precision of Rashi’s language, "a *shtar kesubah*"—for since Yosef strove that his marriage should be a semblance of the marriage after the giving of the Torah, therefore he was precise that he should have a "*shtar kesubah*."
+
+**7.** The *Pnimiyus HaTorah* (inner dimension of the Torah) in Rashi’s commentary:
+
+The (inner) reason for the fact that before the giving of the Torah there was no concept of *erusin* and *kiddushin*—is because the concept of *kiddushin* (after the giving of the Torah) is not only an acquisition connected to marital life, but it is a matter of holiness. In the language of the Gemara regarding the reason for the name "*kiddushin*"—"that it forbids her to the entire world like a *hekdesh* (consecrated object)," that *erusin* is like *hekdesh*. And as the formula of the *erusin* blessing says, "Who sanctified His people Yisrael through *chuppah* and *kiddushin*." And our Sages said, "A man and a woman, if they are worthy, the Shechinah dwells between them," because the purpose of the matter of marriage is that "the Shechinah should dwell between them."
+
+Therefore, the very matter of *kiddushin* is not possible except after the giving of the Torah, for before the giving of the Torah it was not applicable that there should be such an indwelling of holiness in the physicality of the world, for it is not within the power of a person (a created being) to draw down such a supernal holiness by his own power, and this is done only through the command of the Torah, which is the giving of power from the Creator, may He be blessed, to draw down this supernal holiness into the life of a man and woman.
+
+However, due to Yosef’s greatness (even regarding the Patriarchs and the Tribes)—as explained in many places—it was in his power to draw down at least a semblance of this holiness even before the giving of the Torah. Similar to what is explained in another place regarding the words of the Midrash, "that Yosef kept the Shabbos before it was given"—that the holiness of Shabbos in its essence is above the definition of the world, and Yosef’s greatness is that even before this holiness was given below, he would feel this supernal holiness of Shabbos, which is above creation, and this is the special greatness in Yosef’s keeping of Shabbos "before it was given"—that in his keeping of Shabbos, the supernal holiness of Shabbos was felt.
+
+And this is also the reason (according to the inner dimension of matters) that regarding Yosef there was a "*shtar erusin*"—to indicate that his *erusin* and *kiddushin* were in a manner that he drew down the holiness that is in the matter of *erusin* (as much as was possible before the giving of the Torah) below into the physicality of the world, in ink on parchment—a "*shtar erusin*."
+
+(From the *sichos* of *Shabbos Parshas Vayechi* and *Shabbos Parshas Shemos* 5747)
+
+---
+
+_Section: ויחי_
+
+**Hebrew:**
+
+## שיחה ג
+
+## 253
+
+כו'), דהיינו ההכנה ליצירת עם ישראל וכו'; ואילו ספר שמות הוא הסיפור דיציאת מצרים ונתינת התורה וכו'.
+ולכאורה, ע"פ זה היתה צ"ל התחלת ספר שמות בסיפור יציאת מצרים[ftnref\_2145\_39], שאז "נולד" עם ישראל[ftnref\_2146\_40] (וע"ד דברי רש"י הנ"ל "לא הי' צריך להתחיל את התורה אלא מהחודש הזה לכם"), ומה טעם פתח ספר שמות בסיפור גלות מצרים[ftnref\_2147\_41]?
+[וגם לפי פשוטו, ההפסק בין הספרים הוא לכאורה באמצע ענין, שהרי כבר מסופר בספר בראשית (בפ' ויגש[ftnref\_2148\_42]) ע"ד ירידת יעקב ובניו למצרים, וא"כ הי' לכאורה מתאים יותר שגם המשך הסי­פור ע"ד גלות מצרים (קושי השעבוד וכו') יבוא באותו הספר (בראשית), וב­ספר שלאח"ז יתחיל בענין חדש — גאו­לת ישראל ממצרים].
+וע"פ הנ"ל יש לומר:
+כשם שפתיחת (כל) התורה ב"בראשית ברא גו'" היא משום שזהו תכלית ענין התורה — "לתת להם נחלת גוים", כנ"ל; עד"ז הוא בעניננו: ספר שמות הוא אמנם סיפור לידת עם ישראל ונתינת התורה להם, אבל ה"פתיחה" של סיפור זה היא לא במ"ת, וגם לא בסיפור יציאת וגאולת מצרים, אלא דוקא בסיפור "נחלת גוים" שבזה, בגלות מצרים, וע"ד ירידה ל­"מיצרים" וגבולים של העולם בכלל.
+כי מכיון שתכלית התורה היא ה­עבודה ד"לתת להם נחלת גוים" (בירור העולם) — לכן, גם ההכנה למ"ת היתה ע"י עבודה תוך גלות מצרים, באופן ש­עניני מצרים נכנסו לרשות ישראל (קדו­שה) בהיותם במצרים, שם — "וינצלו את מצרים"[ftnref\_2149\_43], "עשאוה כמצודה שאין בה דגן. . כמצולה שאין בה דגים"[ftnref\_2150\_44].
+ולכן התחלת הספר היא ע"ד גלות מצרים לאחרי הזמן ד"וימת יוסף וכל אחיו וכל הדור ההוא"[ftnref\_2151\_45], ולא בהזמן ד­ירידת יעקב למצרים — כי ירידת יעקב למצרים לא היתה ענין של גלות ממש, שהרי ישב בארץ גושן במיטב הארץ במצב של מנוחה ושלוה כו'[ftnref\_2152\_46], וכן הי' "כל זמן שאחד מן השבטים קיים"[ftnref\_2153\_47]; ורק לאחרי ש"וימת יוסף וכל אחיו וכל הדור ההוא" התחיל השעבוד וקושי שלו, עיקר הירידה דגלות מצרים[ftnref\_2154\_48].
+ח. ועפ"ז מובנת השייכות דתחילת ספר בראשית וסיומו — לתוכן הספר, "ספר הישר"[ftnref\_2112\_9]:
+ענינו של ספר בראשית (ובפרטיות — עד "החודש הזה לכם") בפשטות הוא — כפרש"י — מה ש"כח מעשיו הגיד לעמו", היינו לא ע"ד מציאות העולם כשלעצמה, כ"א אדרבה, ע"ד כחו ושליטתו של הקב"ה על העולם, שנמסר לישראל ("הגיד לעמו") — דבתחילת ספר ברא­שית מסופר ש"הוא בראה", ואח"כ איך
+
+## 254
+
+"נתנה לאשר ישר בעיניו, ברצונו נתנה להם (וברצונו נטלה מהם ונתנה לנו)";
+ומסירת כח זה לישראל היתה על ידי האבות, כמסופר בספר בראשית פעמים רבות ע"ד הבטחת הקב"ה לכאו"א משלשת האבות אודות נתינת הארץ, ועד שזה שישראל כבשו את הארץ בימי יהושע הי' על יסוד ירושת הארץ מן האבות, כפסק הדין[ftnref\_2156\_49] שא"י ירושה היא מאבותינו.
+וכן הוא בתוכן הרוחני — שכח זה שניתן לישראל, לשלוט על הארציות של עוה"ז ולכובשו לרשות הקדושה, נמשך לישראל על ידי האבות[ftnref\_2157\_50] שנקראו "יש­רים". שהאבות היו למעלה מעלה מן ה­עולם, ד"האבות הן הן המרכבה"[ftnref\_2158\_51], ש"כל אבריהם כולם היו קדושים ומובדלים מענייני עוה"ז ולא נעשו מרכבה רק לרצון העליון לבדו כל ימיהם"[ftnref\_2159\_52], ולכן לא הי' יכול גשם העולם לשלוט עליהם ח"ו.
+ו"שליטה" זו על העולם עוברת ב­ירושה לכאו"א מבנ"י, בתור "בנים". וכ­ידוע בענין "מעשה אבות סימן לבנים"[ftnref\_2160\_53], שמעשה האבות הוא נתינת כח לעבודת הבנים. דאף שמדריגת עבודת האבות היא למעלה מעלה ממדריגת עבודת ה­בנים, מ"מ, להיותם אבות, הרי כל עניני­הם עוברים בירושה לבניהם אחריהם עד עולם.
+ט. אמנם, כדי שיהי' קשר בין מעשה אבות לעבודת הבנים — צ"ל במעשה ה­אבות גופא מעין ודוגמא לדרגת הבנים.
+וזהו הטעם שסיום ספר בראשית הוא בענין ירידת יעקב ובניו למצרים, דעם היות שאצלם לא היתה זו גלות ממש כנ"ל, כי ישיבתם במצרים היתה באופן של מנוחה ושלוה כו' — מ"מ, ובפרט לגבי מדריגת יעקב בארץ מגורי אביו, ה"ז מצב של ירידה.
+ואצל יעקב היתה השליטה על מצרים בגלוי, כמש"נ[ftnref\_2161\_54] ויברך יעקב את פרעה, וכפרש"י[ftnref\_2161\_54] שברכו "שיעלה נילוס לרג­ליו. . ומברכתו של יעקב ואילך הי' פרעה בא אל נילוס והוא עולה לקראתו ומשקה את הארץ", גלוי לעיני פרעה שפרנסתם של מצרים תלוי' בברכת יעקב[ftnref\_2163\_55]!
+וכן מצד יוסף[ftnref\_2164\_56] — שהוא הי' השליט על מצרים, ובלעדיך לא ירים איש את ידו ואת רגלו בכל ארץ מצרים[ftnref\_2165\_57].
+ומצבם הרוחני של יעקב ויוסף וכו' במצרים הוא הנתינת כח[ftnref\_2166\_58] שנמסר לבניהם אחריהם בירושה, שגם בהיותם בגלות יוכלו לשלוט על הגלות.
+י. וענין זה הוא ה"סיום" דספר ברא­שית — איך שיוסף הצדיק סיפר ורמז לאחיו, דעם היות שכאן מסתיים "מעשה אבות" ומתחילה עבודת הבנים, הקשורה עם ירידה לגלות ממש — מ"מ "ואלקים פקוד יפקוד אתכם והעלה אתכם מן הארץ הזאת"; כי הגלות אין לו שליטה
+
+## 255
+
+ח"ו על ישראל אלא להיפך — כל ענין הגלות הוא כדי שבנ"י ישלטו עליו, ועד שעל ידי הירידה לגלות מתעלים בנ"י לעילוי נעלה יותר, "והעלה אתכם".
+וי"ל שזהו גם הטעם[ftnref\_2167\_59] לכך שיוסף נקבר במצרים, "ויישם בארון במצרים" — דלא כיעקב שנקבר בארץ ישראל דוקא ("ונשאתני ממצרים גו'"[ftnref\_2168\_60]) — כי עי"ז ניתן הכח לבנ"י בהיותם במצרים[ftnref\_2169\_61] שיתעלו למעלה מן הגלות וישלטו עליו[ftnref\_2170\_62], עד שעי"ז עלו ממצרים.
+וכן תהי' לנו, בגלותנו זה האחרון, ש"כימי צאתך מארץ מצרים אראנו נפלאות"[ftnref\_2171\_63],
+בגאולה האמיתית והשלימה על ידי משיח צדקנו,
+במהרה בימינו ממש.
+[quotation](משיחת ש"פ ויחי תשמ"ו) [/quotation]
+
+**English:**
+
+...that is, the preparation for the creation of the Jewish people, and so on; whereas the Book of Shemos is the narrative of the Exodus from Egypt, the giving of the Torah, and so on.
+
+Seemingly, based on this, the Book of Shemos should have begun with the narrative of the Exodus, at which point the Jewish people were "born" (similar to Rashi’s comment mentioned above, "The Torah should have begun only from 'This month shall be for you'"). What, then, is the reason the Book of Shemos opens with the narrative of the Egyptian exile?
+
+[Furthermore, even according to the literal meaning, the break between the books appears to occur in the middle of a subject. After all, the Book of Bereishis already recounts (in Parshas Vayigash) the descent of Yaakov and his sons to Egypt. If so, it would seemingly have been more appropriate for the continuation of the narrative regarding the Egyptian exile (the hardship of the servitude, etc.) to appear in that same book (Bereishis), and for the subsequent book to begin with a new subject—the redemption of the Jewish people from Egypt.]
+
+Based on the above, we can say:
+
+Just as the opening of the entire Torah with "In the beginning Hashem created..." is because this is the ultimate purpose of the Torah—"to give them the heritage of the nations," as mentioned above—so too is it in our case: The Book of Shemos is indeed the narrative of the birth of the Jewish people and the giving of the Torah to them, but the "opening" of this narrative is not with the giving of the Torah, nor even with the narrative of the Exodus and the redemption from Egypt, but specifically with the narrative of the "heritage of the nations" within it—in the Egyptian exile, and by way of the descent into the "narrow straits" (*mitzrayim*) and limitations of the world in general.
+
+For since the purpose of the Torah is the *avodah* of "giving them the heritage of the nations" (the refinement of the world), therefore, the preparation for the giving of the Torah was also through *avodah* within the Egyptian exile, in such a way that the matters of Egypt entered into the domain of the Jewish people (holiness) while they were still in Egypt. There, they "emptied out Egypt", "making it like a net with no grain... like a pool with no fish".
+
+Therefore, the beginning of the book is regarding the Egyptian exile after the time of "Yosef died, and all his brothers, and all that generation", and not at the time of Yaakov’s descent to Egypt. For Yaakov’s descent to Egypt was not a matter of true exile; he sat in the land of Goshen, in the best of the land, in a state of rest and tranquility, etc., and likewise, "as long as one of the tribes was alive". It was only after "Yosef died, and all his brothers, and all that generation" that the servitude and its hardships began—the essence of the descent into the Egyptian exile.
+
+8. And according to this, we can understand the connection between the beginning of the Book of Bereishis and its conclusion—to the content of the book, the "Book of the Upright":
+
+The subject of the Book of Bereishis (and specifically, until "This month shall be for you") is, simply put—as per Rashi—that which "He declared the power of His works to His people." That is, it is not about the reality of the world in and of itself, but rather, on the contrary, about the power and sovereignty of the Ribono shel Olam over the world, which was transmitted to the Jewish people ("He declared to His people"). At the beginning of the Book of Bereishis, it is told that "He created it," and subsequently, how He "gave it to whom it was right in His eyes; by His will He gave it to them (and by His will He took it from them and gave it to us)."
+
+The transmission of this power to the Jewish people was through the Patriarchs, as recounted many times in the Book of Bereishis regarding the promise of the Ribono shel Olam to each of the three Patriarchs concerning the giving of the Land. Indeed, the fact that the Jewish people conquered the Land in the days of Yehoshua was on the basis of the inheritance of the Land from the Patriarchs, according to the ruling that Eretz Yisrael is an inheritance from our forefathers.
+
+And so it is in the spiritual content: this power that was given to the Jewish people—to rule over the materiality of this world and to conquer it for the domain of holiness—is drawn down to the Jewish people through the Patriarchs, who are called "upright" (*yesharim*). For the Patriarchs were far above the world; "the Patriarchs are the Chariot", for "all their limbs were entirely holy and separated from the matters of this world, and they were made a chariot only for the Divine Will alone, all their days". Therefore, the physicality of the world could not rule over them, Heaven forbid.
+
+This "sovereignty" over the world passes as an inheritance to each and every one of the Jewish people, as "children." As is known regarding the concept that "the deeds of the Patriarchs are a sign for the children", the deeds of the Patriarchs provide the strength for the *avodah* of the children. Even though the level of the Patriarchs' *avodah* is far above the level of the children's *avodah*, nevertheless, because they are Patriarchs, all their matters pass as an inheritance to their children after them, forever.
+
+9. However, in order for there to be a connection between the deeds of the Patriarchs and the *avodah* of the children, there must be, within the deeds of the Patriarchs themselves, a semblance and example of the level of the children.
+
+This is the reason that the conclusion of the Book of Bereishis is with the matter of the descent of Yaakov and his sons to Egypt. Although for them this was not a true exile, as mentioned above—for their dwelling in Egypt was in a state of rest and tranquility, etc.—nevertheless, and especially in comparison to the level of Yaakov in the land of his father’s sojournings, this was a state of descent.
+
+And for Yaakov, the sovereignty over Egypt was manifest, as it is written, "And Yaakov blessed Pharaoh." As Rashi explains, he blessed him "that the Nile should rise to his feet... and from the blessing of Yaakov onwards, Pharaoh would come to the Nile and it would rise to meet him and water the land." It was manifest to the eyes of Pharaoh that the sustenance of the Egyptians depended on the blessing of Yaakov!
+
+And likewise from the side of Yosef—he was the ruler over Egypt, and "without you, no man shall lift his hand or his foot in all the land of Egypt".
+
+The spiritual state of Yaakov and Yosef, etc., in Egypt is the source of the strength that was transmitted to their children after them as an inheritance: that even while in exile, they would be able to rule over the exile.
+
+10. And this matter is the "conclusion" of the Book of Bereishis—how Yosef the Tzaddik told and hinted to his brothers that although here the "deeds of the Patriarchs" conclude and the *avodah* of the children begins, which is connected with a descent into actual exile—nevertheless, "Hashem will surely remember you, and bring you up from this land." For the exile has no power, Heaven forbid, over the Jewish people; rather, the opposite: the entire purpose of the exile is so that the Jewish people should rule over it, to the point that through the descent into exile, the Jewish people are elevated to an even higher level—"and bring you up."
+
+It can be said that this is also the reason that Yosef was buried in Egypt, "and he was placed in a coffin in Egypt"—unlike Yaakov, who was buried specifically in Eretz Yisrael ("and you shall carry me out of Egypt, etc."). For through this, the strength was given to the Jewish people while they were in Egypt to be elevated above the exile and to rule over it, until, through this, they ascended from Egypt.
+
+And so it shall be for us, in this our final exile, that "as in the days of your exodus from the land of Egypt, I will show you wonders", in the true and complete redemption through Mashiach Tzidkeinu, speedily in our days, truly.
+
+---
+
+
+## בראשית
+
+_Section: בראשית_
+
+**Hebrew:**
+
+## 259
+
+### בראשית
+
+...בהערתו במש"כ בדעת זקנים (בראשית בתחלתו) דהעולם פרוץ מרוח צפונית — כן הוא בב"ב (כה, ב), פדר"א פ"ג, זהר חדש לשה"ש, ברייתא דשמואל בתחלתה ועוד.
+הביאור — (ע"פ תכונה) — ראה בס' תורת העולה — להרמ"א — ח"ב. בפי' שבילי המאורות לברייתא הנ"ל. ועוד...
+[quotation](ממכתב אדר"ח מ"ח, תשי"ט)[/quotation]
+במענה על מכתבו מיום השלישי, בו כותב מה שהוקשה לו ע"פ השיטה דהבריאה היא בכל יום ובכל רגע וכמו שאנו אומרים המחדש בטובו בכל יום תמיד מעשה בראשית, אם כן מהו הענין דיום השבת שבו נאמר וביום השביעי שבת וינפש מהבריאה דששת ימי בראשית.
+והחילוק פשוט ע"פ מ"ש ויכולו השמים והארץ וכל צבאם ונאמר אין כל חדש תחת השמש, לאחרי גמר ששת ימי בראשית, כי מה שמחדש אח"ז בכל יום תמיד מעשה בראשית הרי זה חידוש הישנות, משא"כ בששת ימי בראשית שהוא חידוש מעיקרא, היינו דבר שמעולם לא הי' עד אז, יש מאין[ftnref\_2172\_\*]...
+[quotation](ממכתב כ"ח שבט, תשט"ז)[/quotation]
+... בנוגע למ"ש ע"ד השקפת התורה והיהדות המסורתית על תורת ההתפתחות, וכנראה שכוונתו לשיטה שמיסדה דארווין (או אפשר גם לשיטת לאמארק שהיא שיטת התפתחות בדילוג, שלא כשיטה הא'),
+
+## 262
+
+או, מתאים למסקנות היותר אחרונות של המדע, "נצחיות" סכום הכולל של החומר והאנרגיא, ואם כן, על פי חוק זה, הנה כל האטומים והחלקים שלהם נמצאו כבר בתחילת הבריאה (או שנמצאו לנצח, כפי דעת האפיקורסים). ולפי שיטת ההתפתחות צריך לומר שמתחילה היו כבר כל האטומים, אלא שהיו מפוזרים ואחר כך נתקבצו אחד לאחד באופנים שונים ומוזרים ובתנאים מיוחדים, אשר על פי חשבון הסטטיסטיקה והפרובאביליטי, האפשריות שימצאו תנאים מתאימים כל כך וכולם בבת אחת — היא רחוקה עד למאד; ולא עוד, אלא שלפי שיטה זו הכרח לומר שנמצאו תנאים אלו (שמנקודת מבט המדע כמעט שאי אפשריים הם) במשך מליונים ומליארדים שנה, והכל הי' הולך בכיוון אחד, היינו התפתחות מן הנמוך אל הגבוה והמפותח יותר.
+לאידך גיסא, מנקודת מבט המאמין, שהקב"ה ברא את כל מספר האטומים הנמצאים בעולם מאין ליש, לא יקשה בעיניו לומר שביכולת הבורא לברוא לא רק יצור בעל תא פשוט, אלא גם יצור בעל מליוני תאים שונים בבת אחת.
+הערה: יש מאמינים אוחזים בשיטת ההתפתחות, כי בלעדה קשה בעינם:
+למה הי' לו להקב"ה לברוא כל כך הרבה מינים שונים שאין הם רואים בהם תועלת וכו' וכו',
+אבל אין קושי' זו סרה על ידי שיטת ההתפתחות, כיון שע"פ תורה גם חוקי הטבע הם ברצון הקב"ה, ואם כן יקשה מהי התועלת בחוקי טבע כאלה שבסיבתם נבראו כמה מינים שלפי הבנת המקשים אין בהם תועלת וכו'.
+ו) נמצאו עוד כמה קושיות ואי­הבנה בתכלית בשיטת ההתפתחות גופא, וגם כמה מאנשי המדע חולקים עלי'. וראה לדוגמא ספרי פליישמאן ושינדעוואלף (הנקובים בשולי המכתב) אשר בהם ימצא בקורת חריפה על שיטה זו. כן בטח ידוע לו אשר בשיטת ההתפתחות עצמה יש כמה סתירות. וכמו בנוגע לחשבון קיום כדור הארץ, לדוגמא: החשבון על פי כמות המלח שבים אוקינוס, החשבון על פי כמות הר?דיום, העופרת והאורניום במקום מסוים, החשבון על פי מצב השמש עתה, החשבון על פי השרידים ושכבות האדמה, במקומות שונים, זו על גבי זו, — הנה תוצאות חשבונות אלו הן בניגוד בתכלית אחד לרעהו.
+ז) וזאת להעיר אשר גם אם יבוא מי ויאמר שאפשר שיתפתח עתה מין אחד מחברו וראה זה בעיניו, אין בזה כל סתירה לדת ולאמונתנו (אף שכנ"ל זוהי תופעה מוזרה ונפלאה שאין לאיש מדעי לקבלה עד שיביאו ראיות חותכות שאמת כן הדבר), ומה שאמרתי לעיל הוא רק זה, שסדר הבריאה בפועל הי' כפי שמסופר בתורתנו הק', היינו שביום שלישי הי' — תדשא הארץ דשא גו' עץ עושה פרי למינהו, היינו כל מין ומין בפני עצמו, כמאמר רז"ל (חולין דף ס, ב) וכל זה נברא במשך י"ב שעות של יום השלישי, ועל דרך זה היתה בריאת (או תלית) מאורות השמים והכוכבים ביום הרביעי, בריאת הדגים והעופות ביום החמישי, ובהמות וחיות ומין האדם ביום הששי.
+
+## 269
+
+האמור בדרוש הנ"ל [אף שאפילו בתקופה שלאחריו ובפרט בימינו שוללים אותן מסקנות המדע שבעל הדרוש לקח אותם לקו — אליו יתאים תוכן מאמרי רז"ל להבדיל], ולא עוד אלא שהדפיסו דעתם זו ופרסמוה בין הנוער ודור הצעיר ובלשונם אשר הקושיות על כמה מאמרי רז"ל משיטת ההתפתחות שיטת דרבין וכו' כבר מתורצות הן בדרוש אור החיים לבעל התפארת ישראל!
+ודוגמא עוד יותר מפתיעה: ידוע עד כמה נתלבטו בפירוש הכתוב והארץ לעולם עומדת, איך זה יתאים לשיטת קופרניק להבדיל וחשבו הענין לענין של מצוה לעקם פירוש הכתובים וכו' ודוקא שיטת היחסיות שבדורנו נתקבלה על אנשי המדע כאמת "מוחלטת" (מבלי שידגישו, לע"ע, על הסתירה שבדבר מני' ובי') ושיטה זו אומרת, ששתי ההשערות, מי העומד ומי המסבב בשוה הן, וכל קושי' שיש למצוא על השערה אחת תהי' ג"כ (בצורה שונה קצת) על ההשערה השני', וכן בהנוגע להגיאומטרי' של אקלידוס והחולקים עלי', שמסקנות המדע עתה שלכולן יש מקום וכל קושיא שיש למצוא על השערה אחת תהי' ג"כ (בצורה שונה קצת) על השערה השני'.
+ולסייע לזה כתבתי ג"כ שיש להצהיר ובפרט לדור הצעיר שאין כל מקום לקושיות על דת ואמונה כשם שאין להקשות משמא על הברי, ועי"ז בטלה כל הדחיפה לכתיבת חומר האפולוגוטי ומתווך כמובן, וכיון שבטלה הדחיפה נשאר רק ההיזק מחומר זה, היזק הפשרה שמצננת את האדם ו"מפשרת" את האמת, וכנ"ל לא רק מפשרת אלא לאמיתתה היפך האמת.
+ובהמשך לזה כתבתי ג"כ דעתי, אשר כיון שמוצאו ממקום שם נתפשטה דוקא שיטת האפולוגטיקה וכו' שהוא יראה את האי­נכונות שבדבר, ומוזר הדבר אף שגם ע"ז ישנו ביאור שקשה יותר להוכיח השמא שבמדע לכמה רבנים זקנים מדור הישן, מאשר להצעירים העוסקים במדע ואין חדורים כ"כ רגש אמונה, עד כדי כך נשתרשה יראת המדע ושכלו אצל כמה מרבנים האמורים!
+ואוסיף שורות הבאות: כיון שחוששני שגם בעיניו יקשה לערער את היסודות עליהם נבנה בית דחוקרי ישראל שכ"כ עמלו בוניו בו, הנה כבר ידוע הפתגם­החכם המובא בכמה מהראשונים ואמור ג"כ על ידי כ"ק אדמו"ר הצמח צדק באחד ממכתביו להמשכילים בימיו, אהוב אפלטון אהוב אריסטו, אבל אהוב את האמת יותר מכולם.
+בברכת הצלחה בעבודתו בקדש לקרב לבן של בנ"י לתורתנו תורת אמת ותורת חיים.
+[quotation](ממכתב י"ד אייר, תשי"ז)[/quotation]
+... כל המבארים שיטת היחסות — כמובן, מדגישים מבין המסקנות שלה את המפתיעות ביותר ומעמידים בראש: שלילת מקום מוחלט, שלילת זמן מוחלט. — כי
+
+## 270
+
+הן המקום והן הזמן הם יחסיים. וכאילו הוכיחו את זה באופן שאין לו פירכא — ע"י הנסיון של מיכלסון, אח"ז בעת ליקוי החמה, ע"י חשבון מסלולו של כוכב וכו'. ובמילא מכניסים מסקנות אלו לנכסי המדע, בדוגמת שלשת חוקי ניוטאן הידועים ובתוקף שלהם קודם שהוכיחו אי הדיוק אשר בהם. — ולתמהוני הגדול — בכל הספרים העוסקים בשיטה הנ"ל אשר ראיתי ע"ע, לא מצאתי אף באחד עכ"פ איזה הסתייגות בזה! ובין הלומדים בספרים אלו — על אחת כו"כ שאין איש מטיל ספק בהנחה זו!
+— ולדידי, הרי לא רק הסתייגות לחוד דרושה בזה,
+כי מדע, במובנו, בזמן האחרון, היינו מדע מדויק, ז. א. הבא למסקנות שלו רק ע"י מדידה, משקל וכו', אין בנכסיו המדעיים ואפילו לא בשטח חקירתו — מקום לטיפול במושגים מוחלטים. כלי אומנותו של מדע המדויק "לא ישיגוהו" את ההחלטי. ובמילא אינו יכול לשלול אותו (כמו שאינו יכול להוכיח מציאותו).
+עוד זאת: רגיל אשר, בגמור איש המדע את הנסיונות וניסוח המסקנות שלהם והחוקים, מנסה הוא להקים — בתור השערה — שיטה חדשה (או להכניס תיקונים בשיטה הקיימת) באותו המקצוע שהוא עוסק בו, אשר תכליתה לצרף גם את המסקנות החדשות לנכסי המדע אשר במקצוע זה ולבאר את כללותם באופן יותר פשוט, ועד כמה שאפשר, גם באופן יותר מובן בשכל הפשוט.
+והנה גם בהקמת שיטה זו — אשר, כנ"ל, אינה אלא השערה והשתדלות לבאר בדרך אפשר חלק מתופעות הטבע — אין כל הצדקה להכניס מושגים החלטים. ולא עוד, אלא שזה מנגד להמטרה (עכ"פ בנדו"ד), כי עי"ז נעשה התיאור "פחות" מובן (אם יש בכלל מי שמבין בשכלו הפשוט ויכול לצייר לעצמו מה זה): אין מקום וזמן מוחלט, מהירות האור שווה בכל הכיוונים ולגבי כל המסתכלים, המקום מתעקם ע"י החומר שמכניסים בו, המקום (חלל העולם) מוגבל כשלחופית והולך ומתפשט או מתכווץ, למהירות יש סגולה מיוחדת — שאי אפשר (בהחלט) להוסיף עלי' ועוד ועוד.
+\*\*\*
+כל הנסיונות המדעים שנעשו, וגם בהנוגע לשטח היחסות, יסודם ותוכנם: מדידה, כלי מדידה ואדם המודד ומסכם התוצאות. ומזה —
+כל המסקנות אליהן באים — הן רק בנוגע למדידת המקום או החומר והאור, בנוגע ל"התנהגות" כלי המדידה ובנוגע לתכונות האדם ויכולתו.
+בהנוגע לנסיונות פיזו, מיכלסון וכו' — הביאור המשוער והשיטה היותר קרובה להנסיונות והמשתמשת בפחות הנחות הבאות מבחוץ להנסיונות — צריכה לנצל ביאורו של לורנץ. והקושיא הידועה (שגם בס' של כ'[ftnref\_2177\_\*] נעתקה) מדוע תופעת לורנץ
+
+## 271
+
+מתאימה בכל החומרים בדיוק להשינוי במהירות כו' — קושיא בהנוגע למדידה ע"י אדם — קלה היא לגבי הקושיא מדוע הוגבל כל הטבע במהירות לא פחות ולא יותר. ואכמ"ל עוד...
+[quotation](ממכתב ח' ניסן, תשט"ז)[/quotation]
+באתי בזה לאשר קבלת ספריו עה"ת \* ע"פ בראשית נח... ולחביבותא דמילתא, הנה תיכף לקבלת הספרים עברתי בין הדפים, ואבוא בזה באיזה הערות, אף שאני אמרתים בחפזי, כי אין הזמן גרמא להאריך כדרוש.
+א) בתחילת ספרו. במסורה דא"ב רבתי, במש"כ במנורת שלמה שסותר למסורה דדה"י, וכותב שלא הי' לעיני המנו"ש המסורה שלנו. — הס' מנו"ש אינו אצלי, אבל לפענ"ד ברור, שיש שתי שיטות בא"ב רבתי (וכן גם בא"ב זעירי): א) דהא"ב הנ"ל נמצאו במקרא לבדו. ב) דהא"ב הנ"ל מפוזר ע"פ כל התנ"ך. ואולי אפ"ל דתלוי בשתי הדעות דאלמלא חטאו אבותינו אם הי' ניתן להם רק מקרא וס' יהושע (נדרים כב, ב), או [שאעפ"כ] היו ניתנים כל הכ"ד ספרים (ראה עיון יעקב על הע"י שם). וס' יהושע אינו נוגע בנדו"ד, כי אין בו אותיות משונות (ראה מנחת שי יהושע יד, יא).
+ב) שם בחלק לימודי השם ס"ק א, שבראש כל מעשה נבראו השמים והארץ, ובס"ק ב' ג' שנבראו חומר היולי ושהזמן הוא נברא. וא"כ הוא סותר למש"כ בסק"א, דפשיטא דסדר הקדימה הוא: זמן, חומר היולי שמים וארץ. ואם הדיוק הוא בראש כל מעשה דוקא, א"כ הד' יסודות קדמו לארץ וכמוש"כ ברמב"ן, ולהעיר, דברמב"ן כתב דשני חומר היולי היו אחד לשמים ואחד לארץ, והועתקה דעתו בעץ חיים שער קיצור אבי"ע רפ"י. ועייג"כ רמב"ם הל' יסוה"ת פ"ג. והנה מלבד דקושי גדול לומר דבריאה הראשונה היתה שני דברים, צע"ג איך ליישב זה עם משנ"ת בע"ח ש' דרושי אבי"ע פ"א דהנמשל על חומר ההיולי הוא ספירת הכתר ומבאר בחומר ההיולי רק דהארץ.
+אבל ידוע די"א דחומר היולי אחד לשמים וארץ. וי"ל דתלוי בשתי הדעות בבראשית רבה פי"ב יא עיי"ש ביפ"ת ובמו"נ ח"ב פכ"ו ואכמ"ל.
+ג) שם. שהזמן הוא מחודש; ומביא קושיא הידועה ממרז"ל שהי' סדר הזמנים קודם לזה. והנה כל התירוצים שנאמרו בזה אין מבארים שינוי הל' סדר זמנים.
+ויפה מתורץ ומבואר בס' המצות להצ"צ מצות האמנת האלקות פי"א. וע"פ משנ"ת שם מובן, דגם הזמן הבלתי משוער הוא מחודש ונברא. וד"ל.
+
+## 272
+
+ד) בסוף ח"ב. שקו"ט אם ב"נ מחוייב בקדה"ש וראיתו מנסיון א"א באור כשדים. — והאריך בזה מהרימ"ט ס"פ תולדות ובפרשת דרכים דרך האתרים ד"ב.
+ה) שם שקו"ט אם ב"נ מצווה על כבוד או"א[ftnref\_2178\_\*], ויעויין מנח' (נו, ב) עשר מצות כו' שבע שקבלו ב"נ והוסיפו עליהם דינים ושבת וכבוד או"א כו' הוסיפו בדינים מבעי לי' כו' — משמע דלא נצטוו ב"נ ע"ז.
+ובמ"ר שהביא שם: לך אני פוטרך מכיבוד או"א ואיני פוטר אחר מכיבוד או"א — לכאורה בלאה"כ אינו מובן הסיום ואיני פוטר אחר, דמהיכא תיתי לומר דיפטור אחר כיון שמתחיל לך אני פוטרך. וכי קס"ד שתיבטל מצות כבוד או"א לגמרי. ונ"ל הפירוש: לך אני פוטרך לגמרי, ובמילא אינך צריך לחזור לחרן אחר קיום הצווי לך כו'. אבל איני פוטר אחר, אף שיהי' דומה לנידון דידך, שיניח אביו ע"פ ציווי, הנה בכ"ז אם יתעכב לאחר קיום הצווי יענש ע"ז, כי לא נפטר מכיבוד או"א, אלא שלשעה נדחת הכיבוד מפני ענין אחר. ונרמז בזה ענין יעקב דמגלה ספ"ק. וע"פ הנ"ל מתורץ ג"כ, הא דיצא א"א מחרן בפעם השני' אף שכבר קיים הצווי לך לך ביציאתו הראשונה, ועפכ"ז אין ממרז"ל זה ראי' לחיובי דב"נ בכלל, כי הוא מדבר בהאבות.
+מצוה דתליא בסברא אם ב"נ מוזהר בה — ראה שדי חמד פאת השדה כללים ג' סוסק"ז.
+[quotation](ממכתב ח' מר חשון, ה'תש"י)[/quotation]
+... לא נתבאר כלל[ftnref\_2179\_\*] הענין דהתחלת המנין מתי הוא[ftnref\_2180\_\*\*]: בר"ה שלפני בריאת האדם (ליצירה), ר"ה שלאחריו (לאדם), ר"ה שלאחריו (ראה רמב"ם הל' קדוה"ח פ"ו ה"ח ובפי' שם. שם הל' שמיטה ויובל פ"י ה"ב. ובס' העוסקים במקצוע זה — בארוכה). ועכ"פ צריך הי' להזכיר עד"ז כיון שנוגע גם לחשבונות שבס"ע. ולדוגמא: ע"פ החשבון ליצירה — שהוא שנתקבל בחשבונות העיבור וכיו"ב — נברא אדם בשנת א (כשעברה כבר שנה א להמנין) לברה"ע, ולא ככתוב בטבלא א.
+ג) לא נזכר כלל ע"ד הענין דשנות מקוטעות[ftnref\_2181\_\*\*\*]. וכן לא נתפרש במספרים
+
+## 273
+
+המובאים אם הכוונה בשנה קל (לדוגמא), או לאחר שעברו קל' שנה. ומובן שבזה תלוי בירור כמה חשבונות וסתירות. ואף שבכ"מ אין לברר מהכתובים ומרז"ל ספק זה, בכמה חשבונות יש כן הבירור. ועכ"פ, כנ"ל, הזכרה צריכא בעי' זו. . .
+מבוא סק"א. ברה"ע בניסן או בתשרי — לא הוחלט ע"ז. — ראה מג"א רסתקצ"ב וכן מוכח גם מהפס"ד שבברכת החמה בתקופתה הוא בניסן, שלדינא ולמעשה הלכה שבניסן נברא.
+הערה. א) דעה יחידאה ישנה אשר ביום א' תשרי (ניסן) נבה"ע, ולא בכ"ה בחדש שלפניו (לבוש סתקפ"א. ובשדי חמד כללים סוף מע' ב מצא לו חבר הר"ס. ותמה על שניהם. עיי"ש). ב) בשמן ששון על שעה"כ ד"א ס"ק ט"ו לו — מיישב ב' הדעות ע"פ קבלה בביאור ארוך.
+פ"א. מהמבול עד הפלגה ש"מ שנה ומפרט החשבון בסדר זמנים: ארפכשד נולד שנתים אחר המבול וכו'. — והנה המבול ארך יותר מיב"ח. ועכ"פ להזכיר מיבעיא ממה שנתלבטו כמה וכמה בישוב השמטת שנה זו. . .
+[quotation](ממכתב כ"ח מ"ח, תשי"ז)[/quotation]
+... בתחלת ספר[ftnref\_2182\_\*] עה"פ ויהי אור:
+לכאורה צ"ע החידוש בפירוש הענין, שהרי זוהי הנקודה דרז"ל בב"ר מ"ב סי' ד' המצוין בתחלת הפירוש.
+כן מ"ש שהאור שנגנז הוא אור השמש וכו', המובא בכ"מ הוא שאור שנברא ביום ראשון ואור השמש שני ענינים נפרדים, וכדמוכח ג"כ מזה שאור השמש הרי נגנז בנרתקו (ולע"ל מוציא חמה מנרתקה), משא"כ אור הגנוז, שנאמר עליו גנזו לע"ל (אף שכמובן דיוק זה יש לו תירוצו). . .
+[quotation](ממכתב י"א טבת, תשי"ח)[/quotation]
+—————————
+... א) אם מברכין על ליקוי לבנה או ליקוי חמה.
+ידוע הכלל אשר אין לחדש ברכה שלא הוזכרה בש"ס (ב"י או"ח סמ"ו). וי"ל
+
+## 274
+
+הטעם דאין מברכין ע"ז מפני שהוא סימן לפורעניות הבאה (סוכה כט, א). ואדרבה צריכה תפלה לבטלה וצעקה ולא ברכה.
+ב) אם ידעו חז"ל אודות ענין ליקוים הנ"ל ואם זהו ענין טבעי[ftnref\_2183\_\*].
+ליקוי המאורות מובא בכמה מקומות בדברי חז"ל ופליאה גם הספק בזה, כי ידוע אשר אפילו חכמי מצרים ולפני זה בבבל כבר ערכו לוחות הליקוים האמורים וידוע בספרי דברי הימים ומובא להבדיל גם בכתבי הקדש, אשר בני ישראל עמדו בקישור עם חכמי מצרים וחכמי בבל.
+מעריכת לוחות האמורים מובן שתופעה האמורה היא ענין טבעי, אבל ביחד עם זה יש בזה גם סימן, ובדוגמת ענין הקשת, שגם הוא ענין טבעי עתה, וביחד עם זה משמש אות, וככתוב בארוכה, ואין בזה סתירה, שהרי במה דברים אמורים אשר ליקוי חמה וליקוי לבנה יש להם הפירושים כמרז"ל (סוכה כט, א) — כשנראים הליקוים בארץ (ונראים לזה היודע ע"ד פירוש הליקוים), משא"כ באם יתכסו השמים בעננים וכיו"ב, הרי אין זה ענין של סימן והוראה להאדם אשר על האדמה, ועד"ז הוא גם בענין הקשת, וכמבואר במפרשי התורה. . .
+[quotation](ממכתב ה' תמוז, תשי"ז)[/quotation]
+—————————
+... שלא נצטוו דשאים בפי' למינו. — ע"פ ירושלמי כלאים פ"א ה"ז מובן בפשיטות, שאין איסור או עכ"פ חיוב בזה (עתוד"ה הרכיב חולין ס, א במהרש"א שם, תורה שלמה ועוד). . .
+(ממכתב כ"ה תמוז, תשט"ו)
+... במה שרוצה לתווך ולהתאים דעת חוקרי ישראל מהראשונים בענין המלאכים, אם יש להם גוף, אשר לדעתו כולם לדיעה אחת נתכוונו, אלא ששונה המושג דגוף המובא על ידי אחד מהמושג דגוף המובא על ידי שני. — הנה אי אפשר לומר כן דלא פליגי, כיון שלשיטה הא' המלאכים הם בגדר מקום, וכמו שהאריך בלקו"ת ד"ה מזמור שיר חנוכת הראשון, ולדיעה השני' אין לחלק בהם אפילו צורה וגולם, עד שנקראים שכלים נבדלים, וראה רמב"ם הל' יסוה"ת פרק ב' הלכה ג'
+
+## 275
+
+ואילך ובמפרשים שם, ואם להקס"ד דכת"ר שיש להם גוף אלא שבאופן נעלה יותר, הרי אינו מוכרח כלל מ"ש שם בהלכה ה' עיי"ש ובמורה נבוכים חלק ב' פרק ג'. וכבר העיר בצפנת פענח לירושלמי פ"ב דחגיגה הלכה ד'. . .
+[quotation](ממכתב י"ט אלול, תשט"ו)[/quotation]
+... במה שהעיר דבכמה מקומות מבואר שהגוף קטן מהכיל את עצם הנשמה, ובמקום אחר מבואר דבאור הנשמה אין בו שינוי מקטנות לגדלות ונפש של תינוק יכול להחיות גופו של עוג מלך הבשן.
+הנה לא קשיא, וכמבואר במאמר כי עמך מקו"ח ת"ש גופא דבאור אין בו שינוי, משא"כ כשמדברים מהתלבשות העצם, לכן אין הגוף יכול להכיל.
+[quotation](ממכתב ז' אדר, תשי"ג)[/quotation]
+חתנו. . . מסר לי שאלותיו. ובמענה עליהם:
+א) אי' המקום מרז"ל[ftnref\_2184\_\*] שהובא ברמב"ן עה"ת בראשית ב, ט שלשה אמרו אמת ואבדו מן העולם ואלו הן נחש מרגלים ודואג האדומי.
+כנראה מקורו הוא במדרש פרקי רבנו הקדוש פרק השלשה אות מז אלא שגירסת הרמב"ן שונה מגרסתנו אנו כי בהוצאה שראיתי אני (בסו"ס כלבו. באוצר המדרשים לאייזענשטיין) הלשון הוא: ג' שאמרו אמת ואבדו מן העוה"ז ומן העוה"ב ואלו הן מרגלים דואג ובני רמון הבארותי.
+ולהעיר א) מרז"ל זה מביאו ג"כ אדה"ז במכתבו מג' נצבים תקעא (נדפס בבית רבי פ"כ[ftnref\_2185\_\*\*]) אבל א"א לברר גירסתו כי אינו מונה אלא השייך לענינו והוא דואג. ב) אין להקשות על מרז"ל זה ממ"ש בב"ר פי"ט דהנחש אמר שקר דהא והא איתנהו שנטרד מן העולם ע"י אמרו אמת אבל כדי שהסתתו תתקבל אצל חוה אמר ג"כ דברי שקר, ועייג"כ תורה אור ותו"ח ד"ה והנחש הי' ערום. . .
+שוב מצאתי מרז"ל ג' אמרו כו' במחו"ו בקטע הכת"י שנדפס בסו"ס מנוה"מ לר"י אלנקוה (ח"ד ע' 568) וז"ל: ג' שהודו האמת ועברו מן העוה"ז והעוה"ב ואלו הן דואג האדומי ובני רמון הבארותי והמרגלים, ר' מאיר אומר אף בן איש גר עמלקי.
+
+## 276
+
+בהערות שם מציין לאדר"נ נוסח פמ"ה. פרקי רה"ק הוצ' שנבלום (בס' ג' ספרים) כז, א. עקד האגדות הוצ' הורוויץ סי' קלג.
+[quotation](ממכתב י"ט תמוז, תש"ח)[/quotation]
+... הטעם שנשים מתות בשעת לידתן, על העדר הזהירות בהדלקת הנר. — י"ל ע"ד הפשט, שמצוה זו ניתנה כתיקון למה שגרמה חוה חעה"ד שהביא מיתה לעולם, וכשחזר התיקון מענישים על חטא עה"ד, והוא ע"ד מרז"ל, ויתר הקב"ה על ע"ז וכו' ולא ויתר על מאסה של תורה שלא ברכו בתורה תחלה, אשר כשאין חביבות תורה זו, במילא נשאר העונש על עבירות החמורות.
+ולהעיר ג"כ אשר בענין הדלקת נר שבת הי' ג"כ ענין דמחלוקת הקראים והשומרונים, שהם פרשו לא תבערו אש שאסור להיות אש דולק בשבת, וידוע עד כמה החמירו בענינים שאין הצדוקים מודים בהם, וראה ג"כ במקומות שציין בתורה שלמה חלק י"ד עמוד ש"ך...
+[quotation](ממכתב ה' כסלו, תשט"ז)[/quotation]
+... בתחלת החידושים[ftnref\_2186\_\*] על הש"ס (חלק ב' ע' רנ"ג) בענין חזקי' שנענש על שלא עסק בפו"ר ותפלתו היתה אשר הטוב בעיניך עשיתי שסמך גאולה לתפלה.
+ע"פ המבואר בתורת החסידות ובקבלה י"ל השייכות דשני הענינים חטאו ותפלתו וכן השייכות דהטוב בעיניך עשיתי וסמיכות גאולה לתפלה, כי גאולה היא ספירת היסוד ותפלה — ספירת המלכות. וכן הטוב, מדת היסוד. בעיניך עשיתי, מלכות. וסמיכות גאולה לתפלה ויחודם הוא ענין יחוד עליון, תפלה אריכתא, שעי"ז אח"כ בתפלת שמו"ע — ובפרט בברכת שים שלום — יחוד זו"ן ומילוי הבקשה בפועל ובגשמיות. וזו היתה הצטדקות חזקי' שעסק בפו"ר ברוחניות, ובאופן כזה שנמשך ג"כ בגשמיות (שזהו המעלה ויתרון דתפלה על תורה, וכמבואר באגרת הקודש לרבינו הזקן קונטרס אחרון דף קנ"ח ע"א), וז"ל אדמו"ר הצמח צדק בספרו אור התורה[ftnref\_2187\_\*\*] סד"ה המלאך הגואל: והטוב בעיניך עשיתי, שחיבר בחי' הטוב במלכות הנק' עין. ומציין שם לזח"ב קכח, ב ובמק"מ שם. שערי אורה ש"ב (ודלא כזהרי חמה ר"פ ויגש). ועייג"כ סי' האריז"ל ובפע"ח קודם שמו"ע ובברכת שים שלום. . .
+[quotation](ממכתב י"ז שבט, תשי"ד)[/quotation]
+—————————
+
+## 277
+
+... דרך אגב, מה שמבאר, בסיום מאמרו, בענין שנוי מלים בתורתו של ר' מאיר, שזה הי' טופס המוני או מושפע מטופס כזה כו' הנה לדעתי אין מקום לביאור זה, מאחר שמקובל הי' ר' מאיר כריש הלבלרין בימיו, וכסיפור רז"ל שהי' כותב מזכרונו ואח"כ מעתיק מזה בדיוק היותר גדול (מגילה יח, ב), ומוכרח ג"כ מאחד השנויים שבתורתו של ר' מאיר שכתוב בה "טוב מות" במקום טוב מאד (בראשית רבה ט, ה), שזה אדרבה מעיד על רעיון וביאור עמוק, ולא על נוסח המוני, ובפרט שגדולי הדור שבחוהו במקצוע הספרות (עירובין יג, א; גיטין סז, א; קהלת רבה ב, יז).
+[quotation](ממכתב כ"ד שבט, ה'תשי"ד)[/quotation]
+... לשאלתו: א) למה לא נכתב הריון בהבל, משא"כ בקין (בראשית ד, א­ב). הטעם — מפני שבעיבורו דקין הי' גם הבל (בראשית רבה פכ"ב, ג).
+ב) הטעם לקריאת שם הבל. ולמה לא נאמר משא"כ בקין. י"ל מפני שלא הי' אלא תוספת וטפל לגבי עיקר ההריון שהוא קין, וחס הכתוב מלפרש אי חשיבותו, ודיו ברמז דתיבת ותוסף שאינו אלא הוספה (ראה ב"ר פס"א, ד). . .
+[quotation](ממכתב כג ניסן, תש"כ)[/quotation]
+... בשאלתו ע"ד ס' הישר[ftnref\_2188\_\*] — יראה מש"כ בזה בס' שה"ג לחיד"א בערכו. ובענין ס' היוסיפון — ידוע שכמה שינוים (וגם זיופים) הוכנסו לתוכו. ועניניו דורשים בקורת מומחה במקצוע. ובכללות שאלות כגון אלו ידועה הוראות חז"ל: היכא דעייל ירקא ליעול בשרא וכוורי (שבת קמ, ב). ובפרט כשספק אם גם ירקא הוא.
+[quotation](ממכתב ח' תמוז, תשי"ז)[/quotation]
+—————————
+
+**English:**
+
+## 259
+
+### Bereishis
+
+Regarding the note on what is written in *Daas Zekeinim* (at the beginning of Bereishis) that the world is exposed from the northern wind — this is also in *Bava Basra* (25b), *Pirkei D’Rabbi Eliezer* (Chapter 3), *Zohar Chadash* on *Shir HaShirim*, the beginning of *Baraisa D’Shmuel*, and elsewhere.
+The explanation — according to astronomy — see the book *Toras HaOlah* by the Rema, Part II; in the commentary *Shvilei HaMaoros* to the aforementioned *Baraisa*, and elsewhere...
+
+[quotation](From a letter, Rosh Chodesh Menachem Av, 5719)[/quotation]
+In response to your letter from Tuesday, in which you write about the difficulty you have regarding the principle that creation occurs every day and every moment — as we say, "He who renews in His goodness every day, constantly, the work of Creation" — if so, what is the matter of the day of Shabbos, regarding which it is said, "And on the seventh day He ceased and rested" from the creation of the six days of Bereishis?
+The distinction is simple according to what is written, "And the heavens and the earth and all their host were finished," and it is said, "There is nothing new under the sun," after the completion of the six days of Bereishis. For what He renews after that, "every day, constantly, the work of Creation," is a renewal of things that already existed. This is not the case during the six days of Bereishis, which was a renewal *ex nihilo*—that is, something that had never existed until then, *yesh me'ayin*.
+
+[quotation](From a letter, 28 Shevat, 5716)[/quotation]
+...Regarding what you wrote concerning the perspective of Torah and traditional Judaism on the theory of evolution, it seems you are referring to the system founded by Darwin (or perhaps also the system of Lamarck, which is a theory of evolution by leaps, unlike the former),
+
+## 262
+
+Or, consistent with the most recent scientific conclusions, the "eternity" of the total sum of matter and energy. If so, according to this law, all the atoms and their components already existed at the beginning of creation (or have existed forever, according to the view of the skeptics). According to the theory of evolution, one must say that all the atoms existed from the beginning, but they were scattered and subsequently gathered one by one in various and strange ways and under special conditions, which, according to the calculations of statistics and probability, the possibility that such suitable conditions would all be found at once is extremely remote. Furthermore, according to this theory, one must say that these conditions (which from a scientific point of view are almost impossible) existed for millions and billions of years, and everything was moving in one direction—that is, evolution from the lower to the higher and more developed.
+On the other hand, from the perspective of the believer, that the Ribono shel Olam created the entire number of atoms that exist in the world *yesh me'ayin*, it will not be difficult for him to say that it is within the Creator's power to create not only a creature with a simple cell, but also a creature with millions of different cells all at once.
+Note: There are believers who hold to the theory of evolution because, without it, they find it difficult to understand:
+Why would the Ribono shel Olam have to create so many different species in which they see no benefit, etc.?
+But this difficulty is not resolved by the theory of evolution, since according to Torah, even the laws of nature are by the will of the Ribono shel Olam. If so, the question remains: what is the benefit of such laws of nature that cause the creation of several species which, according to the understanding of the questioners, have no benefit, etc.?
+6) There are several other difficulties and fundamental misunderstandings in the theory of evolution itself, and many scientists also disagree with it. See, for example, the books of Fleischmann and Schindewolf (mentioned in the margins of the letter), in which you will find sharp criticism of this theory. Likewise, you surely know that there are several contradictions within the theory of evolution itself. For example, regarding the calculation of the age of the earth: the calculation based on the amount of salt in the ocean, the calculation based on the amount of radium, lead, and uranium in a specific place, the calculation based on the current state of the sun, the calculation based on the remains and layers of the earth in different places, one on top of the other—the results of these calculations are in complete contradiction with one another.
+7) And it should be noted that even if someone were to come and say that it is possible for one species to evolve from another now, and he saw this with his own eyes, there is no contradiction in this to our religion and faith (even though, as mentioned above, this is a strange and wondrous phenomenon that no scientist should accept until they bring conclusive proof that this is indeed the case). What I said above is only that the order of creation in practice was as it is recounted in our holy Torah—that is, on the third day it was, "Let the earth sprout vegetation... trees bearing fruit after their kind," meaning each and every species by itself, as the Sages said (*Chullin* 60b). All of this was created during the twelve hours of the third day. Similarly, the creation (or suspension) of the heavenly luminaries and stars took place on the fourth day, the creation of fish and birds on the fifth day, and the cattle, beasts, and the human species on the sixth day.
+
+## 269
+
+...what is stated in the aforementioned *drush* [even though, even in the period following it, and especially in our days, the scientific conclusions that the author of the *drush* took as a line are refuted—to him the content of the statements of our Sages would be appropriate, *lehavdil*]. Not only that, but they printed their opinion and publicized it among the youth and the younger generation, in their language, that the difficulties regarding several statements of our Sages from the theory of evolution, the theory of Darwin, etc., are already resolved in the *drush* *Ohr HaChaim* by the author of the *Tiferes Yisrael*!
+And an even more surprising example: It is known how much they struggled with the interpretation of the verse, "And the earth stands forever." How does this fit with the Copernican system, *lehavdil*? They considered the matter a mitzvah to twist the interpretation of the verses, etc. Yet, it is precisely the theory of relativity in our generation that has been accepted by scientists as "absolute" truth (without emphasizing, for the time being, the contradiction within it). This theory states that both hypotheses—who is standing and who is revolving—are equal, and any difficulty that can be found with one hypothesis will also exist (in a slightly different form) with the second. Likewise, regarding the geometry of Euclid and those who disagree with it, the scientific conclusions now are that all of them have a place, and any difficulty that can be found with one hypothesis will also exist (in a slightly different form) with the second.
+To assist in this, I also wrote that one must declare, especially to the younger generation, that there is no room for difficulties regarding religion and faith, just as one cannot raise a difficulty from the "left" against the "right." By doing this, the entire impulse for writing apologetic and mediating material is nullified, of course. And since the impulse is nullified, only the damage from this material remains—the damage of compromise, which cools a person down and "compromises" the truth. And as mentioned, it not only compromises, but in truth, it is the opposite of the truth.
+In continuation of this, I also wrote my opinion that since it originates from a place where precisely the system of apologetics, etc., has spread, he will see the incorrectness of the matter. It is strange, even though there is an explanation for this as well, that it is harder to prove the "left" in science to some elderly rabbis of the old generation than to the young people who engage in science and are not so imbued with a sense of faith. To such an extent has the fear of science and its intellect taken root in some of the aforementioned rabbis!
+I will add the following lines: Since I fear that even in your eyes it will be difficult to undermine the foundations upon which the house of the researchers of Israel was built, and whose builders labored so much, the wise proverb already known and brought by several of the *Rishonim*—and also said by the Admur the Tzemach Tzedek in one of his letters to the *Maskilim* of his day—is: "Love Plato, love Aristotle, but love the truth more than all."
+With blessings for success in your holy work to bring the hearts of Bnei Yisrael closer to our Torah, the Torah of truth and the Torah of life.
+[quotation](From a letter, 14 Iyar, 5717)[/quotation]
+...All those who explain the theory of relativity, of course, emphasize the most surprising of its conclusions and place them at the forefront: the negation of absolute space, the negation of absolute time. For
+
+## 270
+
+both space and time are relative. And as if they proved this in a way that has no refutation—by the Michelson experiment, later during the solar eclipse, by the calculation of a star's orbit, etc. Consequently, they insert these conclusions into the assets of science, like the three known laws of Newton and with the same validity they had before they proved the inaccuracy within them. And to my great astonishment—in all the books dealing with the aforementioned theory that I have seen so far, I have not found even one that has any reservation about this! And among those who study these books—all the more so, no one casts doubt on this assumption!
+—For me, not only is a reservation needed in this,
+Because science, in its meaning in recent times—that is, exact science, which arrives at its conclusions only through measurement, weight, etc.—has no place in its scientific assets, and not even in its field of research, for dealing with absolute concepts. The tools of the trade of exact science "cannot attain" the absolute. Consequently, it cannot negate it (just as it cannot prove its existence).
+Furthermore: It is customary that when a scientist finishes experiments and the formulation of their conclusions and laws, he attempts to establish—as a hypothesis—a new system (or to introduce corrections into the existing system) in the field he is engaged in, the purpose of which is to also add the new conclusions to the assets of science in that field and to explain their totality in a simpler way, and as much as possible, also in a way that is more understandable to simple logic.
+Now, even in the establishment of this system—which, as mentioned, is nothing but a hypothesis and an attempt to explain, in a possible way, a part of the phenomena of nature—there is no justification for introducing absolute concepts. Not only that, but it is contrary to the goal (at least in this case), because through this, the description becomes "less" understandable (if there is anyone at all who understands with his simple logic and can visualize what it is): there is no absolute space and time, the speed of light is equal in all directions and for all observers, space is curved by the matter placed within it, space (the vacuum of the world) is limited like a sphere and is expanding or contracting, speed has a special property—that it is (absolutely) impossible to add to it, and so on.
+***
+All the scientific experiments that have been conducted, and also regarding the field of relativity, their foundation and content are: measurement, measuring tools, and the person measuring and summarizing the results. From this—
+All the conclusions arrived at are only regarding the measurement of space or matter and light, regarding the "behavior" of the measuring tools, and regarding the characteristics of man and his ability.
+Regarding the experiments of Fizeau, Michelson, etc.—the hypothesized explanation and the system that is closest to the experiments and uses the fewest assumptions coming from outside the experiments—needs to utilize the explanation of Lorentz. And the well-known difficulty (which was also copied in your book) why the Lorentz phenomenon
+
+## 271
+
+corresponds in all materials exactly to the change in speed, etc.—a difficulty regarding measurement by man—is easy compared to the difficulty of why all of nature was limited to a speed no less and no more. And there is no room to elaborate further...
+[quotation](From a letter, 8 Nissan, 5716)[/quotation]
+I am writing to confirm receipt of your books on the Torah, on Bereishis, Noach... And for the sake of affection, immediately upon receiving the books, I went through the pages, and I will provide here some notes, even though I said them in haste, for the time does not permit me to elaborate as required.
+1) At the beginning of your book. In the *Masorah* of the large *Aleph-Beis*, regarding what is written in *Menoras Shlomo* that contradicts the *Masorah* of *Divrei HaYamim*, and you write that the *Menoras Shlomo* did not have our *Masorah* before him. The book *Menoras Shlomo* is not with me, but in my humble opinion, it is clear that there are two systems in the large *Aleph-Beis* (and likewise in the small *Aleph-Beis*): a) that the aforementioned *Aleph-Beis* are found in the Torah alone; b) that the aforementioned *Aleph-Beis* is scattered throughout the entire Tanach. And perhaps it can be said that it depends on the two opinions: if our ancestors had not sinned, would they have been given only the Torah and the Book of Joshua (*Nedarim* 22b), or [that even so] all twenty-four books would have been given (see *Iyun Yaakov* on *Ein Yaakov* there). And the Book of Joshua is irrelevant here, because it has no unusual letters (see *Minchas Shai*, Joshua 14:11).
+2) There, in the section on the study of the Name, subsection 1, that at the beginning of all work the heavens and the earth were created, and in subsections 2 and 3 that primordial matter was created and that time is a created thing. If so, it contradicts what is written in subsection 1, for it is obvious that the order of precedence is: time, primordial matter, heavens, and earth. And if the precision is "at the beginning of all work" specifically, then the four elements preceded the earth, as written in the Ramban. And it should be noted that the Ramban wrote that there were two primordial matters, one for the heavens and one for the earth, and his opinion was copied in *Etz Chaim*, *Shaar Kitzur Abiya*, beginning of chapter 10. See also Rambam, *Hilchos Yesodei HaTorah*, Chapter 3. Now, besides the fact that it is a great difficulty to say that the first creation was two things, it is difficult to understand how to reconcile this with what is explained in *Etz Chaim*, *Shaar Drushei Abiya*, Chapter 1, that the *mashal* for primordial matter is the *Sefirah* of *Keter*, and he explains regarding primordial matter only that of the earth.
+But it is known that there are those who say that there is one primordial matter for the heavens and the earth. And it can be said that it depends on the two opinions in *Bereishis Rabbah*, Chapter 12:11; see there in *Yefeh Toar* and *Moreh Nevuchim*, Part II, Chapter 26, and there is no room to elaborate.
+3) There. That time is a created thing; and you bring the well-known difficulty from our Sages that there was an order of times before this. Now, all the explanations that have been said regarding this do not explain the change in the language "order of times."
+And it is well resolved and explained in *Sefer HaMitzvos* by the Tzemach Tzedek, *Mitzvas Emunas Elokus*, Chapter 11. And according to what is explained there, it is understood that even unmeasured time is a created thing. And a word to the wise is sufficient.
+
+## 272
+
+4) At the end of Part II. You discuss whether a *Ben Noach* is obligated in the sanctification of the month, and your proof is from the experience of Avraham Avinu in *Ur Kasdim*. The Maharit elaborated on this at the end of *Parshas Toldos*, and in *Parshas Derachim*, *Derech HaAtarim*, page 2.
+5) There, you discuss whether a *Ben Noach* is commanded regarding the honor of parents. See *Sanhedrin* (56b), "Ten mitzvos... seven that the *Bnei Noach* accepted, and they added to them laws, and Shabbos, and honor of parents... they added to the laws, one should say..."—it implies that the *Bnei Noach* were not commanded regarding this.
+And in the *Midrash Rabbah* that you brought there: "To you I exempt you from the honor of parents, and I do not exempt another from the honor of parents"—seemingly, without this, the conclusion "and I do not exempt another" is not understood, for where would it come from to say that he would exempt another, since he begins "To you I exempt you"? Is it possible to think that the mitzvah of honoring parents would be nullified entirely? It seems to me the interpretation is: "To you I exempt you" entirely, and consequently, you do not need to return to Charan after fulfilling the command "Go to you," etc. But "I do not exempt another," even if he were to be similar to your case, that he would leave his father based on a command, nevertheless, if he delays after fulfilling the command, he will be punished for it, because he was not exempted from honoring parents, but rather for a time the honor was deferred because of another matter. And this is hinted at in the matter of Yaakov, which is revealed at the end of the first chapter. And according to the above, it is also resolved why Avraham Avinu left Charan the second time, even though he had already fulfilled the command "Go, go" in his first departure. And despite this, there is no proof from this statement of our Sages for the obligations of a *Ben Noach* in general, for it speaks of the Patriarchs.
+Regarding a mitzvah that depends on logic, whether a *Ben Noach* is warned regarding it—see *Sdei Chemed*, *Pe'as HaSadeh*, *Kelalim* 3, end of subsection 7.
+[quotation](From a letter, 8 Mar Cheshvan, 5710)[/quotation]
+...The matter of when the beginning of the count is has not been explained at all : from the Rosh Hashanah before the creation of man (for *Yetzirah*), the Rosh Hashanah after it (for man), the Rosh Hashanah after that (see Rambam, *Hilchos Kiddush HaChodesh*, Chapter 6, Halacha 5, and the commentary there; there, *Hilchos Shemitah V'Yovel*, Chapter 10, Halacha 2; and in books dealing with this subject—at length). In any case, it should have been mentioned in this regard, since it also touches upon the calculations in the *Sefer*. For example: according to the calculation for *Yetzirah*—which is what was accepted in the calculations of the leap year and the like—man was created in year 1 (when one year had already passed for the count) of the creation of the world, and not as written in Table 1.
+3) There is no mention at all regarding the matter of "broken years". And likewise, it is not specified in the numbers
+
+## 273
+
+brought whether the intention is in the year 130 (for example), or after 130 years have passed. It is understood that the clarification of several calculations and contradictions depends on this. And although in many places it is impossible to clarify this doubt from the Scriptures and our Sages, in several calculations, the clarification does exist. In any case, as mentioned, this question requires mention...
+Introduction, subsection 1. Whether the creation of the world was in Nissan or Tishrei—it was not decided. See *Magen Avraham*, beginning of 592, and it is also proven from the ruling that the blessing of the Sun in its cycle is in Nissan, that according to the law and in practice, the *Halacha* is that it was created in Nissan.
+Note: 1) There is a solitary opinion that it was created on the first of Tishrei (Nissan), and not on the 25th of the month before it (*Levush* 581. And in *Sdei Chemed*, *Kelalim*, end of *Ma'areches* 2, he found a colleague, R. S. And he was astonished at both of them. See there). 2) In *Shemen Sasson* on *Shaar HaKavanos*, page 4, subsection 15, he resolves both opinions according to Kabbalah in a long explanation.
+Chapter 1. From the Flood to the Dispersion is 340 years, and he details the calculation in *Seder Zemanim*: Arpachshad was born two years after the Flood, etc. Now, the Flood lasted more than twelve months. In any case, it should have been mentioned, as many have struggled with the reconciliation of omitting this year...
+[quotation](From a letter, 28 Menachem Av, 5717)[/quotation]
+...At the beginning of the book on the verse, "And there was light":
+Seemingly, the innovation in the interpretation of the matter is difficult to understand, for this is the point of our Sages in *Bereishis Rabbah* 42, section 4, which is noted at the beginning of the interpretation.
+Likewise, what is written that the light that was hidden is the light of the sun, etc., which is brought in many places, is that the light created on the first day and the light of the sun are two separate matters, as is also proven from the fact that the light of the sun was hidden in its sheath (and in the future, He will take the sun out of its sheath), unlike the hidden light, of which it is said that He hid it for the future (although, of course, this precision has its resolution)...
+[quotation](From a letter, 11 Teves, 5718)[/quotation]
+—————————
+... 1) Whether one recites a blessing on a lunar eclipse or a solar eclipse.
+The rule is known that one should not innovate a blessing that was not mentioned in the *Shas* (*Beis Yosef*, *Orach Chaim* 546). And it can be said
+
+## 274
+
+the reason that one does not recite a blessing on this is because it is a sign of impending calamity (*Sukkah* 29a). On the contrary, prayer is needed to nullify it, and crying out, not a blessing.
+2) Whether the Sages knew about the matter of the aforementioned eclipses and whether this is a natural matter.
+The eclipse of the luminaries is mentioned in several places in the words of our Sages, and the doubt about this is also surprising, for it is known that even the wise men of Egypt, and before that in Babylon, had already compiled tables of the aforementioned eclipses, and it is known in the books of *Divrei HaYamim* and is also brought, *lehavdil*, in the Holy Scriptures, that the Children of Israel were in contact with the wise men of Egypt and the wise men of Babylon.
+From the compilation of the aforementioned tables, it is understood that the aforementioned phenomenon is a natural matter, but together with this, there is also a sign in it, similar to the matter of the rainbow, which is also a natural matter now, and together with this, it serves as a sign, as written at length, and there is no contradiction in this. For when are these things said? That a solar eclipse and a lunar eclipse have the interpretations of our Sages (*Sukkah* 29a)—when the eclipses are seen on earth (and are seen by the one who knows about the interpretation of the eclipses). This is not the case if the heavens are covered with clouds and the like; then it is not a matter of a sign and instruction to the person who is on the earth. And similarly, it is also regarding the matter of the rainbow, as explained in the commentators of the Torah...
+[quotation](From a letter, 5 Tammuz, 5717)[/quotation]
+—————————
+... That the grasses were not commanded explicitly "after their kind." According to the *Yerushalmi*, *Kilayim*, Chapter 1, Halacha 7, it is understood simply that there is no prohibition, or at least no obligation in this (see *Tosafos* *HaRosh*, *Chullin* 60a, in *Maharsha* there, *Torah Shleimah*, and elsewhere)...
+(From a letter, 25 Tammuz, 5715)
+... Regarding what you want to mediate and reconcile the opinion of the researchers of Israel among the *Rishonim* regarding the matter of angels, whether they have a body, which in your opinion they all intended for one opinion, but the concept of "body" brought by one is different from the concept of "body" brought by the second—it is impossible to say so, that they do not disagree, since according to the first system, the angels are within the category of space, as elaborated in *Likutei Torah*, *D'H Mizmor Shir Chanukas* the first, and according to the second opinion, one should not even divide them into form and matter, to the point that they are called "separate intellects." See Rambam, *Hilchos Yesodei HaTorah*, Chapter 2, Halacha 3
+
+## 275
+
+and onwards, and in the commentators there. And if one were to think that they have a body, but in a more elevated way, it is not at all necessitated by what is written there in Halacha 5; see there and in *Moreh Nevuchim*, Part II, Chapter 3. And *Tzafnas Paneach* has already noted this to the *Yerushalmi*, Chapter 2 of *Chagigah*, Halacha 4...
+[quotation](From a letter, 19 Elul, 5715)[/quotation]
+... Regarding what you noted that in several places it is explained that the body is too small to contain the essence of the soul, and in another place it is explained that in the light of the soul there is no change from smallness to greatness, and the soul of an infant can animate the body of Og, King of Bashan.
+Now, it is not a difficulty, as explained in the *Maamar* *Ki Imcha* 5700 itself, that in the light there is no change, unlike when speaking of the enclothement of the essence; therefore, the body cannot contain it.
+[quotation](From a letter, 7 Adar, 5713)[/quotation]
+Your son-in-law... delivered your questions to me. And in response to them:
+1) Where is the place from our Sages that is brought in Ramban on the Torah, Bereishis 2:9: "Three said the truth and perished from the world, and these are: the snake, the spies, and Doeg the Edomite."
+Apparently, its source is in *Midrash Pirkei Rabbeinu HaKadosh*, Chapter of the Three, letter 47, but the version of the Ramban is different from our version, for in the edition that I saw (at the end of *Kol Bo*, in *Otzar HaMidrashim* by Eisenstein), the language is: "Three who said the truth and perished from this world and from the World to Come, and these are: the spies, Doeg, and the sons of Rimmon the Beerothite."
+And it should be noted: 1) This statement of our Sages is also brought by the Alter Rebbe in his letter from 3 Nitzavim 5711 (printed in *Beis Rebbe*, Chapter 20), but it is impossible to clarify his version because he only counts what is relevant to his matter, and that is Doeg. 2) One should not raise a difficulty against this statement of our Sages from what is written in *Bereishis Rabbah*, Chapter 19, that the snake said a lie, for both are true—that he was driven from the world because he said the truth, but in order for his incitement to be accepted by Chava, he also said words of lies. See also *Torah Ohr* and *Toras Chaim*, *D'H V'HaNachash Hayah Arum*...
+I have since found the statement of our Sages "Three said..." in *Menoras HaMaor*, in the manuscript fragment printed at the end of *Menoras HaMaor* by R. Y. Al-Nakawa (Part IV, page 568), and its language is: "Three who confessed the truth and passed from this world and the World to Come, and these are: Doeg the Edomite, the sons of Rimmon the Beerothite, and the spies. R. Meir says: also the son of the Amalekite convert."
+
+## 276
+
+In the notes there, he points to *Avos D'Rabbi Nosson*, version B, Chapter 45. *Pirkei Rabbeinu HaKadosh*, Schnabel edition (in the book *Three Books*), 27a. *Otzar HaAggados*, Horowitz edition, section 133.
+[quotation](From a letter, 19 Tammuz, 5708)[/quotation]
+... The reason that women die during childbirth, for the lack of caution in lighting the candle. It can be said according to the *peshat* that this mitzvah was given as a rectification for what Chava caused regarding the Tree of Knowledge, which brought death to the world. And when the rectification is returned, they are punished for the sin of the Tree of Knowledge, and it is similar to the statement of our Sages, "The Ribono shel Olam forgave... but did not forgive the despising of the Torah, that they did not bless the Torah first," which, when there is no love for this Torah, the punishment for the grave sins remains.
+And it should also be noted that regarding the matter of lighting the Shabbos candle, there was also a matter of dispute between the Karaites and the Samaritans, who interpreted "You shall not kindle fire" as meaning it is forbidden for fire to be burning on Shabbos. And it is known how much they were stringent in matters that the Sadducees do not admit to. See also in the places noted in *Torah Shleimah*, Part 14, page 320...
+[quotation](From a letter, 5 Kislev, 5716)[/quotation]
+... At the beginning of the *Chiddushim* on the *Shas* (Part II, page 253) regarding the matter of Chizkiyahu, who was punished for not engaging in procreation, and his prayer was, "I have done what is good in Your eyes," that he juxtaposed redemption to prayer.
+According to what is explained in the teachings of Chassidus and Kabbalah, one can say the connection between the two matters, his sin and his prayer, and likewise the connection between "what is good in Your eyes" and the juxtaposition of redemption to prayer. For redemption is the *Sefirah* of *Yesod*, and prayer is the *Sefirah* of *Malchus*. And likewise, "good" is the attribute of *Yesod*. "In Your eyes I have done"—*Malchus*. And the juxtaposition of redemption to prayer and their unification is the matter of the higher unification, *tefillah arichta*, through which afterwards, in the *Shemoneh Esrei* prayer—and especially in the blessing of *Sim Shalom*—there is the unification of *ZON* and the fulfillment of the request in practice and in the physical. And this was the justification of Chizkiyahu, that he engaged in procreation in the spiritual, and in such a way that it was also drawn down into the physical (which is the virtue and advantage of prayer over Torah, as explained in *Iggeres HaKodesh* by our Rebbe the Alter Rebbe, *Kuntres Acharon*, page 158a). And these are the words of Admur the Tzemach Tzedek in his book *Ohr HaTorah*, *Seder D'H HaMalach HaGoel*: "And what is good in Your eyes I have done," that he connected the aspect of good to *Malchus*, which is called "eye." And he points there to *Zohar* III, 128b, and *Matok MiDvash* there. *Shaarei Orah*, Gate 2 (and not like *Zoharei Chamma*, beginning of *Parshas Vayigash*). See also *Siddur* of the Arizal and in *Pri Etz Chaim* before *Shemoneh Esrei* and in the blessing of *Sim Shalom*...
+[quotation](From a letter, 17 Shevat, 5714)[/quotation]
+—————————
+
+## 277
+
+... By the way, regarding what he explains, at the end of his article, about the matter of the change of words in the Torah of R. Meir, that this was a common copy or influenced by such a copy, etc.—in my opinion, there is no room for this explanation, since R. Meir was accepted as the chief scribe of his day, and as the story of our Sages goes, he would write from his memory and then copy from it with the greatest precision (*Megillah* 18b). And it is also necessitated by one of the changes in the Torah of R. Meir, where it is written "good death" instead of "very good" (*Bereishis Rabbah* 9:5), which, on the contrary, testifies to a deep idea and explanation, and not to a common version, especially since the great men of the generation praised him in the field of literature (*Eruvin* 13a; *Gittin* 67a; *Koheles Rabbah* 2:17).
+[quotation](From a letter, 24 Shevat, 5714)[/quotation]
+... To your question: 1) Why was the pregnancy not written regarding Hevel, unlike regarding Kayin (Bereishis 4:1-2)? The reason is because in the conception of Kayin, Hevel was also there (*Bereishis Rabbah*, Chapter 22:3).
+2) The reason for the naming of Hevel. And why was it not said [regarding Hevel], unlike regarding Kayin? It can be said because he was only an addition and secondary to the main pregnancy, which is Kayin, and the Scripture spared from explaining his importance, and it is enough with the hint of the word "and she added," which is nothing but an addition (see *Bereishis Rabbah*, Chapter 61:4)...
+[quotation](From a letter, 23 Nissan, 5720)[/quotation]
+... Regarding your question about *Sefer HaYashar* —you should see what is written about this in *Sefer Shem HaGedolim* by the Chida under his entry. And regarding the book *Yosippon*—it is known that several changes (and also forgeries) were inserted into it. And its matters require the criticism of an expert in the field. And in general, regarding such questions, the instruction of our Sages is known: "Where vegetables enter, let meat and fish enter, etc." (*Shabbos* 140b). And especially when it is doubtful if it is even vegetables.
+[quotation](From a letter, 8 Tam
+
+---
+
+
+## נח
+
+_Section: נח_
+
+**Hebrew:**
+
+## 278
+
+### נח
+
+... ידוע אשר אין משיבין על הדרוש (כנפי יונה חלק ב' סימן קכ"ה) בכ"ז כנהוג בענינים כגון אלו אענה גם אני חלקי וידוע מרז"ל (ירושלמי סוף ברכות) פיטטיא דאורייתא טבין.
+לסימן א'[ftnref\_2189\_\*] עה"כ צדיק הי' בדורותיו, וד[ר]ז"ל בזה משא"כ בדורו של אברהם, והקשה וכן הקשה בתו"ש, שהרי כשמת נח הי' אברהם בן נ"ח[ftnref\_2190\_\*\*]. — י"ל בזה דהכוונה בדורותיו בדור שלו, היינו שהוא הפרנס שלו ומנהיגו וכלשון רז"ל דור ופרנסיו וכו' (ויק"ר פס"ו). . .
+[quotation](ממכתב כ"ז תשרי, תשט"ו) [/quotation]
+
+**English:**
+
+## 278
+
+### Noach
+
+...It is well known that one does not provide a formal response to a *drush* (Kanfei Yonah, Part 2, Siman 125). Nevertheless, as is customary in such matters, I too will offer my share, and it is known from our Sages (Yerushalmi, end of Berachos) that "the crumbs of Torah are good."
+
+Regarding the first point on the verse "Noach was a righteous man in his generations," our Sages interpret this as a comparison to his own generation, implying he would not have been considered such in the generation of Avraham. The *Torah Sheleimah* raises a difficulty here: after all, when Noach passed away, Avraham was fifty-eight years old.
+
+One may explain that the intent of "in his generations" refers to his own generation—meaning that he was the *parnas* (leader) and guide of that generation, in the language of our Sages: "a generation and its *parnasim*..." (Vayikra Rabbah, ch. 6).
+
+(From a letter dated 27 Tishrei, 5715)
+
+---
+
+
+## לך לך
+
+_Section: לך לך_
+
+**Hebrew:**
+
+## 279
+
+### לך לך
+
+... מחוט ועד שרוך נעל. — גם שרוך נעל הוא רכוש ולא נפש. — ובפשטות י"ל: מחוט — שהוא מתכשיטי ולבושי — הראש (שבת רפ"ו) ועד שרוך נעל — ששייך לרגל. . .
+[quotation](ממכתב כ"ה תמוז, תשט"ו)[/quotation]
+במש"כ בענין המילה[ftnref\_2191\_\*] א) מובן שצריך להשתדל ככל יכולתם שיעשו פריעה בנפרד ב) וה"ה בהנוגע למציצה — שמבהיל אי עשיתה ע"ע. ולכה"פ ע"י זכוכית. ומהנכון שהוא והרש"מ שי' יעיינו בקונ' המציצה שבשדי חמד — והרי החח"מ מקובל אצל כל הספרדים ביחוד — ואח"כ יבואו בשקו"ט עד"ז עם הרבנים דקאזא וכו'. . .
+[quotation](ממכתב ניסן, תשי"ז)[/quotation]
+\*
+... נעם לי לקרות שמתקדם ענין המציצה. ויהי רצון שיצליחו בזה בהקדם הכי אפשרי. ובאם יהי' הכרח בזה — יש להוסיף בהנוגע לשפופרת זכוכית שכותב אודותה, אשר ישנם כאלו המשימים מוך בהשפופרת ומוצצים דרך המוך, וטעם שימת המוך אשר עושה פעולה סטערליזאציע ומעכב הבאקטעריעס העוברים דרכו. ליתר ביאור — כוונתי, שכשמשימים בהשפופרת איזה כמות מוך באופן שלא יפריע לכח המציצה הבל הפה של המוצץ וכן הדם הנמצץ יעבור דרך המוך שהוא סטערעליזירט. . .
+[quotation](ממכתב כ"ג מנ"א, תשי"ז)[/quotation]
+
+## 280
+
+... איידער איך ענדיג — א באמערקונג צו אייער ווערק[ftnref\_2192\_\*]:
+זייטע 51: אויסגייענדיג פון דער מיינונג אז מציצה איז נאר א געזונטס מאסנאמע און האט גאר קיין שייכות ניט צו דער רעליגיעזער זייט פון מילה, שלאגט איר פאר, אין א בוך געדרוקט אויך פאר ניט­אידען, אז די מלוכות זאלען זיך אריינמישען און זאלען עס פארבאטען!
+דריי איינווענדונגען:
+(א) זייטע 54 — וואו עס רעדט זיך וועגן "מילה" בא מוסולמענער וואס איז מער מסוכן לויט אייער באשרייבונג אליין, פונדעסטוועגען היט איר זיך אויס און מיט רעכט, און שרייבט אז "מען דארף האפען, אז מיט דער צייט וועלען די פאר­אינטערעסירטע פעלקער פארשטיין צו באנוצען מאדערנע מיטלען".
+איז צי דערפאר וואס אידען זיינען אין גלות בא גויים, און פאר אראבער האט פראנקרייך מורא דארף זיין אזא אונטערשייד?
+(ב) פון מלוכות אריינמישן זיך מיט פארבאטן און געוואלט אין אידישען לעבען איז קיין מאל קיין גוטס ניט ארויס פאר אידען ניט פאר זייער נשמה ניט פאר זייער גוף, ווי עס ווייזען מערערע ביישפילען פון דער אידישער היסטאריע, וואס איר ווייס זיכער פון זיי.
+(ג) ארום 200 רבנים צווישען זיי אויך דאקטוירים, נאכדעם ווי זיי האבען באטראכט די פארשידענע טעמים וואס איר בריינגט אין אייער ווערק, זיינען ארויס מיט דער גאנצער שטארקייט פאר דער אונבאדינגטער נויטווענדיקייט פון מציצה. — זע דעם מאטעריאל אין שדי חמד חלק 12, קונטרס המילה והמציצה (ווארשא
+1902)[ftnref\_2193\_\*\*]...
+[quotation](ממכתב ו' אלול, תש"ט)[/quotation]
+... ת"ח על הערתו בשו"ת צ"צ חיו"ד סר"א דמילת משוך הוא רק מדרבנן — שהוא גם כשהעור דבוק שהוא שלא כמש"כ בהמאירי ליבמות ע. ולהעיר עוד בהנ"ל שבמשנה ראשונה גם הצ"צ מספקא לי' בזה כנראה משו"ת שלו (שער המילואים סל"ז ובשער המילואים לשו"ת שארית יודא סי"ג — הוצאת קה"ת). וראה ג"כ שו"ת שאר"י שם ובחי' הצ"צ לשבת פי"ט מ"ב ובאות חיים ושלום לבעהמח"ס מנח"א סו"ס רס"ד.
+[quotation](ממכתב י"ט תמוז, תשי"ח) [/quotation]
+
+## 281
+
+... ר"מ אומר אדם מישראל מוקף במצות במרחץ ערום מן המצות עד שנסתכל במילה. ומקשה דלמ"ד מותר להרהר ד"ת בביהכ"ס יכול להרהר בד"ת[ftnref\_2194\_\*], ושקו"ט בזה. — ול"ק מעיקרא, כי כוונת ר"מ היא לבאר מעלת כאו"א מישראל שמוקפין במצות, גם בשעה שאינו מתכון ומתעסק בזה כלל. וראה במנחות מג, ב: סיבבן הקב"ה. ואין מקום לקושיא הנ"ל. — ולשיטת הקונטרס עדיפא הו"ל להקשות, דהרי בודאי הי' מתקיים גם במרחץ מצות דחובת הלבבות, וכמו אמונת ה' ליחדו לאהבו וליראו כו'. ועוד יתרה, שבאמירתו עצמה אוי לי שאני ערום מן המצות במרחץ, מקיים מצות יראת ה' (ואמונתו). ופשוט.
+[quotation](ממכתב כ"ט תמוז, תשט"ו)[/quotation]
+מצות מילה[ftnref\_2195\_\*] דאאע"ה היא גם בגשמיות. ולא עוד אלא שזהו כוונה עיקרית בה וכמוש"כ בד"ה הנה אברם (תו"א ר"פ לך לך) סס"ה, ובלקו"ת לג"פ בביאור ע"ז (פו, ע"ג)[ftnref\_2196\_\*\*].
+[quotation](ממכתב ערב חג השבועות, תשי"ז)[/quotation]
+במענה על מכתבו בו כותב אשר מוהל הוא, ושואל למנהגי חב"ד מיוחדים הקשורים בהכניסה לברית ובימים שלפניו ושלאחריו.
+והנה לא שמעתי בזה הוראת דברים מיוחדים ובכלל נוהגים ע"פ הכתוב בסידור רבנו הזקן ועיין בשער הכולל שם, ונוהג הי' כ"ק מו"ח אדמו"ר זצוקללה"ה נבג"מ זי"ע, שכשהוזמן לברית שכמובן הי' הסנדק, הרי בהתחלת הסעודה הי' נותן סכום לישיבה, והי' אומר שזהו א אויפגאב (התחלת תשלומין) שכר לימוד בעד רך הנמול לכשיגדל, וכיון דחובת אדם לומר בלשון רבו, הרי באותו הפעם שהייתי נוכח הי' זה
+
+## 282
+
+בווארשא ונתן עשרים זלאטעס (זהובים) ואמר "דאס איז פאר תומכי תמימים אַ אדערויף אויף שכר לימוד"[ftnref\_2197\_\*].
+מ"ש שזכה לטעום מעט מעץ החיים תורת החסידות, הרי בזה יעמיק בדבורו שכותב שזהו עץ החיים, ולכן בטח יעשה ככל יכולתו לקבוע שיעורים בלימודי דברי אלקים חיים אלו, וע"פ פסק רז"ל לא המדרש עיקר אלא המעשה הליכה בדרכי' והנהגותי', ובפרט שאומנתו להכניס בני ישראל בברית שענין הברית הוא למעלה מן השכל והבנה, עיין לקו"ת ריש פרשה נצבים ונעשה זה בגוף אדם קודם שהגיע לכלל הבנה וכמ"ש ביום השמיני ימול ואז הוא התחלת כניסת נפש הקדושה (שו"ע רבנו הזקן מהדו"ב סוף סי' ד'), הרי גם הנהגתו צריכה להיות על דרך זה, היינו לימוד פנימיות התורה רזי תורה שמצד עצמם הם למעלה מהשגה והבנה, ולכן תחלת הלימוד הוא בדרך קבלת עול למטה מהשגה והבנה, ועי"ז נתגלה גם הסתים של נפש הקדושה באדם, כי סתים דאורייתא כשבא בגלוי הרי מגלה זה גם כן הסתים שבישראל.
+[quotation](ממכתב כ"ב שבט, תשט"ו)[/quotation]
+... ובמ"ש אודות חנוך הכשר לאלו שעדיין לא נמולו אף שהם כבר בגיל מוקדם, והמילה שלהם, מה להקדים, מובן שצריך לעשות ככל האפשרי בשני הענינים, ואין לעכב האחד מפני השני...
+[quotation](ממכתב כ"ג מנ"א, תשי"ז)[/quotation]
+
+**English:**
+
+## 279
+
+### Lech Lecha
+
+... "From a thread to a shoe strap" — even a shoe strap is property, not a soul. And simply put, it can be said: "From a thread" — which is among the ornaments and garments of the head (Shabbos 286) — "to a shoe strap" — which pertains to the foot...
+(From a letter, 25 Tammuz, 5715)
+
+Regarding what you wrote concerning the matter of the milah: a) It is understood that one must strive with all their ability that the periah be performed separately. b) The same applies to the metzitzah — the failure to perform it is alarming, for many reasons. At the very least, it should be done using a glass tube. It would be appropriate for you and [the individual] to study the Kuntres HaMetzitzah in the Sdei Chemed — and the Chachmas Adam is accepted by all the Sephardim in particular — and afterwards, you should enter into a discussion regarding this with the local rabbis, etc.
+(From a letter, Nissan, 5717)
+
+*
+
+... I was pleased to read that the matter of the metzitzah is progressing. May it be His will that you succeed in this as soon as possible. And if it becomes necessary, one should add regarding the glass tube you wrote about, that there are those who place cotton in the tube and perform the metzitzah through the cotton, and the reason for placing the cotton is that it acts as a sterilization agent and inhibits the bacteria passing through it. To clarify: my intent is that when one places a certain amount of cotton in the tube in a way that does not interfere with the suction power, the breath of the one performing the metzitzah, as well as the blood being drawn, will pass through the cotton, which is sterilized...
+(From a letter, 23 Menachem Av, 5717)
+
+## 280
+
+... Before I finish, a remark regarding your work:
+Page 51: Proceeding from the opinion that metzitzah is merely a health measure and has absolutely no connection to the religious aspect of milah, you suggest, in a book printed also for non-Jews, that the governments should intervene and forbid it!
+Three objections:
+(a) Page 54 — where you discuss "milah" among Muslims, which is more dangerous according to your own description, yet you restrain yourself, and rightly so, writing that "one must hope that with time the interested peoples will understand how to use modern methods."
+Is it because Jews are in galus among the nations, and France is afraid of the Arabs, that there must be such a distinction?
+(b) The intervention of governments with prohibitions and force in Jewish life has never resulted in any good for Jews, neither for their soul nor for their body, as shown by numerous examples from Jewish history, which you surely know.
+(c) Around 200 rabbis, among them also doctors, after having considered the various reasons you bring in your work, came out with full strength for the absolute necessity of metzitzah. — See the material in Sdei Chemed, Vol. 12, Kuntres HaMilah VeHaMetzitzah (Warsaw 1902)...
+(From a letter, 6 Elul, 5709)
+
+... Thank you for your note regarding the Responsa of the Tzemach Tzedek, Yoreh Deah 201, that the pulling of the skin (milah) is only rabbinic — which is even when the skin is attached, which is contrary to what is written in the Meiri to Yevamos 70. And it is worth noting further regarding the above, that in the first version, even the Tzemach Tzedek was in doubt about this, as appears from his Responsa (Shaar HaMiluim 37 and in Shaar HaMiluim to Responsa She'eris Yehuda, Siman 13 — Kehot publication). See also Responsa She'eris Yehuda there, and the Chiddushei HaTzemach Tzedek to Shabbos, Chapter 19, Mishnah 2, and in Os Chaim VeShalom by the author of Minchas Ani, end of Siman 264.
+(From a letter, 19 Tammuz, 5718)
+
+## 281
+
+... "Rabbi Meir says: A person from Israel is surrounded by mitzvos; in the bathhouse, he is stripped of mitzvos until he looks at the milah." And one might raise a difficulty: for one who holds that it is permitted to contemplate words of Torah in a bathroom, he could contemplate words of Torah [there], and there is a discussion about this. But the difficulty is not a difficulty from the outset, because Rabbi Meir’s intent is to explain the virtue of every single person of Israel, who are surrounded by mitzvos, even at a time when they are not intending or occupied with it at all. See Menachos 43b: "The Holy One, Blessed be He, surrounded them." And there is no room for the aforementioned difficulty. And according to the logic of the Kuntres, it would have been more appropriate to raise the difficulty that surely he would also be fulfilling the mitzvos of the "duties of the heart" even in the bathhouse, such as the belief in Hashem, to unify Him, to love Him, and to fear Him, etc. Moreover, in his very statement, "Woe is me that I am stripped of mitzvos in the bathhouse," he fulfills the mitzvah of the fear of Hashem (and faith in Him). And this is simple.
+(From a letter, 29 Tammuz, 5715)
+
+The mitzvah of milah of our forefather Avraham is also in the physical realm. Furthermore, this is a primary intent within it, as written in the discourse "Hinei Avraham" (Torah Or, beginning of Parshas Lech Lecha), end of section 5, and in Likkutei Torah to the three festivals, in the explanation of this (86c).
+(From a letter, Erev Shavuos, 5717)
+
+In response to your letter in which you write that you are a mohel, and you ask about special Chabad customs related to the entry into the bris and the days before and after it:
+I have not heard of any special instructions in this regard, and in general, we follow what is written in the Siddur of our Rebbe the Alter Rebbe; see the Shaar HaKollel there. And it was the custom of my father-in-law, the Rebbe, that when he was invited to a bris, where he was, of course, the sandek, at the beginning of the meal he would give a sum to the yeshiva, and he would say that this is an *aufgab* (initial payment) of tuition for the child being circumcised for when he grows up. And since it is a person's duty to speak in the language of his teacher, on that occasion when I was present, it was
+
+## 282
+
+in Warsaw, and he gave twenty zlotys and said, "This is for Tomchei Temimim, an *aufgab* toward tuition."
+
+Regarding what you wrote, that you merited to taste a little of the Tree of Life, the teachings of Chassidus: you should deepen your engagement with the discourse you write about, that this is the Tree of Life. Therefore, you will surely do everything in your power to establish classes in the study of these "words of the living G-d." And according to the ruling of our Sages, "The study is not the main thing, but the action" — walking in its ways and conduct. Especially since your profession is to bring the children of Israel into the bris, and the matter of the bris is above intellect and understanding (see Likkutei Torah, beginning of Parshas Nitzavim), and this is done in the body of a person before they have reached the level of understanding, as it is written, "On the eighth day he shall be circumcised," which is the beginning of the entry of the holy soul (Shulchan Aruch of the Alter Rebbe, second edition, end of Siman 4). Thus, your conduct must also be in this manner, namely, the study of the inner dimension of Torah, the secrets of Torah, which by their very nature are above comprehension and understanding. Therefore, the beginning of study is by way of *kabbalas ol* (accepting the yoke), below comprehension and understanding, and through this, the "hidden" aspect of the holy soul in man is also revealed, for the "hidden" aspect of Torah, when it comes into the open, reveals also the "hidden" aspect within the Jew.
+(From a letter, 22 Shevat, 5715)
+
+... Regarding what you wrote about the proper education for those who have not yet been circumcised, even though they are already at an early age, and their milah — what to prioritize: it is understood that one must do everything possible in both matters, and one should not delay one for the sake of the other...
+(From a letter, 23 Menachem Av, 5717)
+
+---
+
+
+## ויצא
+
+_Section: ויצא_
+
+**Hebrew:**
+
+## 285
+
+### ויצא
+
+... במה ששאלוהו בלשון הכתוב, מלאכי אלקים עולים ויורדים בו, שהקדים עולים לפני יורדים, לפלא שאלתו בזה, כיון שבפירוש רש"י תירץ קושיא זו, והוא ממד"ר על אתר, וראה ג"כ בפירוש רשב"ם שם, ואפשר כוונתו בעיקר לנקודה השני' והוא על פירוש המדרש שעולים מדבר במלאכים שנדחו ממחיצתו של כו' ושאלוהו איך אפשר שיעשו נגד רצון הבורא, ושאלתו בזה היא כי הרי המלאכים אינם בעלי בחירה, עיין ריש פרק ל"ט בתניא, ובנקודה הראשונה איך אפשר שיעשו היפך הרצון, פשיטא שלא רצו לעשות היפך הרצון, אלא שלא ידעו שזה היפך הרצון של הבורא וכל נברא אפילו מלאך ושלמעלה הימנו אי אפשר שיהי' שלם בתכלית, וכפירוש רש"י הידוע עה"פ אשר ברא אלקים לעשות — לתקן, ולכן אפשר שיטעה, ודוגמא לזה אשר אדם הראשון אף שהי' יציר כפיו של הקב"ה והזמן קודם חטא עה"ד, בכ"ז נכשל בזה מפני הוראת היתר וכיו"ב, ויעויין ג"כ בזה במ"ש בהקדמת השל"ה חלק בית ישראל (ברוב הדפוסים דף י"ח סוף ע"א).
+[quotation](ממכתב ד' כסלו, תשי"ז) [/quotation]
+במענה על מכתבו מיום ב', בו כותב שעד עתה לא נזדמן שידוך בשביל בתו הבכירה. . . תחי', ועתה מציעים שידוך בעד בתו הצעירה מרת. . . תחי'.
+הנה, א) עליו להשתדל במרץ המתאים בחיפוש שידוך בשביל בתו הבכירה, וידוע בכ"מ ברז"ל, עד כמה גדלה חובת האב למצוא זיווג מתאים בשביל בנותיו, ב) וכיון שנשיאנו הק' דקדקו[ftnref\_2201\_\*] בהכתוב לא יעשה כן כו' לתת הצעירה לפני הבכירה, הנה רק אח"כ ישדך את בתו השני' מרת. . . תחי'.
+[quotation](ממכתב ט"ו סיון, תשי"ג)[/quotation]
+
+## 286
+
+... דבלילה[ftnref\_2202\_\*] לאה עצמה היתה רחל. ראה טעמי המצות להרח"ו פ' תצא אזהרת אתנן: הסימנים שמסרה רחל ללאה דהיינו חלק נשמתה שנתנה לה והרי היא רחל בעצמה. — דרך אגב א) ענין הסימנים אחרת — ראה חסד לאברהם מעין שני נהר ס"א. פי' הריב"א עה"ת במקומו. ב) מש"כ משביבי נוגה הוא מס' הפרדס כמסומן בההגהות. עיי"ש שי"ג בארוכה. . .
+ד' אבנים[ftnref\_2203\_\*\*]. ביל"ש איוב רמז תתצ"ט (הובא ביל"ר על אתר) שזהו כנגד ד' נשים שלקח. ומתאים הדרש למ"ד י"ב אבנים — כנגד י"ב שבטים, שלדעת שניהם הי' בזה סימן שתהא מטתו שלמה. . .
+[quotation](ממכתב ב' כסלו, תשי"ז) [/quotation]
+... ולסיים בד"ת שמא מילתא היא וכתב ביונת אלם פ"ה ויהי אור בגימ' רחל, ויש לבאר עפמ"ש בתורה אור רד"ה ותוסף אסתר כנס"י נקראת בשם בחינת רחל כשהיא בבחי' התגלות וכך הוא בכל או"א מישראל שיהא רצונו להבטל ולהכלל באורו ית' והוא בהתגלות ובהתלהבות.
+והנה בבנ"י כל דבר צ"ל ע"י עבודה ויתרון האור מן החושך דוקא כידוע. ובזה יובן מרז"ל ב"ר פ"ג, ה ויהי אור כנגד ספר ואלה שמות שבו יצאו ישראל מאפילה לאורה ואכמ"ל. . .
+[quotation](ממכתב י"ב אדר שני, תש"ח)[/quotation]
+... פי' הכתובים: ותקרא שמו ראובן (מכמה סיבות ומהם) כי אמרה כי ראה גו'. אבל בשמעון: ותאמר כי שמע (ולכן) ותקרא שמו שמעון. ובזה מובנת שאלת חז"ל (ברכות ז, ב) לטעם שם ראובן, ולא שאלו זה בשאר השבטים. כן מובן מה שרש"י מביא דרשה זו בפי' עה"ת — כי היא מוכרחת בפשט הכתובים. וראה ס' צרור המור.
+[quotation](ממכתב ז' אדר, תשי"ח)[/quotation]
+
+## 287
+
+... בקושיתו בפירש"י בגד בגדת בי — והרי היא עצמה נתנה אותה ליעקב — יל"פ בפשטות מפני שלא סירב. עוד י"ל ע"פ מ"ד דאפילו בנותנת רשות בלי פיוס מצטערת בלבה (עיין נ"כ שו"ע אה"ע סע"ו ס"ה).
+בקושיתו במרז"ל (ב"ר פע"א) דלא נאמר ותהר בזלפה מפני שבחורה היתה, והרי גם בהולדת פנחס ל"נ ותהר. ואינו מובן מנ"ל דאם פנחס לא היתה בחורה. וראה חזקוני לשמות ב, כב. ולכאורה קשה משמות (ו, כ) דל"ק ותהר והיא הייתה בת קכה בלידת מרים. אבל קושיא מעיקרא ליכא דבב"ר דייק מהשינוי וכאומרו: בכולן נאמר הריון חוץ. ודרשת החזקוני עכצ"ל דאסמכתא בעלמא היא. . .
+[quotation](ממכתב כ' ניסן, תשי"ז)[/quotation]
+לההערה מאז אודות "ישכר­יששכר" —
+מה שאמרתי הי' לא בעצם הענין, שהרי שקו"ט ומבואר הוא בכ"מ ובפרט בס' שמות גטין (כולל — ע"ד חילוקי המדינות בזה),
+וכן בנוגע לקרה"ת (נקבצו השיטות בתורה שלימה לויצא עה"פ),
+אלא — אודות הסתירה מיני' ובי' — שהספרים דראשי הגזע נקראו בפי כל בני ושער — יששכר וחתימת וקריאת האנשים בשי"ן אחת.
+[quotation](ממכתב בדר"ח תמוז, תשמ"א)[/quotation]
+
+**English:**
+
+## 285
+
+### Vayetzei
+
+...Regarding the question posed to him based on the wording of the verse, "angels of Elokus ascending and descending upon it," where the verse mentions ascending before descending—it is surprising that he asks this, as Rashi explicitly addresses this difficulty, citing the Midrash Rabbah on the spot; see also the commentary of the Rashbam there. It is possible that his primary intent is the second point, based on the Midrash’s interpretation that "ascending" refers to the angels who were dismissed from his domain, etc., and he asks how it is possible for them to act against the will of the Creator. His question here is that angels do not possess free choice (see the beginning of Chapter 39 in Tanya). Regarding the first point—how it is possible for them to act against the will—it is obvious that they did not intend to act against the Creator’s will; rather, they did not know that this was contrary to the Creator’s will. No created being, not even an angel or one higher than an angel, can be perfect in the ultimate sense, as per Rashi’s well-known commentary on the verse, "which Elokus created to do"—to rectify. Therefore, it is possible for them to err. An example of this is Adam HaRishon, who, even though he was the handiwork of the Ribbono shel Olam and this was before the sin of the Tree of Knowledge, nevertheless stumbled in this due to a "ruling of permission" (hora'as heter) and the like. See also what is written regarding this in the introduction to the Shelah, Chelek Beis Yisrael (in most editions, page 18, end of side a).
+(From a letter, 4 Kislev, 5717)
+
+In response to your letter from Monday, in which you write that until now a shidduch has not presented itself for your eldest daughter... tichyeh, and now a shidduch is being proposed for your younger daughter, Maras... tichyeh.
+Behold: a) You must exert the appropriate effort in searching for a shidduch for your eldest daughter. It is well known in many places in the words of our Sages how great the father’s obligation is to find a suitable match for his daughters. b) And since our Nasi, the holy one, was particular regarding the verse, "It shall not be done so," etc., not to give the younger before the elder, therefore, only afterwards should you arrange the shidduch for your second daughter, Maras... tichyeh.
+(From a letter, 15 Sivan, 5713)
+
+## 286
+
+...For on that night, Leah herself was Rachel. See Taamei HaMitzvos by the Arizal, Parshas Tetzei, regarding the warning against "esnan": the signs that Rachel gave to Leah, meaning the portion of her soul that she gave to her, and thus she was Rachel herself. — Incidentally: a) The matter of the signs is explained differently; see Chessed L'Avraham, Maayan Sheini, River 61. See also the commentary of the Rivan on the Torah in its place. b) What is written regarding "shivivei nogah" is from Sefer HaPardes, as noted in the glosses. See there, 113, at length...
+Four stones. In Yalkut Shimoni, Iyov, Remez 899 (cited in Yalkut Reuveni on the spot), it states that this corresponds to the four wives he took. This Midrash is consistent with the opinion that there were twelve stones—corresponding to the twelve tribes—as both opinions agree that this was a sign that his bed would be complete...
+(From a letter, 2 Kislev, 5717)
+
+...To conclude with words of Torah: Perhaps it is a matter of gematria. It is written in Yonas Eilem, Chapter 8, that "Yehi Ohr" (Let there be light) is the numerical equivalent of "Rachel." This can be explained based on what is written in Torah Or, in the discourse "Vatosef Esther," that Knesses Yisrael is called by the name of the level of Rachel when she is in a state of revelation. This is true for every single Jew: that his desire should be to achieve bitul and to be included in His light, may He be blessed, and this is in a state of revelation and enthusiasm.
+Now, among Bnei Yisrael, every matter must be achieved through avodah, and specifically through the "advantage of light from darkness," as is known. With this, we can understand the words of our Sages in Bereishis Rabbah, Chapter 3:5, that "Yehi Ohr" corresponds to the book of Shemos, in which Yisrael went out from darkness to light—and there is no room here to elaborate.
+(From a letter, 12 Adar II, 5708)
+
+...The explanation of the verses: "And she called his name Reuven" (for several reasons, among them) because she said, "For He has seen," etc. But regarding Shimon: "And she said, 'Because He has heard' (and therefore) she called his name Shimon." With this, the question of our Sages (Berachos 7b) regarding the reason for the name Reuven is understood, and they did not ask this regarding the other tribes. Likewise, it is understood why Rashi brings this Midrash in his commentary on the Torah—because it is necessary for the literal meaning of the verses. See Sefer Tzoror HaMor.
+(From a letter, 7 Adar, 5718)
+
+## 287
+
+...Regarding your question on Rashi’s commentary, "You have dealt treacherously"—but she herself gave her to Yaakov!—it can be explained simply: because he did not refuse. It can also be explained according to the opinion that even when one gives permission without being appeased, one is pained in one’s heart (see the notes in Shulchan Aruch, Even HaEzer, 76:6).
+Regarding your question on the words of our Sages (Bereishis Rabbah, Chapter 71) that "And she conceived" is not said regarding Zilpah because she was a young girl—yet in the birth of Pinchas, it also does not say "And she conceived." It is not understood where it is derived that if it was Pinchas, she was not a young girl. See Chizkuni on Shemos 2:22. Seemingly, there is a difficulty from Shemos (6:20), where it does not say "And she conceived," and she was 125 years old at the birth of Miriam. However, there is no difficulty from the outset, because the Bereishis Rabbah is precise regarding the change in language, as it says: "In all of them, pregnancy is mentioned, except..." And the interpretation of the Chizkuni must be considered merely an asmachta (a scriptural support)...
+(From a letter, 20 Nissan, 5717)
+
+Regarding the note from some time ago about "Yisachar-Yissachar"—
+What I said was not regarding the essence of the matter, for it is a subject of debate and is explained in many places, especially in Sefer Shemos Gittin (including regarding the differences in the various regions in this matter).
+Likewise, regarding the reading of the Torah (the opinions are collected in Torah Sheleimah for Vayetzei on the verse),
+Rather, it was regarding the internal contradiction—that the books of the leaders of the lineage are called by all "Bnei Yissachar," while the signature and the reading of the people is with one shin.
+(From a letter, 2 Erev Rosh Chodesh Tammuz, 5741)
+
+---
+
+
+## וישלח
+
+_Section: וישלח_
+
+**Hebrew:**
+
+## 288
+
+### וישלח
+
+כיון דאתאי לידי[ftnref\_2204\_\*], הרי בתחלת הדוגמאות מצות גיד הנשה.
+לדעת כמה ראשונים אסור גם בהנאה (צוינו באנצקלופדיה תלמודית) וכן היא דעת הזהר (ח"א ק"ע, ב) הובא בבית יוסף יורה דעה סימן ס"ה. ועיי"ש בדרכי משה ובנצוצי זהר על הזהר. ע"ד קבלה וחסידות ראה זהר שם. אור הת' לצ"צ עה"פ.
+[quotation](ממכתב שנת תשכ"ד)[/quotation]
+במענה על הודעתו מהבר מצוה של בנו. . . יחי'
+אביע ברכותי שיגדלוהו (ראה קדושין ל, א: ידך על צוארי דבריך כו' עד עשרים ותרתי ואמרי לה כו' עד עשרים וארבעה, ולכאורה צ"ע בדעת רבנו הזקן — הל' ת"ת פ"א סוף ס"ו — דנקט כתרי חומרי, ואכ"מ) לתורה חופה ומע"ט מתוך הרחבה בגו"ר.
+והנה[ftnref\_2205\_\*] בן י"ג למצות י"א דילפינן משמעון ולוי (רש"י נזיר כט, ב, וראה נ"כ המשנה ספ"ה דאבות) וי"ל דענין קיום המצות בבר מצוה בתחלה, עכ"פ, הוא א) בדרך מלחמה עם הגוף ונה"ב, כי אקדמי' טעניתי', ב) הכוונה להמשיך אוא"ס ב"ה בהם ובגשם שבו מקיים המצוה, ג) היכולת לנצח מלחמה זו, הוא מפני שהקב"ה עוזרו, כי אלמלא עוזרו כו'.
+וזהו א) שמעון — עבודתו בבחי' שמיעה ולא ראי' (יעויין לקו"ת ר"פ ואתחנן, סוף קונטרס העבודה, ועוד). ב) לוי — הכוונה שילווה אוא"ס ב"ה למטה (ראה תו"א ר"פ ויחי) ג) אליעזר[ftnref\_2206\_\*\*] — מנצח אף אם היצר מתגבר, כי אלקיו בעזרו, להיות הולך וגדל עד כי גדל מאד. . .
+[quotation](ממכתב יום ו' לחדש אלול, תש"ו)[/quotation]
+
+**English:**
+
+## 288
+
+### Vayishlach
+
+Since it has come to my attention, the first of the examples is the mitzvah of *gid hanasheh*.
+
+According to several *Rishonim*, it is also forbidden to derive benefit from it (cited in *Encyclopedia Talmudit*), and this is also the opinion of the *Zohar* (Vol. I, 170b), as cited in *Beis Yosef*, *Yoreh Deah*, section 65. See there in *Darkei Moshe* and *Nitzutzei Zohar* on the *Zohar*. Regarding the *Kabbalah* and *Chassidus* perspective, see the *Zohar* there, and *Or HaTorah* by the *Tzemach Tzedek* on the verse.
+
+[quotation](From a letter in the year 5724)[/quotation]
+
+In response to your notification regarding the Bar Mitzvah of your son... may he live.
+
+I express my blessings that you raise him (see *Kiddushin* 30a: "Your hand is upon the neck of your enemies..." until twenty-two, and some say until twenty-four; seemingly, the opinion of *Rabbeinu HaZaken*—*Hilchos Talmud Torah*, Chapter 1, end of section 6—requires explanation, as he adopts both stringencies, but this is not the place to elaborate) to Torah, *chuppah*, and *maasim tovim*, in a state of material and spiritual expansion.
+
+Now, a thirteen-year-old is obligated in *mitzvos*, which we derive from Shimon and Levi (*Rashi*, *Nazir* 29b; see *Nitzutzei Ksav* on the *Mishnah*, end of Chapter 5 of *Avos*). It can be said that the matter of fulfilling *mitzvos* at the Bar Mitzvah, at least initially, involves: 1) A path of war against the body and the *nefesh habahamit*, for "he precedes it with his fasts." 2) The *kavanah* to draw down *Ohr Ein Sof* into them and into the physical object with which the *mitzvah* is performed. 3) The ability to win this war is because *Hashem* helps him, for "were it not for *Hashem* helping him..."
+
+And this is: 1) Shimon—his *avodah* is in the mode of hearing, not seeing (see *Likutei Torah*, beginning of *Parshas Vaeschanan*, end of *Kuntres HaAvodah*, and elsewhere). 2) Levi—the *kavanah* that he accompanies (*levah*) the *Ohr Ein Sof* downwards (see *Torah Or*, beginning of *Parshas Vayechi*). 3) Eliezer—he is victorious even if the *yetzer* prevails, because his G-d is his help, to be "going and growing until he became very great..."
+
+[quotation](From a letter, Friday, the month of Elul, 5746)[/quotation]
+
+---
+
+
+## יט כסלו
+
+_Section: יט כסלו_
+
+**Hebrew:**
+
+## 289
+
+### יט כסלו
+
+מיט פאַרגעניגען האָב איך באַקומען אייער בריף אין וועלכען איר שרייבט אַ דערפרייענדע בשורה, אַז אנ"ש זיינען זיך צוזאַמענגעקומען מוצש"ק פ' וישלח און האָבען געפייערט דעם חג הגאולה י"ט כסלו, מען האָט געזונגען דעם ניגון פון כ"ק אדמו"ר הזקן און מען האָט אויך געלייענט די ערצעהלונג וועגען דעם מאסר והחופש וכו'. און השי"ת זאל העלפען לויט דעם מאמר רז"ל אַז שמחה איז פורץ גדר, אַז די שמחה זאָל אַראָפנעמען אין דעם אָרט וואו איר זייט יעצט, די גדרים והעלמות, אַז אויך די מענשן וועלכע עס דאַכט זיך זיי אַז זיי זיינען מתנגדים, זאָלען צוקומען צו דעם אמת'ן אמת, אַז יעדער איד איז אַ חסיד, און ווי מיין שווער כ"ק אדמו"ר פלעגט זאָגן, אַז אידען ווערען אָנגערופן מעין גנים באר מים חיים, און אויך ארץ חפץ, און דאָס זעהט מען בחוש, אַז אין יעדער אָרט וואו מען זאָל ניט גראָבען איז סוף סוף דערגראָבט מען זיך צו דעם מעין ובאר מים חיים, דער חילוק איז נאָר, אַז אין איין אָרט איז גענוג צו אַראָפנעמען נאָר אַ דינע שיכט (שכבה) פון זאַמד און בלאָטע, אָדער שטיינער, און אין אַ צווייטען אָרט איז די שיכט אַ גרעבערע און אַ דיקערע. אָבער צד השוה אין דעם איז, אַז יעדער אָרט האָט דאָס. און די זעלבע זאַך איז מיט דער נקודת היהדות, וואָס דאָס איז אהבת ישראל אהבת התורה ואהבת השם, וועלכעס איז כולא חד, אַז יעדער איד האָט דאָס, דער חילוק איז נאָר ווי געזאָגט אויבען, אַז באַ איינעם איז דאָס אויבען אויף, און באַ אַ צווייטען דאַרפמען האָבען מער יגיעה צו אויפדעקען דאָס באַ עם.
+איר שרייבט אין אייער בריף, אַז דער רב פון שול, האָט באַ אייך געפרעגט, פאַרוואָס מען האָט ניט געזאָגט תחנון י"ט כסלו, וויילע א) אין שו"ע פון רבינו הזקן, שטייט ניט אַז מען זאָל דאַן ניט זאָגען קיין תחנון. ב) און פאַרוואָס זאָל מען ניט לאָזען זאָגן תחנון, די וועלכע ווילען יע זאָגען תחנון.
+איז אויף דער ערשטער פראַגע, שרייבט איר אַליין אַ ענטפער אין אייער בריף, וויילע דעם שו"ע האָט רבינו הזקן געשריבען פאַר דער ?אַסירונג פון י"ט כסלו נאָך במעזריטש (זע הקדמת בנו לשו"ע). און אויף דער צווייטער פראַגע, פאַרוואָס זאָל מען ניט לאָזען זאָגען תחנון די אידן וועלכע ווילען יע זאָגען, איז פראַן צוויי טעמים אין דעם. א) די וועלכע זאָגען ניט קיין תחנון י"ט כסלו, באַווייזען דערמיט אַז זיי זיינען מסכים צו דעם אַז רבינו הזקן איז גאָר ניט שולדיג געווען, און אַז תורת החסידות — צי ער לערענט אַליין חסידות אָדער אַפילו ניט — איז תורת ה', במילא אַז אַ איד איז געווען אַרעסטירט פאַר דעם פאַרשפרייטען די תורה, איז זיין באַפרייאונג אַ תורה שמחה, אָבער די מנגדים און [וואָס] ווילען דוקא זאָגען תחנון אין דעם טאָג י"ט כסלו, איז וואָס פאַר אַ טעם זיי זאָלען ניט טראַכטען אין דעם,
+
+## 295
+
+איר זאָלט גלייך אָנהויבען אין דעם, און זעהען אַז אויך די סביבה זאָל אַזוי טאָן, והשי"ת יצליחו.
+בייגעלייגט איז דאָ אַ קונטרס וואָס איז איצטער ערשינען, און געוויס וועט איר אויך מזכה זיין את הרבים מיט דעם. וזכות הרבים תלוי בו.
+[quotation](ממכתב ה' מנ"א, תשט"ז)[/quotation]
+... מקרר מלימוד פנימיות התורה! ולא היתי מאמין זה לולי ראיתי זאת בפירוש. והיאומן כי יסופר, אשר איש מקושר לגזע הריזינאי, מביא כמה פעמים בספרו ד"ת ומופתים מהבעש"ט ותלמידיו, וא"כ בטח יודע מאגה"ק של הבעש"ט שהמשיח א"ל שיבוא כשיפוצו מעינות הבעש"ט חוצה — ואחכ"ז כותב ומדפיס לרבים, אשר כל מי שלא הגיע לזה אשר "יערה עליו רוח ממרום להתנהג בקדושה וטהרה ופרישות יתרה" לא ילמוד אלא בנגלות התורה.
+והגע בעצמך: האריז"ל אמר (כמו שהביא רבנו הזקן בשמו באגרת הקודש סכ"ו) דדוקא בדורות אלו האחרונים מותר ומצוה לגלות זאת החכמה. רעיא מהימנא הוא משה רבנו אמר (זח"ג קכד, ב) ובגין דעתידין ישראל למטעם מאילנא דחיי דאיהו האי ס' הזהר יפקון בי' מן גלותא ברחמי (ועייג"כ ת"ז סוף ת"ו). הקב"ה מגלה מסתורין שלו ע"י הבעש"ט תלמידיו ותלמידי תלמידיו וגם בדורותנו אלו, ובלבד שתבוא הגאולה, חרות מיצה"ר ושעבוד מלכיות, ושכ"ז יהי', כנ"ל ברע"מ, ברחמי, וכל אשר ההשפעה בידו צריך הי' לצעוק בקול פנימי: אחב"י חוסו על עצמכם ועל כלל ישראל והפיצו תורת ודברי אלק' חיים. ולהודיע ממש"כ ר"ח ויטל בהקדמתו לשער ההקדמות שעי"ז הוא עכוב קץ הגאולה, היינו שמעכבין עי"ז את עצמו את כלל ישראל וכביכול את השכינה בגלות.
+ותמורת זה נדפס, אשר לע"ע יש לחכות ולהסתפק בלימוד הנגלה, וכשיפנה ויערה עליו רוח ממרום ויתנהג בקדושה ובטהרה ופרישות יתרה אז יתחיל בלימוד פנימיות התורה!
+האומנם לא די בצרות ישראל ע"ע ח"ו? ואין מספיק ח"ו הגלות? או שח"ו לא יאמנו דברי הגואל אחרון הוא משיח צדקנו, דכשיפוצו מעינות הבעש"ט חוצה אז יבוא. והם הם דברי הגואל ראשון הוא רע"מ, דבגין דיטעמו מס' הזהר יפקון מן גלותא?
+הארכתי בזה לגודל צער הענין. ואם יהיו תוצאות מכתבי זה, אשר בהקדם היותר אפשרי יתקן את הנ"ל — (כמובן אינו נוגע כלל שידעו שהי' מי שעורר ע"ז) — דיינו.
+
+**English:**
+
+## 289
+
+### 19 Kislev
+
+I received your letter with pleasure, in which you write the heartening news that Anash gathered on Motzaei Shabbos Parshas Vayishlach and celebrated the Chag HaGeulah of 19 Kislev. You sang the nigun of the Alter Rebbe and read the account of his imprisonment and liberation, etc. May Hashem help, in accordance with the teaching of our Sages that "joy breaks through barriers," that this joy should remove the barriers and concealments in the place where you are now. May even those people who seem to be opponents come to the true truth—that every Yid is a Chassid. As my father-in-law, the Rebbe, used to say, Yidden are called "a fountain of gardens, a well of living waters," and also "a land of desire." One sees this clearly: in any place one digs, one eventually reaches that fountain and well of living waters. The only difference is that in one place, it is enough to remove a thin layer of sand, mud, or stones, while in another place, the layer is thicker and heavier. But the common denominator is that every place possesses it.
+
+The same is true regarding the *punkt* of Yiddishkeit—which is Ahavas Yisrael, Ahavas HaTorah, and Ahavas Hashem, all of which are one. Every Yid possesses this; the difference is only as mentioned above: for one person, it is on the surface, while for another, one must exert more effort to uncover it within him.
+
+You write in your letter that the Rav of the shul asked you why Tachanun is not recited on 19 Kislev, given that: a) the Shulchan Aruch of our Rebbe, the Alter Rebbe, does not state that Tachanun should be omitted then; and b) why should those who wish to recite Tachanun not be allowed to do so?
+
+Regarding the first question, you yourself provide the answer in your letter: the Alter Rebbe wrote the Shulchan Aruch before the imprisonment of 19 Kislev, while still in Mezritch (see the introduction by his son to the Shulchan Aruch). Regarding the second question—why not allow those Yidden who wish to recite Tachanun to do so—there are two reasons. a) Those who do not recite Tachanun on 19 Kislev demonstrate thereby that they agree that the Alter Rebbe was not guilty at all, and that Toras HaChassidus—whether one learns Chassidus himself or not—is the Torah of Hashem. Consequently, since a Yid was arrested for spreading this Torah, his liberation is a "Torah celebration." However, for the *misnagdim* who insist on reciting Tachanun on the day of 19 Kislev, whatever reason they may conceive for doing so...
+
+## 295
+
+You should begin this immediately and see to it that your surroundings do so as well, and may Hashem grant you success.
+
+Enclosed is a *kuntres* that has just been published, and surely you will also *zakeh es harabim* (merit the public) with it, for the merit of the public depends upon it.
+
+(From a letter, Menachem Av, 5716)
+
+...cooling [people] off from the study of Pnimiyus HaTorah! I would not have believed it had I not seen it explicitly. Is it believable that a man connected to the Ruzhiner lineage, who brings down in his book several times the Torah teachings and miracles of the Baal Shem Tov and his disciples—and if so, surely he knows of the *Iggeres HaKodesh* of the Baal Shem Tov that Mashiach told him he would come when the "fountains of the Baal Shem Tov spread outward"—after all this, writes and publishes for the masses that anyone who has not reached the level where "a spirit from on high is poured upon him to conduct himself in holiness, purity, and extra separation" should not study anything but the revealed parts of the Torah?
+
+Consider this yourself: The Arizal said (as the Alter Rebbe brings in his name in *Iggeres HaKodesh*, section 26) that it is precisely in these final generations that it is permitted and a *mitzvah* to reveal this wisdom. The *Ra'aya Mehemna*, who is Moshe Rabbeinu, said (*Zohar Vol. III, 124b*): "And because Yisrael are destined to taste from the Tree of Life, which is this *Sefer HaZohar*, they will emerge from exile through mercy" (and see also *Tikkunei Zohar*, end of Tikkun 6). Hashem reveals His mysteries through the Baal Shem Tov, his disciples, and his disciples' disciples, and even in these generations of ours, provided that the Geulah comes—freedom from the *yetzer hara* and the subjugation of kingdoms. And for all of this to happen, as mentioned above in *Ra'aya Mehemna*, it must be through mercy. Anyone who has the influence to do so should have cried out with an inner voice: "My brothers, children of Yisrael, have pity on yourselves and on the entire Jewish people, and spread the Torah and the words of the living G-d." And [one should] inform them of what R. Chaim Vital wrote in his introduction to *Shaar HaHakdamos*, that through this [the study of Pnimiyus HaTorah] is the delay of the end of the Geulah—meaning, that by this they are delaying themselves, the entire Jewish people, and, as it were, the Shechinah in exile.
+
+And in exchange for this, it is printed that for the time being, one should wait and be satisfied with the study of the *nigleh*, and when one becomes free and a spirit from on high is poured upon him and he conducts himself in holiness, purity, and extra separation, then he shall begin the study of Pnimiyus HaTorah!
+
+Is there not enough suffering for Yisrael already, Heaven forbid? Is the exile not enough, Heaven forbid? Or is it that, Heaven forbid, they do not believe the words of the final Redeemer, our righteous Mashiach, that when the fountains of the Baal Shem Tov spread outward, then he will come? And these are the very words of the first Redeemer, Moshe Rabbeinu, that because they will taste from *Sefer HaZohar*, they will emerge from exile?
+
+I have written at length on this due to the great pain of the matter. And if there are results from this letter of mine, that at the earliest possible opportunity he corrects the above—(of course, it does not matter at all that they know who it was that raised this issue)—it is enough for us.
+
+---
+
+
+## וישב
+
+_Section: וישב_
+
+**Hebrew:**
+
+## 297
+
+### וישב
+
+... במה שהעיר[ftnref\_2215\_\*] בפי' נסעו מזה כו' דלמה לנטות מפשוטו (גם ע"פ דרש זה דנסעו ממדותיו של הקב"ה), שמדותיו של הקב"ה רחמים משא"כ הם שמכרוהו כו' — ידוע דאין משיבין על הדרוש, ובפרט שכיוון לפי' המת"כ, בכ"ז לעשות רצונו ביאור הצ"ע חפצתי. וי"ל דאדרבה כפשוטו חסד גדול במכירת יוסף לעבד, ע"ד תשובת המשקל לתקן העון דהמלך תמלוך עלינו ועל אביו שהחלום מוכיח שזהו הרהורי לבו. וב"נ נענש על המח' (ירוש' הובא בתוס' קדושין לט, ב).
+במה שהעיר על הכתוב בחלום יעקב שאין לומר שהי' מהרהורי לבו — ראה כלי יקר שהי' החלום בזמנו כו', ומפורש יותר בב"ר ר"פ ויצא.
+[quotation](ממכתב שלהי אד"ש, תשי"ז)[/quotation]
+... ובמה שהעיר ממש"כ באוה"ח (וישב לז, כא) אשר בעל בחירה יכול להרוג גם מי שלא נתחייב מיתה ביד"ש, שהוא היפך ממש"כ באגה"ק לאדה"ז רסכ"ה — הנה גברא אגברא קא רמית. אבל, לכאורה קשה ממש"כ בזח"א (קפה, א. ושם) וממש"נ (ש"ב כד, יד). וי"ל שהוא ע"ד העומד במקום סכנה (שבת לב, א) אשר אעפ"כ תלוי רק, בפס"ד שמלמעלה. והסכנה גדולה יותר מבעל בחירה, מאשר בע"ח שעליהם נאמר ומוראכם גו' (תניא פכ"ד ואוה"ח שם). ולכן מספיק גם זכות קטן, משא"כ באנשים ובפרט בנ"י שבחירתם חפשית באמת (עיי"ש במפרשי הזהר). ויש לדחוק זה גם בל' האוה"ח ובפי' הר"ח לחגיגה (ה, א). ויל"ע במרז"ל (ערכין טו, ב) קטיל תליתאי — ובמש"כ בזה בהיום יום י"ג חשון.
+[quotation](ממכתב כ"ו תמוז, תשי"ד)[/quotation]
+
+**English:**
+
+## 297
+
+### Vayeshev
+
+...Regarding the point raised concerning the interpretation of "they traveled from here," etc.—that why should one deviate from the literal meaning (even according to this *drash* that they traveled from the *midos* of Hashem), given that the *midos* of Hashem are mercy, whereas they sold him, etc.—it is well known that one does not challenge a *drash*, especially when it aligns with the interpretation of the *Matnas Kehuna*. Nevertheless, to fulfill your request, I wish to explain the difficulty. It can be said that, on the contrary, according to the literal meaning, there was a great *chesed* in the sale of Yosef into slavery, in the manner of a *teshuvas hamishkal* (a compensatory response) to rectify the sin of "Will you indeed reign over us?" and over his father, for the dream proves that these were the thoughts of his heart. And Binyamin was punished for the *machlokes* (Yerushalmi, cited in Tosafos, Kiddushin 39b).
+
+Regarding the point raised concerning the verse in Yaakov’s dream, that one cannot say it was from the thoughts of his heart—see the *Kli Yakar* who explains that the dream occurred in his time, etc., and this is explained more explicitly in *Bereishis Rabbah*, beginning of *Parshas Vayeitzei*.
+
+(From a letter, end of Adar Rishon, 5717)
+
+...And regarding the point raised from what is written in the *Ohr HaChayim* (Vayeshev 37:21) that a person with *bechirah* (free will) can kill even one who has not been decreed death by Heaven, which is the exact opposite of what is written in *Iggeres HaKodesh* by the Alter Rebbe, section 25—you are pitting one great authority against another. However, on the face of it, there is a difficulty from what is written in *Zohar Chadash* (185a, and there) and from what is written in *Nach* (Shmuel II 24:14). It can be said that this is similar to one who stands in a place of danger (Shabbos 32a), where, even so, it depends only on the verdict from Above. And the danger from [wild] animals is greater than from a person with *bechirah*, for regarding animals it is said, "And the fear of you," etc. (*Tanya*, Chapter 24, and *Ohr HaChayim* there). Therefore, even a small merit is sufficient, which is not the case with people, and especially with *Bnei Yisrael*, whose *bechirah* is truly free (see there in the commentaries on the Zohar). One may also force this interpretation into the language of the *Ohr HaChayim* and the commentary of the *Rabbenu Chananel* on *Chagigah* (5a). And this requires further study in the words of our Sages (Arachin 15b), "the third one is killed"—and in what is written regarding this in *Hayom Yom*, 13 Cheshvan.
+
+(From a letter, 26 Tammuz, 5714)
+
+---
+
+
+## יט כסלו — חנוכה
+
+_Section: יט כסלו — חנוכה_
+
+**Hebrew:**
+
+## 299
+
+ועל פי כתבה שהפתיחה החגיגית תתקיים בי"ט כסלו, בודאי שיודעת פרשת יום סגולה זה, גאולת רבנו הזקן, בעל התניא והשלחן ערוך, מייסד תורת חסידות חב"ד, ממאסרו, שהי' צפוי לו מאסר עולם ויותר מזה. וכידוע ומפורסם שמהנקודות העקריות וגם פנימיות שבפרשה זו היתה עבודתו המסורה בכל לבו ונפשו לשיפור מצב היהדות וחיי היהודים בגשמיות וברוחניות גם יחד, ועד לפרטיהם ופרטי פרטיהם בחיי היום­יום, שיהיו חדורים בפנימיות היהדות הקשורה בפנימיות התורה (שתוכנה הוראה וחינוך), ובאופן דהפצת המעינות חוצה.
+בכל שנה ושנה יום סגולה זה מזכיר ומדגיש הוראה עיקרית: שכשאיש ואשה, נער וזקן, מבני עמנו מחליטים בכל תוקף שלא להתרשם מעניני העולם (מלשון העלם והסתר) המעלימים ומבלבלים לחיים על פי התורה ומצותי', מובטח להם שמתגברים על כל המניעות, ואדרבה ממלאים תפקידם עוד ביתר שאת וביתר עז, הן בנוגע לחייהם הם והן בנוגע להשפעתם בסביבה, ובאופן שמוסיף והולך.
+והרי זו גם מההוראות העקריות דימי חנוכה, הבאים בסמיכות לי"ט כסלו, כידוע מהקורות את עמנו בימים ההם בזמן הזה, הנזכרים ונעשים מדי שנה בשנה במצות נר חנוכה, הלוך ומוסיף בנר ואור מיום ליום — סמל והוראה לנר מצוה ותורה אור.
+וזהו גם כן תפקידו העקרי של כל מוסד חינוך יהודי הראוי לשמו — לחנך את התלמידים (­ות) שכל אחד ואחת מהם יהי' "נר להאיר" חשכת העולם. ועל אחת כמה וכמה בי"ס דתי הנושא את השם "הר א­ל", שתפקידו להוסיף בכל עניני היהדות המוליכים ומעלים להר ה' במעלות הקודש, התורה ומצותי'.
+והנני לאחל לכל או"א מהתלמידים והמחנכים וחברי ההנהלה, שיחיו, שילכו מחיל אל חיל בכל עניני דתנו ותורתנו, בדרך העולה בית א­ל. והרי הבטיחה תורתנו: יגעת ומצאת — הצלחה מרובה שלא לפי ערך היגיעה, בבחינת "מציאה".
+בכבוד ובברכה לבשורות טובות
+[quotation](ממכתב ראש חודש כסלו, ה'תשמ"ו)[/quotation]
+ת"ח עבור הנח"ר שגרם במסירת ספר המפתחות ללקו"ש חלקים טו­יט שזכה ונדפסו על ידו בהתנדבו כל הוצאות ההדפסה.
+ובפרט שנתקבלו ביום הבהיר י"ט כסלו, חג הגאולה של כ"ק אדמו"ר הזקן בעל התניא והשולחן ערוך ומייסד תורת חב"ד —
+והרי תוכן הספרים האמורים הוא ממעינות התורה בכלל, וממעינות רבותינו
+
+**English:**
+
+## 299
+
+Given that the inaugural ceremony is to take place on 19 Kislev, you are surely aware of the significance of this auspicious day—the liberation of Rabbeinu HaZaken, author of the Tanya and Shulchan Aruch and founder of the Chabad Chassidic path, from his imprisonment, a situation that had threatened him with life imprisonment and worse. As is well known, one of the primary and inner aspects of this event was his dedicated avodah, with all his heart and soul, toward improving the state of Yiddishkeit and the lives of Jews, both materially and spiritually, down to the finest details of daily life. His goal was for these to be permeated with the inwardness of Yiddishkeit, which is bound to the inwardness of the Torah (the essence of which is instruction and education), in the manner of "spreading the wellsprings outward."
+
+Each year, this auspicious day reminds us of and emphasizes a fundamental lesson: when a man or woman, youth or elder, among our people decides with absolute firmness not to be swayed by the matters of the world (*olam*, from the root *he'elem* and *hester*—concealment and hiddenness) that obscure and confuse the path of living according to the Torah and its mitzvos, they are guaranteed to overcome all obstacles. On the contrary, they will fulfill their role with even greater strength and vigor, both regarding their own lives and their influence on their surroundings, in a manner that constantly increases.
+
+This is also one of the primary lessons of the days of Chanukah, which follow closely upon 19 Kislev, as is known from the events that befell our people "in those days, at this time." These events are recalled and reenacted each year through the mitzvah of the Chanukah candles, which increase in light from day to day—a symbol and instruction for the "candle of the mitzvah and the light of the Torah."
+
+This is also the primary task of every Jewish educational institution worthy of the name—to educate the students so that each one of them becomes a "candle to illuminate" the darkness of the world. This is all the more true for a religious school that bears the name "Har-El," whose role is to increase all matters of Yiddishkeit that lead and elevate one to the "mountain of Hashem," in the levels of holiness, Torah, and mitzvos.
+
+I wish each of the students, educators, and members of the administration, *sheyichyu*, that they go from strength to strength in all matters of our religion and our Torah, on the path that ascends to "Beis-El." Our Torah has promised: "You have labored and you have found"—a success that is vast and disproportionate to the effort, in the category of a "finding" (*metzi'ah*).
+
+With respect and blessing for good tidings,
+
+(From a letter dated Rosh Chodesh Kislev, 5746)
+
+Many thanks for the *nachas* caused by the delivery of the index for Likkutei Sichos, volumes 15–19, which were printed through his merit, as he volunteered all the printing expenses.
+
+This is especially significant as they were received on the bright day of 19 Kislev, the *Chag HaGeulah* of the Rebbe HaZaken, author of the Tanya and Shulchan Aruch and founder of the Chabad path—
+
+And indeed, the content of these books is from the wellsprings of the Torah in general, and from the wellsprings of our Rebbes.
+
+---
+
+
+## חנוכה
+
+_Section: חנוכה_
+
+**Hebrew:**
+
+## 301
+
+### חנוכה
+
+... ומה שהעיר כת"ר בשולי מכתבו מהא דבמ"ס (פ"ב ה"ה) בהא דנ"ח מוסיף והולך הובאו ב' הטעמים שבזה "מעלין בקדש ולא מורידין כעין ימים היוצאים", אף שבשבת (כא, ב) הוא פלוגתא דאמוראי, כבר ציין לזה בפי' נחלת יעקב על מ"ס — הנדפס בש"ס — אף שלא פירש מאומה בזה וז"ל "גמרא דהכא סברי כתרי טעמי שבש"ס".
+וי"ל דכיון דאין בידנו להכריע בין ב' הטעמים ואין אחד סותר לחברו, ואין נפ"מ בפועל שקולים הם ויבואו שניהם, וגדולה מזה מצינו בש"ס, דגם במקום שנוגע לפועל אמרו (ברכות נט, א­ב, וש"נ) הילכך נימרינהו לתרווייהו, ולהעיר ג"כ מפי' הרשב"ם ב"ב (עה, א) ליהוו כדין וכדין, ועוד.
+וכיון דאתי לידי' נימא בה מילתא בטעמא דימים הנכנסים והיוצאים ומוסיף והולך או פוחת והולך, דזה תלוי בבירור אם הי' הנס דנ"ח הולך וגדול מיום ליום, או להיפך, והנה בשנת הנס שלא ידעו עדיין לכמה ימים יספיק השמן [(]וכבר הקשו המפרשים על התירוץ דחלקו השמן ביום א' לח' חלקים ויש עוד להוסיף קושיא מהא דזבחים (פח, א) כלי שרת אין מקדשין אלא מלאין אבל אם חסר השעור אין מקדשין, ומהא דמנחות (פח, ב) פשיטא דבמדה ראשונה כו') פשיטא, שלעיני הרואים, הי' הנס הולך וגדול מיום ליום, אבל אמרז"ל בשבת (שם) שרק לשנה הבאה קבעוה לחנוכה, ואז הרי כבר איגלאי מילתא למפרע שהי' בכח השמן הנמצא בפך ביום א' לדלוק ח' ימים, משא"כ ביום ב' שלא הי' בכחו לדלוק אלא ז"י וכו'.
+וזהו טעם ב"ש כנגד ימים הנכנסין, ששיעור הדלקת כל ח' ימים הנכנסין נכלל ע"פ נס בכמות שמן זה, ומיום ליום הנס הולך ופוחת, אבל ב"ה אומרים דנס דימים הנכנסים אינו אלא בכח ולא יצא עדיין לפועל, ואין להחמיר ולהקפיד שכאו"א יכיר בנס כזה, כי רובא דעלמא אין לו אלא מה שעיניו רואות בפועל.
+— וע"ד מרז"ל יומא (כא, א) ניסי דבראי קא חשיב ניסי דגואי לא קא חשיב —
+ולכן צ"ל כנגד ימים היוצאין, הנס בפועל ממש ובפרט לענין הדה"נ שהוא ענין פרסומי ניסא לרבים, שמצד זה הנס הולך ומוסיף מיום ליום.
+— וע"פ הנ"ל מבואר דגם בזה ב"ש לחומרא וב"ה לקולא —
+וע"ד החידוד י"ל דכעין שיטות ב"ש וב"ה כאן מצינו גם במק"א,
+והוא בעוקצין (פ"ג מ"ה) דגים מאימתי מקבלין טומאה בש"א משיצודו, כי אז,
+
+## 302
+
+בכח, ה"ה מתים כבר כיון דפרשו ממקום חיותם ואינם אלא מחוסר זמן, ובה"א משימותו בפו"מ[ftnref\_2216\_\*].
+וכדי לסיים בענין של מוסר ועבודה בקצור עכ"פ הנה טעם השני בפלוגתת ב"ש וב"ה הוא כנגד פרי החג ומעלין בקדש.
+דהנה שיטות שמאי והלל בעבודת האדם לקונו נתבארו בשבת (לא, א) שמאי לחומרא והלל לקולא.
+ולכן מי שיצה"ר טימא את מקדשו ובא ליטהר ולהכנס תחת כנפות השכינה, הנה לב"ש תחילת ועיקר העבודה הוא בסור מרע, ובערת הרע מקרבך. וכשמתחיל בעבודה הרע בתקפו, ונזקק ליגיעה גדולה ואור רב ודורשין ממנו יגיעה כזו, אבל מיום ליום הרע פוחת והולך ובמילא א"צ לאור גדול כביום א', ודוגמא לזה: פרי החג שמקריבים אותם כנגד או"ה שלא יצדה (ל' צדיא ורקניא) העולם מהם (ילקוט שמעוני ס"פ פנחס) אלא יהפכו לטוב ומיום ליום פוחת והולך הרע שבהם ולכן א"צ כבר למספר קרבנות גדול כ"כ
+— ועפי"ז מובן שאין סתירה בין טעם דפרי החג פוחתין והולכין כנגד או"ה (ע' פירש"י ס"פ פנחס וחדא"ג בשבת) ומרז"ל בסוכה (נה, ב) שהם לכפר עליהם —
+אבל ב"ה אומרים שתחילת הכל צריך להכנס תחת כנפי השכינה אף שעדיין הרע בתוקפו אצלו, ויתחיל בעבודתו בענינים של ועשה טוב, עבודה בקדש ממש ומצוה גוררת מצוה, ומעלין בקדש, שמעט מעט יוסיף אומץ להיות מוסיף והולך, עד שיודה ויהלל לשמו הגדול, שימחה זרעו של עמלק ויהי' השם גדול ושלם (ע' תוד"ה ועונין ברכות ג, א). . .
+[quotation](ממכתב תחלת שבט, תש"ג) [/quotation]
+\*
+... א) מה שלא נראה בעיני כת"ר התירוץ בהא דבמ"ס פ"ב ה"ה כליל ב' הטעמים מעלין בקדש וכעין ימים היוצאים כחדא, אף דבשבת (כא, ב) הוא פלוגתת אמוראי, וכתבתי דמצינו בכ"מ כה"ג וכמו בברכות (נט, א ושם) הלכך נימרינהו לתרווייהו ובב"ב (עה, א) ליהוי כדין וכדין ול"נ לכת"ר להשוותם, כי בברכות ובב"ב צריך לשני הענינים וכמ"ש במהרש"א ותר"י שם משא"כ במ"ס דאחד מהטעמים
+
+## 303
+
+מספיק, ואי משום הא לא אריא, דגם בהא י"ל, דבמ"ס ס"ל כמה נמוקים דצריך לתרווייהו[ftnref\_2217\_\*].
+(אף דבש"ס משמע קצת דלא ס"ל כן, וכמו שגם בהא דברכות וב"ב מ"ד אחד חולק על חברו ובכ"ז מסקינן כתרווייהו)
+ושערי נמוקים לא ננעלו, ולא אביא אלא אחדים: במי שמתחיל להדליק באמצע חנוכה, מטעם דימים היוצאים פשיטא דמדליק כשאר עמא, מהטעם דמעלין בקדש לחוד אפשר הי' להסתפק בדין זה (עיין או"ח סו"ס תרע"ב), הטעם דמעלין בקדש כו' מכריע שנדליק כנגד ימים היוצאין ולא כנגד ימים הנכנסין, מעלין בקדש שולל בעיקרו רק שלא יהי' פוחת והולך, ועכצ"ל כן, דאלת"ה יקשה מפני מה דינא דמוסיף והולך אינו אלא הידור דהידור ולא קבעו המצוה מתחלה באופן זה דמוסיף והולך אף דילפינן מקרא דמעלין כו'.
+מעלין בקדש ילפינן מקרא וכנגד ימים כו' הוא רק סברא.
+... ד) מה שהקשה מנ"ל בנס דחנוכה דכבר ביום הא' הי' בכח השמן לדלוק ח"י, כיון שזהו ענין נסיי ואין שייך בו חוקי הטבע, וא"כ י"ל דבכל רגע או בכל יום הי' מתחדש הנס (כנראה לזה כונתו, אף שלא פירש להדיא)[ftnref\_2218\_\*\*]
+וכמה תשובות בדבר א) אני כתבתי שאם נאמר שע"י הנס נעשה שיהי' בכח השמן ביום א' לדלוק ח"י יובן בטוב סברת ב"ש שמדליקין כנגד ימים הנכנסין, דלכאורה אינו מובן מה ענין ימים הנכנסין להדליק עליהם ביום א'. ובא כת"ר ומקשה שלא נאמר כן וא"כ לא תהי' מובנת סברת ב"ש, ב) כל הענינים שמפני זה זקוקים היו לנס ח"י (טהרה ז"י ועשית השמן יום א', הליכה ד' ימים ושוב ד' ימים וכו') כבר הי' מציאותם ביום הא' ולא נתחדשו אח"כ, לשנה הבאה איגלאי מילתא שאופן הנס הי' שלא יהי' הפסק בהדה"נ, ואופן וכוונה זו הרי היו גם ביום א' ולא הי' להם מקום לשרות אלא על הפך השמן. ג) אפושי ניסי למגנא למה לו, ולדוגמא בנס דצפחת השמן לא חסר (מ"א י"ז), מי שאמר לשמן וידלוק יאמר לחומץ וידלוק (תענית כה, א) וכו' האם נאמר דבכל רגע הי' מתחדש הנס, ועוד: את"ל כן יקשה למה הי' דולק והולך ביום (שם בתענית) דשרגא בטיהרא כו' גם מנ"ל דמדה טובה ממהרת לבוא ממדת פורעניות (שבת צז, א), ויש להעיר דבברכות (נד, א) חשיב אשתו של לוט בחדא מחתא עם אבני אלגביש, ומובן אשר אין משם ראי' אלא רמז בעלמא. ויל"ע במכות מצרים דקצתם סרו מעצמם וקצתם ע"י תפלה.
+ה) מש"כ אני במכתבי הקודם בתי' הב"י דחלקו השמן שבפך לח' חלקים דצ"ע מהא דזבחים (פח, א) דכ"ש אין מקדשין אלא מלאין, וא"כ לא היו נרות המנורה מלאין שוב ראיתי שטעות הוא בידי כי השמן למנורה נתקדש לא ע"י נרות המנורה
+
+## 311
+
+ויה"ר שמעלה זו תאיר גם בדורנו דור יתום זה דרא דעקבתא דמשיחא בסופו, באור המוסיף והולך משתשקע החמה עד שיפעול דלילה כיום יאיר בביאת בר נפלא בעגלא דידן...
+[quotation](ממכתב כ"ג כסלו, תשי"ז)[/quotation]
+... בנוגע להערתו מ"ש בחוברת האנגלית דחנוכה[ftnref\_2223\_\*] השם סוריא בה בשעה שבדברי רז"ל הנוסח הוא מלכות יון, — הנה ידוע בזה שכל הקודם קודם אין מחוייב לפרט דבריו משא"כ הבאים אחרי זה שכדי להשמר מטעות צריכים לבאר דבריהם בפרטיות, וכיון שהשם מלכות יון כולל כמה מדינות וכמה ממלכויות שצמחו ממלכות יון דאלכסנדר מוקדון, (ואם בפרט הרי מדינת יון היא בחצי האי דאירופא ולא בסוריא שבעסיא), הרי לשמור הקורא מהטעות בחרו בשם המבורר יותר. ומה שבנוסח התפלה קבעו השם יון, הנה יש לומר בזה כמה כוונות, והיותר פשוטה לכאורה היא זו שהמלחמה התנהלה בשם תרבות יון תורתה ומנהגי' נוסף על הטעם שמזמן תום גלות מדי ופרס ועד התחלת גלות אדום הוא רומי הרי הרדיפות והגליות שבינתים נקראים בשם גלות יון בדברי רז"ל וגם ע"ז י"ל הטעם כנ"ל. . .
+[quotation](ממכתב ג' טבת, תשי"ד)[/quotation]
+א. כל מאורע שבעולם הוא בהשגחה פרטית[ftnref\_2224\_1], ובפרט מאורע בחיים של בני ישראל, ועאכו"כ בנישואין של בן ובת בישראל, שתכליתו הוא להיות "בנין עדי עד"[ftnref\_2225\_2] לדורי דורות — הרי זה בודאי בהשגחה פרטית. לכן יש לבאר הקשר והשייכות בין תוכן ענין החתונה והזמן שבו חל, שבהשגח"פ הוא בימי החנוכה (בנר החמישי[ftnref\_2226\_3]), וכדלקמן.
+ב. במצות הדלקת נרות חנוכה מצינו שגם נשים מחוייבות בה, כדאיתא בגמרא[ftnref\_2227\_4] "נשים חייבות בנר חנוכה שאף הן היו באותו הנס".
+ובזה גופא שני פרטים:
+
+## 312
+
+א) הגזירה היתה גם עליהן, וכלשון הרמב"ם[ftnref\_2228\_5] "פשטו ידם בממונם ובבנותיהם", וכפירש"י[ftnref\_2229\_6].
+ב) שההצלה מהגזירה נעשה ע"י אשה[ftnref\_2230\_7].
+ומפני זה — אף שמצות נר חנוכה היא מצות עשה שהזמן גרמא, וכל מ"ע שהזמן גרמא נשים פטורות ממנה[ftnref\_2231\_8] — בנדו"ד מחוייבות בה גם הנשים.
+וכידוע[ftnref\_2232\_9] מה שסיפר כ"ק מו"ח אדמו"ר, שאביו כ"ק אדמו"ר (מהורש"ב) נ"ע, כשהי' עוזב את ביתו לפני חנוכה הי' מצווה לזוגתו הרבנית שטערנא שרה נ"ע שתדליק המנורה בעצמה (אף שהברכות היתה שומעת מא' הגברים)[ftnref\_2233\_10].
+ג. וביאור הענין בפרטיות יותר[ftnref\_2234\_11]:
+בענין המסירת נפש שהי' לישראל בהמלחמה נגד היוונים מצינו דבר שלכאורה אינו מובן:
+המלחמה נגד הגזירות היתה באופן של מסירת נפש למעלה מטעם ודעת, דבר שע"פ דין לא היו מחוייבים בזה, ועד כדי כך שגם הנשים לחמו בזה במסירת נפש, ולא חשבו כלל בזה שע"פ דין לא היו מחוייבות בזה[ftnref\_2235\_12]?
+— ואע"פ שזה (שאין חיוב במסירת נפש) הוא רק שלא בשעת השמד, "אבל בשעת השמד והוא שעומד מלך רשע. . ויגזור שמד על ישראל לבטל דתם או מצוה מן המצוות, יהרג ואל יעבור אפילו על אחת משאר מצוות"[ftnref\_2236\_13], ובנדו"ד הי' זה גזירת השמד, הרי בד"א — בגזירה "לבטל דתם או מצוה מן המצוות", היינו שכופים ואונסים את ישראל לעבור על אחת מהמצוות, משא"כ לצאת במלחמה נגד המלכות הרשעה לבטל גזירות, אין חיוב ללחום במסירת נפש —
+וכמו שמובא בגמרא[ftnref\_2237\_14] הדוגמא לזה מאסתר המלכה שבפועל לא עברה על הדת
+
+## 313
+
+מפני ש"קרקע עולם היתה", ולא עשתה מעשה מכיון שהעכו"ם התכוון רק להנאת עצמו (ולא שהיא תעבור על הדת)[ftnref\_2238\_15], וא"כ: מפני מה לחמו (גם הנשים) במסירת נפש בלי כל מדידה והגבלה למעלה מטעם ודעת, והרי ישנה הסברא ד"קרקע עולם"?!
+ד. והביאור:
+מכיון שבנדו"ד היתה הגזירה בנוגע ל"טהרת המשפחה"[ftnref\_2239\_16], שזהו ענין עיקרי ויסודי בקדושת האומה הנוגע לדורי דורות, לכן למרות כל החשבונות באם אכן ע"פ דין נתחייבו בזה, אעפ"כ, מכיון שזה הי' תלוי בקדושת האומה לחמו בזה במסירת נפש — ללא כל חשבונות — למעלה מטעם ודעת.
+ועפ"ז מובן מה שהנס היתה ע"י אשה דוקא:
+נתבאר לעיל שהנשים לחמו בזה במסירת נפש, לכן זכו בזה מלמעלה שגם הנס יהי' על ידן. ולכן מחוייבות במצות נר חנוכה גם הנשים (כנ"ל ס"ב).
+ה. הקב"ה משלם לישראל "מדה כנגד מדה"[ftnref\_2240\_17]. ולכן שילם לישראל שכר שהוא למעלה מטעם ודעת, שנוסף לזה שעצם נצחון המלחמה הי' נס שלמעלה מדרך הטבע, הנה הראה להם הקב"ה נס גדול עוד יותר במציאת פך שמן הטהור.
+ויובן זה בהקדם: דלכאורה מדוע הוצרכו ישראל לנס דמציאת פך שמן טהור, הרי "טומאה הותרה (דחוי') בצבור"[ftnref\_2241\_18], וא"כ הי' מותר להם להדליק המנורה גם בשמן טמא?
+והביאור בזה: שהקב"ה שילם להם "מדה כנגד מדה", ומכיון שהם מסרו נפשם באופן דלפנים ולמעלה משורת הדין (כיון שכנ"ל הי' זה נוגע לקדושת האומה), שילם להם הקב"ה בנס דמציאת הפך של שמן טהור שהוא גם למעלה משורת הדין, שהרי ע"פ דין היו מותרים להדליק בשמן טמא.
+ובזה גופא נתוסף בהנס מחיל אל חיל[ftnref\_2242\_19], ש"לא הי' בו אלא להדליק יום אחד, נעשה בו נס והדליקו ממנו שמונה ימים"[ftnref\_2243\_20].
+ו. ומזה הוראה לכאו"א:
+בדבר הנוגע לקדושת האומה, אין לעשות אך ורק מה שמותר (וצריך) משורת הדין, אלא צריכים להתחזק ולהתאמץ ללכת במסירת נפש למעלה מטעם ודעת,
+
+## 314
+
+לפנים משורת הדין, והקב"ה משלם מדה כנגד מדה, שאף בענינים שיכולים להסתפק במדה מסויימת, נותן הקב"ה בשפע רב — בגשמיות ועד"ז ברוחניות.
+\*
+[אחר כך שאל אחד הרבנים שנוכחו שם (בעת השיחה) את כ"ק אדמו"ר שליט"א שהענין שדיבר הוא ע"ד הנגלה שגם אנו מבינים אותו, ואמר כ"ק אדמו"ר שליט"א:]
+איתא בזהר[ftnref\_2244\_21] "אסתכל באורייתא וברא עלמא" — דכשם שבעולמות ("עלמא") ישנו סדר השתלשלות של ריבוי דרגות, עד"ז מובן בנוגע לתורה ("אורייתא"). ולכן — אף שהביאור הוא ע"ד הנגלה כו', הרי"ז אחר ההשתלשלות מענינים ע"ד ה"נסתר"[ftnref\_2245\_22] ("פנימיות התורה"), ששרשם למעלה מעלה, אלא שע"י השתלשלות שלהם בתורה — מתבארים ומשתקפים באותיות פשוטות יותר אבל תוכנם אחד הוא.
+[אח"כ שאל הנ"ל עוד (ע"ד ההוראה דמס"נ), ואמר כ"ק אדמו"ר שליט"א:] כ"ק מו"ח אדמו"ר אמר, שצריכים לדבר ע"ד מסירת נפש, ובפרט באמריקה[ftnref\_2246\_23].
+[quotation](משיחת נר ה' דחנוכה, ה'תשי"ב[ftnref\_2247\_\*])[/quotation]
+—————————
+
+**English:**
+
+## 301
+
+### Chanukah
+
+Regarding the point raised by your honor in the margins of your letter concerning the *Maseches Sofrim* (Chapter 2, Halacha 5) where the two reasons for the custom of *mosif v’holech* (increasing and continuing) are cited—"we elevate in matters of holiness and do not lower, similar to the days that are passing"—even though in *Shabbos* (21b) this is a dispute between Amoraim: this has already been noted in the *Nachlas Yaakov* commentary on *Maseches Sofrim*—printed in the Shas—although he does not explain it at all, stating: "The Gemara here holds like both reasons in the Shas."
+
+It can be said that since it is not in our hands to decide between the two reasons, and one does not contradict the other, and there is no practical difference between them, they are considered equal and both should be applied. We find an even stronger precedent in the Shas: even where it touches upon practical law, they said (in *Berachos* 59a-b and elsewhere), "Therefore, let us say both." One may also note the commentary of the Rashbam in *Bava Basra* (75a), "Let it be according to this and according to that," and other instances.
+
+Since the matter has come up, let us say a word regarding the logic of the "days entering" versus the "days passing" and the *mosif v’holech* (increasing) versus *pochas v’holech* (decreasing) approach. This depends on clarifying whether the miracle of Chanukah was becoming greater from day to day, or the opposite. Now, in the year of the miracle, when they did not yet know how many days the oil would last [and the commentators have already raised difficulties regarding the answer that they divided the oil on the first day into eight parts; one could add a further difficulty from *Zevachim* (88a) that Temple vessels only sanctify when full, and if the measure is lacking they do not sanctify, and from *Menachos* (88b) it is obvious that with the first measure, etc.], it is clear that to the eyes of the beholders, the miracle was going and increasing from day to day. However, our Sages said in *Shabbos* (ibid.) that they only established Chanukah for the following year. By then, it had already been revealed retroactively that the oil found in the cruse on the first day had the power to burn for eight days, whereas on the second day, it did not have the power to burn for more than seven, etc.
+
+This is the reason of Beis Shammai, corresponding to the "days entering": the measure of the burning for all eight entering days was included by miracle in the quantity of this oil, and from day to day, the miracle was going and decreasing. But Beis Hillel says that the miracle of the "days entering" was only in potential and had not yet emerged into actuality, and one should not be stringent or insistent that everyone recognize such a miracle, for the majority of the world only possesses what their eyes see in actuality.
+
+— Similar to what our Sages said in *Yoma* (21a): "They count the miracles of the outside, they do not count the miracles of the inside." —
+
+Therefore, it must be corresponding to the "days passing," the miracle in actual fact, and especially regarding the lighting of the Chanukah candles, which is a matter of *pirsumei nisa* (publicizing the miracle) to the masses, in which respect the miracle goes and increases from day to day.
+
+— And based on the above, it is understood that here too, Beis Shammai is for stringency and Beis Hillel is for leniency. —
+
+By way of a *chidud* (sharp insight), it can be said that we find something similar to the positions of Beis Shammai and Beis Hillel here in another place.
+
+It is in *Uktzin* (Chapter 3, Mishna 4): "From when do fish become susceptible to impurity? Beis Shammai says: From when they are caught," for then,
+
+## 302
+
+in potential, they are already dead, since they have separated from their place of life and are only "lacking time." And Beis Hillel says: From when they die in actuality.
+
+To conclude with a matter of *mussar* and *avodah* in brief: the second reason in the dispute between Beis Shammai and Beis Hillel is corresponding to the festival offerings and "elevating in holiness."
+
+For the methods of Shammai and Hillel in a person's *avodah* to their Creator are explained in *Shabbos* (31a): Shammai for stringency and Hillel for leniency.
+
+Therefore, one whose *yetzer hara* has defiled his sanctuary and who comes to be purified and enter under the wings of the *Shechinah*: according to Beis Shammai, the beginning and essence of the *avodah* is in "turn from evil," and "burn the evil from within you." When he begins the *avodah*, the evil is in its full strength, and he requires great exertion and much light, and such exertion is demanded of him. But from day to day, the evil goes and decreases, and consequently, he does not need as great a light as on the first day. An analogy for this is the festival offerings, which are sacrificed corresponding to the seventy nations so that the world will not be "desolate" (*tzadia*—empty) of them (*Yalkut Shimoni*, end of Parshas Pinchas), but rather they will be turned to good; and from day to day, the evil within them goes and decreases, and therefore there is no longer a need for as large a number of sacrifices.
+
+— And based on this, it is understood that there is no contradiction between the reason that the festival offerings decrease corresponding to the nations of the world (see Rashi, end of Parshas Pinchas, and *Chiddushei Aggados* in *Shabbos*) and what our Sages said in *Sukkah* (55b) that they are to provide atonement for them. —
+
+But Beis Hillel says that at the beginning of everything, one must enter under the wings of the *Shechinah* even while the evil is still in its strength within him, and he should begin his *avodah* with matters of "do good," *avodah* in holiness in actual fact, and "a mitzvah leads to a mitzvah," and "we elevate in holiness," that little by little he will add strength to be going and increasing, until he will thank and praise His great Name, that the seed of Amalek will be wiped out and the Name will be great and complete (see Tosafos, *d.h. Ve'onim*, *Berachos* 3a).
+
+(From a letter, beginning of Shevat, 5703)
+
+## 303
+
+... 4) Regarding your question: from where do we know in the miracle of Chanukah that already on the first day the oil had the power to burn for eight days, since this is a miraculous matter and the laws of nature do not apply to it? If so, one could say that at every moment or every day the miracle was being renewed (this seems to be your intent, even if you did not state it explicitly).
+
+There are several answers to this: a) I wrote that if we say that through the miracle it was brought about that the oil had the power on the first day to burn for eight days, the reasoning of Beis Shammai—that we light corresponding to the "days entering"—is well understood, for on the face of it, it is not understood what the "days entering" have to do with lighting for them on the first day. And your honor comes and asks that this is not said, and if so, the reasoning of Beis Shammai will not be understood. b) All the factors that necessitated the eight-day miracle (purification, seven days, and the making of the oil on the first day, the travel of four days and return of four days, etc.) already existed on the first day and were not renewed later. For the following year, it was revealed that the nature of the miracle was that there would be no interruption in the lighting of the candles, and this nature and intent already existed on the first day and had no place to rest except upon the cruse of oil. c) Why multiply miracles for no reason? For example, in the miracle of the cruse of oil, it did not run out (I Kings 17). He who said to the oil that it should burn will say to the vinegar that it should burn (*Ta'anis* 25a), etc. Shall we say that at every moment the miracle was being renewed? Furthermore, if you say so, it would be difficult: why was it burning and going during the day (there in *Ta'anis*)? A lamp in the daylight, etc. Also, from where do we know that a good measure is swifter to come than a measure of punishment (*Shabbos* 97a)? It should be noted that in *Berachos* (54a), Lot's wife is counted in the same category as the stones of Elgavish, and it is understood that there is no proof from there, only a mere hint. And it requires study regarding the plagues of Egypt, where some ceased of their own accord and some through prayer.
+
+5) Regarding what I wrote in my previous letter with the answer of the *Beis Yosef* that they divided the oil in the cruse into eight parts, which requires study from *Zevachim* (88a) that Temple vessels only sanctify when full, and if so the Menorah lamps were not full—I have since seen that I was mistaken, for the oil for the Menorah was sanctified not by the Menorah lamps...
+
+## 311
+
+And may it be the will that this quality will illuminate also in our generation, this orphaned generation, the generation of the footsteps of Moshiach at its end, with a light that goes and increases from the time the sun sets until it brings about that the night will shine like the day with the coming of the *Bar Nafli* (the son of the fallen one) speedily in our days...
+
+(From a letter, 23 Kislev, 5717)
+
+... Regarding your note on what I wrote in the English booklet on Chanukah concerning the name "Syria," while in the words of our Sages the phrasing is "the kingdom of Greece"—it is known that whoever comes first, comes first; he is not obligated to detail his words, whereas those who come after must explain their words in detail to guard against error. And since the name "kingdom of Greece" includes many lands and many kingdoms that grew from the kingdom of Greece of Alexander of Macedon (and if we are being specific, the land of Greece is on the European peninsula and not in Syria, which is in Asia), they chose a more clarified name to guard the reader from error. And as for why they established the name "Greece" in the text of the prayer, one can say several intentions regarding this, and the simplest one, on the face of it, is that the war was conducted in the name of Greek culture, its teachings, and its customs, in addition to the reason that from the time of the end of the exile of Media and Persia until the beginning of the exile of Edom, which is Rome, the persecutions and exiles in between are called by the name "exile of Greece" in the words of our Sages, and regarding this too, one can say the reason mentioned above...
+
+(From a letter, 3 Teves, 5714)
+
+1. Every event in the world is by Divine Providence, and especially an event in the life of the children of Israel, and all the more so in the marriage of a son and daughter in Israel, the purpose of which is to be an "everlasting edifice" for generations to come—this is certainly by Divine Providence. Therefore, one must explain the connection and relevance between the content of the wedding and the time in which it occurs, which by Divine Providence is during the days of Chanukah (on the fifth candle), as follows.
+
+2. Regarding the mitzvah of lighting Chanukah candles, we find that women are also obligated in it, as it is stated in the Gemara: "Women are obligated in the Chanukah candle, for they too were in that miracle."
+
+And in this itself, there are two details:
+
+## 312
+
+a) The decree was also upon them, as the language of the Rambam: "They laid their hands upon their property and their daughters," and as Rashi explains.
+b) That the salvation from the decree was brought about by a woman.
+
+Because of this—even though the mitzvah of the Chanukah candle is a time-bound positive commandment, and women are exempt from all time-bound positive commandments—in this case, women are also obligated in it.
+
+And as is known from what the Rebbe, my father-in-law, told: that his father, the Rebbe (Rashab), when he would leave his home before Chanukah, would instruct his wife, the Rabbanit Sterna Sarah, that she should light the Menorah herself (even though she would hear the blessings from one of the men).
+
+3. And an explanation of the matter in more detail:
+Regarding the *mesiras nefesh* (self-sacrifice) that the Jewish people had in the war against the Greeks, we find something that on the face of it is not understood:
+The war against the decrees was in a manner of *mesiras nefesh* above reason and intellect, a matter that according to the law they were not obligated in, to the extent that even the women fought in this with *mesiras nefesh*, and they did not think at all that according to the law they were not obligated in it?
+
+— And even though this (that there is no obligation for *mesiras nefesh*) is only when it is not a time of religious persecution, "but in a time of religious persecution, and it is a wicked king... who decrees persecution upon Israel to nullify their religion or one of the mitzvos, one must be killed and not transgress even one of the other mitzvos," and in this case it was a decree of persecution. But where does this apply? To a decree "to nullify their religion or one of the mitzvos," meaning that they force and coerce the Jewish people to transgress one of the mitzvos, whereas to go out to war against the wicked kingdom to nullify decrees, there is no obligation to fight with *mesiras nefesh* —
+
+As is brought in the Gemara, the example of this is Queen Esther, who in actual fact did not transgress the religion
+
+## 313
+
+because she was "like the soil of the earth," and she did not perform an act since the idolater intended only for his own pleasure (and not that she should transgress the religion). If so, why did they (even the women) fight with *mesiras nefesh* without any measurement or limitation, above reason and intellect, when there is the argument of "like the soil of the earth"?!
+
+4. And the explanation:
+Since in this case the decree was regarding "family purity," which is a primary and fundamental matter in the holiness of the nation that touches upon generations to come, therefore, despite all the calculations as to whether they were indeed obligated in it according to the law, nevertheless, since it depended on the holiness of the nation, they fought for it with *mesiras nefesh*—without any calculations—above reason and intellect.
+
+And based on this, it is understood why the miracle was through a woman specifically:
+It was explained above that the women fought for this with *mesiras nefesh*, therefore they merited from Above that the miracle should also be through them. And therefore women are also obligated in the mitzvah of the Chanukah candle (as above in section 2).
+
+5. The Holy One, blessed be He, repays the Jewish people "measure for measure." And therefore He repaid the Jewish people with a reward that is above reason and intellect, that in addition to the fact that the victory of the war itself was a miracle above the way of nature, the Holy One, blessed be He, showed them an even greater miracle in the finding of the cruse of pure oil.
+
+And this will be understood by way of introduction: for on the face of it, why did the Jewish people need the miracle of finding the cruse of pure oil? For "impurity is permitted (deferred) in a communal setting," and if so, they were permitted to light the Menorah even with impure oil?
+
+And the explanation for this: that the Holy One, blessed be He, repaid them "measure for measure," and since they sacrificed themselves in a manner that was beyond and above the letter of the law (since as mentioned, it touched upon the holiness of the nation), the Holy One, blessed be He, repaid them with the miracle of finding the cruse of pure oil, which is also above the letter of the law, for according to the law they were permitted to light with impure oil.
+
+And in this itself, the miracle increased from strength to strength, that "it contained only enough to light for one day, a miracle was performed with it and they lit from it for eight days."
+
+6. And from this is a lesson for everyone:
+In a matter touching upon the holiness of the nation, one should not do only what is permitted (and required) by the letter of the law, but one must strengthen oneself and strive to go with *mesiras nefesh* above reason and intellect,
+
+## 314
+
+beyond the letter of the law, and the Holy One, blessed be He, repays measure for measure, that even in matters where one could suffice with a certain measure, the Holy One, blessed be He, gives in great abundance—in material matters and similarly in spiritual matters.
+
+*
+
+(Afterwards, one of the Rabbis who was present (during the *sicha*) asked the Rebbe that the matter he spoke about is according to the *nigleh* (the revealed Torah) which we also understand, and the Rebbe said:)
+
+It is stated in the Zohar, "He looked into the Torah and created the world"—that just as in the worlds ("*alma*") there is an order of *hishtalshelus* (evolution) of many levels, similarly it is understood regarding the Torah ("*oraysa*"). And therefore—even though the explanation is according to the *nigleh*, etc., this is after the *hishtalshelus* from matters according to the "hidden" ("*pnimiyus haTorah*"), whose root is far above, only that through their *hishtalshelus* in the Torah—they are explained and reflected in simpler letters, but their content is one.
+
+(Afterwards, the aforementioned person asked further (about the lesson of *mesiras nefesh*), and the Rebbe said:) The Rebbe, my father-in-law, said that one must speak about *mesiras nefesh*, and especially in America.
+
+(From a *sicha* of the fifth candle of Chanukah, 5712)
+
+---
+
+
+## מקץ
+
+_Section: מקץ_
+
+**Hebrew:**
+
+## 315
+
+### מקץ
+
+... בפי' "לאמר"[ftnref\_2248\_\*] שאינה מדויק. וע"פ פשט, אדרבה הוספת לאמר מורה על בירור גמור ודיוק (ראה רמב"ן שמות ו, יו"ד). וגם כאן צל"פ כן: דלא רק שמיעה בעלמא שמעתי אלא גם לאמר בבירור גמור. . .
+[quotation](ממכתב כ"ה תמוז, תשט"ו)[/quotation]
+
+**English:**
+
+## 315
+
+### Miketz
+
+...regarding the explanation of the word "leimor" —that it is imprecise. According to the simple meaning, on the contrary, the addition of "leimor" indicates complete clarity and precision (see Ramban, Shemos 6:10). And here, too, it is the same: I did not merely hear it in a general sense, but rather "leimor"—with complete clarity...
+
+(From a letter dated 25 Tammuz, 5715)
+
+---
+
+
+## ויגש
+
+_Section: ויגש_
+
+**Hebrew:**
+
+## 315
+
+### ויגש
+
+... אמרז"ל (פסחים קיט, א) ג' מטמניות הטמין יוסף — שנקרא כן ע"ש יוסף לי ד' בן אחר, שמשתדל להפוך גם האחר לבן (אור התורה ד"ה בן פורת בארוכה) — וכוונתו היא שיתגלה המטמון ויפעול פעולתו, והוא בשלשה אופנים: א) שמברך וברכה היא ב"כסף", באהבה, כידוע מברכת כהנים והובא להלכה בשו"ע — בהשפעות גשמיות עושר וכבוד, שזהו ענין (שם בגמרא) מה שנתגלה לקרח (אוה"ת \* ס"פ ויגש). ב) אותם שאינם ממקיימי התומ"צ, עושה אותם לבעלי תשובה, בירור גם מגקה"ט, גרים, שזהו ענין נתגלה לאנטונינוס, ג) במקיימי תומ"צ פועל עילוי באופן עבודת ד' שלהם, שזהו ענין המטמון שמתגלה לצדיקים — ומובן שב' אופנים הראשונים שייכים ביותר עתה, בעוה"ז שבעוה"ז, ואופן הג' הוא בעוה"ב שבעוה"ז, ובפרט ענין לאתבא צדיקייא בתיובתא, וזהו שמסיים שם בש"ס — שיתגלה לע"ל.
+ופשיטא שעל כל אחד מהמקושרים ושייכים ליוסף הצדיק, להעשות צנור, ועכ"פ לסייע ולהכשיר את הסביבה שלו, שתהי' כלי מוכן לקבל הוראות והשפעות יוסף, עד הגאולה שלימה ב"ב, שתהי' ע"י הקב"ה בעצמו בבחי' שנק' יוסף, כמ"ש בש"ך הובא באוה"ת[ftnref\_2249\_\*] ד"ה ויתן את קולו. . .
+[quotation](ממכתב יום ד' ט"ו טבת, ה'תש"ו)[/quotation]
+
+**English:**
+
+## 315
+
+### Vayigash
+
+Our Sages have said (Pesachim 119a) that Yosef concealed three treasures—he is called by this name because he adds (*yosef li*) a fourth son, meaning he strives to transform even the "other" into a son (*Ohr HaTorah, maamar "Ben Poras" at length*). His intention is that the treasure be revealed and accomplish its effect, and this occurs in three ways: 
+
+1) Through blessing, and blessing is "silver" (*kesef*), which comes through love, as is known from the Priestly Blessing and as brought down in the *Shulchan Aruch*—this refers to the bestowal of material abundance, wealth, and honor, which is the matter (as stated there in the Gemara) of what was revealed to Korach (*Ohr HaTorah, end of parshas Vayigash*). 
+
+2) Regarding those who do not observe the *mitzvos*, he makes them *baalei teshuvah*, refining even from the *kelipas nogah*, [and] converts, which is the matter of what was revealed to Antoninus. 
+
+3) Regarding those who do observe the *mitzvos*, he effects an elevation in their manner of *avodas Hashem*, which is the matter of the treasure revealed to the *tzaddikim*. 
+
+It is understood that the first two ways are most relevant now, in this lowest of all worlds, while the third way is the "World to Come" within this world—specifically the matter of "bringing the *tzaddikim* to *teshuvah*," and this is what the *Gemara* concludes there: that it will be revealed in the time to come.
+
+It is obvious that every person who is connected and belongs to Yosef HaTzaddik must become a conduit, or at the very least assist and prepare their environment, so that it becomes a vessel ready to receive the instructions and influences of Yosef, until the complete Redemption, *b'meheirah b'yameinu*. This will be brought about by the *Ribono shel Olam* Himself, in the aspect called Yosef, as written in the *Shach*, cited in *Ohr HaTorah* *maamar "Vayiten es kolo"...*
+
+(From a letter dated Wednesday, 15 Teves, 5706)
+
+---
+
+
+## חורף
+
+_Section: חורף_
+
+**Hebrew:**
+
+## 315
+
+### חורף
+
+במה[ftnref\_2250\_\*] ששואל למנהג ישראל אשר תורה היא שבליל ניתל אין לומדים עד חצות הלילה, מה טעם בדבר. ואיך אפשרי אשר לימוד תורה יגרום לענינים בלתי מתאימים ורצוים ואשר לכן נמנעים מלימוד.
+הנה לטעם הדבר יעיין בספרי טעמי המנהגים אשר רבים הם ומובאים בהם כמה טעמים בשם גדולי ישראל, וגם מנהגנו הוא כנ"ל, וכמועתק בלוח היום יום י"ז טבת ה'תש"ג ובשם כ"ק מו"ח אדמו"ר זצוקללה"ה נבג"מ זי"ע, שהוא כדי שלא להוסיף חיות, ואמר, די מתמידים וואָס די אַכט שעה איז זיי נוגע בנפש, האָב איך ניט האָלט, וכבר ידוע שהוא רק עד חצות לילה.
+ב) איך אפשר שלימוד התורה יגרום לתוצאות בלתי רצויות ועוד גרוע מזה.
+ישנם עוד דוגמאות לזה וגם בנגלה, וכמו לימוד רוב ענינים שבתורה בתשעה באב, לימוד רוב עניני התורה ע"י אבל, ר"ל, לימוד התורה עי"ז שעליו נאמר ולרשע אמר אלקים מה לך לספר חוקי. וראה ג"כ הלכות ת"ת לרבנו הזקן פרק ד' סעיף ג' ובקו"א.
+[quotation](ממכתב י"ב שבט, תשי"ז)[/quotation]
+
+**English:**
+
+## 315
+
+### Winter
+
+Regarding the question concerning the custom of Israel—that on the night of Nittel one does not study Torah until midnight—what is the reason for this? And how is it possible that the study of Torah could cause matters that are inappropriate and undesirable, and for which reason one refrains from study?
+
+Regarding the reason for this, one should consult the books of *Taamei HaMinhagim*, where there are many such reasons cited in the names of the *Gedolei Yisrael*. Our custom is also as mentioned above, as recorded in the *Hayom Yom* for 17 Teves 5703, in the name of my revered father-in-law, the Rebbe, of blessed memory: it is so as not to add vitality [to the forces of impurity]. He said, "For those *masmidim* whom the eight hours [of the night] touch upon their very soul, I do not hold [of this custom]," and it is already known that this applies only until midnight.
+
+2) How is it possible that the study of Torah could cause undesirable results, or something even worse?
+
+There are other examples of this, even in the *nigleh* (revealed) dimension of Torah. For instance, the prohibition against studying most parts of Torah on Tisha B’Av, or the study of most parts of Torah by a mourner, *rachmana litzlan*. Or, the study of Torah by one of whom it is said, "But to the wicked, G-d says: 'What right have you to recite My statutes?'" See also the *Hilchos Talmud Torah* of our Alter Rebbe, Chapter 4, Section 3, and in the *Kuntres Acharon*.
+
+(From a letter dated 12 Shevat, 5717)
+
+---
+
+
+## ויחי
+
+_Section: ויחי_
+
+**Hebrew:**
+
+## 316
+
+### ויחי
+
+... כתב כ"ק מו"ח אדמו"ר שליט"א במכתבו מיום ד' סיון ה'תש"א (והעתקתיו ב"היום יום" ע' יב) אשר בהיות הצ"צ ילד ולמד את הכתוב ויחי יעקב בארץ מצרים שבע עשרה שנה, תירגם לו מורו — ע"פ פי' בעה"ט — יעקב אבינו האָט געלעבט די זיבעצען בעסטע יאָהרן אין מצרים כשבא הביתה מהחדר שאל את זקנו אדמו"ר הזקן, היתכן שיעקב אבינו, בחיר האבות, יהיו מבחר שנות חייו י"ז שנה שגר בארץ מצרים ערות הארץ.
+ויענהו אדמוה"ז: כתיב ואת יהודה שלח לפניו אל יוסף להורות לפניו גשנה, ואיתא במדרש — מובא ברש"י — א"ר נחמי' להתקין לו בית תלמוד, שתהא שם תורה ושיהיו השבטים הוגים בתורה להורות לפניו גשנה, אַז מען לערנט תורה ווערט מען נעהנטער צום אויבערשטען ב"ה, און אויך אין מצרים איז געווען ויחי געלעבט עכ"ל.
+ויש להוסיף דיוק בזה אשר דוקא את יודא שלח, וי"ל הענין כי עדיין אינו מובן פי' אדמוה"ז אליבי' דבעה"ט גושנה, נעהנטער צום אויבערשטען ב"ה, נעשה ע"י לימוד התורה, ופשיטא אשר גם בהיותם בארץ ישראל הי' יעקב זקן ויושב בישיבה, וכמו שאר האבות (אלא שהכתוב משמיענו שאפילו במצרים הי' כן, ראה יומא כח, ב) ולמה נחשבים שני חייו במצרים דוקא למבחר שנותיו, ואי משום הריבוי הניצוצות שהיו דוקא במצרים (תו"א וארא ד"ה ויאמר גו' ויבלע מטה וראה פ' בא סד"ה בעצם) הרי לא נתבררו אלא זמן רב אח"כ אחרי שוימת כל הדור ההוא, ועוד שמלשון אדמוה"ז מוכח שתלוי בלמוד התורה ולא בבירור הניצוצות (ואי משום שכך היא דרכה של תורה חיי צער תחי' ואז אשריך וטוב לך כו', הרי זהו בנוגע לתענוגים, וכמ"ש פת במלח כו' ובזה הרי אדרבה במצרים דוקא אכלו את חלב הארץ, ולא מצינו זאת בהיותם בארץ כנען) — אבל לולא זאת הרי מצרים היא ערות הארץ וא"י שיצאו משם אוירה מחכים בלמוד התורה (ב"ב קנח, ב, ודוחק קצת לומר שאוירא מחכים רק משנכנסו ישראל לארץ וע"ד מרז"ל במגילה יד, א).
+ולכן שלח לפניו את יודא דוקא, קבלת עול דעבד פשוט, אשר גם תענוג יש לו בעבודתו בקב"ע, כי תענוג האדון הוא תענוג שלו (ראה קונטרס עץ החיים ספי"ט, ד"ה אחרי ד"א תלכו תרס"ו ועוד) ותענוג האדון בזה עמוק הוא ביותר דוקא בלמוד התורה בארמ"צ, כי בענין עבודת הבירורים יש מקום בשכל שצ"ל הירידה למצרים וכנ"ל, משא"כ ת"ת שלכאורה הוא היפך השכל גם שכל דנה"א, אלא שהוא מעצה עמוקה של האדון גילוי העצמות (אור תורה ד"ה ידוע תדע),
+
+## 317
+
+וע"י מדת יהודא גם להעבד תענוג עמוק ועצמי בזה, ולכן ע"י ת"ת במצרים דוקא הוא מבחר שני חייו.
+[quotation](ממכתב ג' לפרשת ויחי יעקב בארץ מצרים, תש"ז)[/quotation]
+... מעורר על דברי הרשב"ם עה"פ דן ידין, שהמפרש על שמשון לא ידע בעומק פשוטו וכו', והרי בכמה מדרשי חז"ל פירשו באופן האמור.
+דיוק הרשב"ם, שפירושם הנ"ל הם מחלק הדרוש שבתורה ולא מחלק הפשט, ומבוארת שייכות הרשב"ם בזה יותר — בפירושו ריש פ' וישב, עיי"ש.
+[quotation](ממכתב כ"ד טבת, תשי"ט)[/quotation]
+... אחכה מכתבו מבשר טוב. . בהקדם יעוין בת"י עה"פ נפתלי אילה, ובמדרש הובא בס' צרור המור נפתלי אילה שלוחה על נפתלי נאמר שהי' איש שלום ולו עשו אביו ואחיו שליח לבשר שלום, וי"ל שייכות נפתלי, מהירות ובשורות טובות ע"פ המבואר באוה"ת להצ"צ[ftnref\_2251\_\*] שנפתלי הוא מל' תפלה וחבור מלמע' מעלה עד למטה מטה וכשהולך במהירות הוא אך טוב וחסד וכנודע בענין שקדים דאהרן (לקו"ת ס"פ קרח).
+[quotation](ממכתב ג' ויחי, ה'תש"ז) [/quotation]
+
+**English:**
+
+## 316
+
+### Vayechi
+
+My revered father-in-law, the Rebbe, wrote in his letter dated 4 Sivan 5701 (which I transcribed in *Hayom Yom*, p. 12) that when the Tzemach Tzedek was a young boy and was studying the verse, "And Yaakov lived in the land of Egypt seventeen years," his teacher translated it for him—following the commentary of the Baal HaTurim—as, "Yaakov Avinu lived his seventeen best years in Egypt." When he came home from *cheder*, he asked his grandfather, the Alter Rebbe: How is it possible that the best years of the life of Yaakov Avinu, the choicest of the Patriarchs, were the seventeen years he lived in Egypt, the "nakedness of the land"?
+
+The Alter Rebbe replied: It is written, "And he sent Yehuda before him to Yosef, to direct him to Goshen." The Midrash—cited by Rashi—states that Rabbi Nechemiah said this was to establish a house of study for him, so that there would be Torah there and the tribes would be occupied with Torah study, "to direct him to Goshen"—meaning that when one studies Torah, one becomes closer to the Ribono shel Olam, and thus, even in Egypt, it was *Vayechi*—he truly lived.
+
+One may add a nuance here: Why was it specifically Yehuda whom he sent? It could be explained as follows: The Alter Rebbe’s interpretation of the Baal HaTurim—that *Goshen* means "closer to the Ribono shel Olam" through the study of Torah—still requires clarification. It is obvious that even when they were in Eretz Yisrael, Yaakov was an elder sitting in the *yeshiva*, just like the other Patriarchs (the verse is simply informing us that this was the case even in Egypt; see *Yoma* 28b). Why, then, are his seventeen years in Egypt specifically considered the "best" of his years? If it is because of the abundance of *nitzotzos* (sparks) that were specifically in Egypt (see *Torah Or*, Vaeira, the *maamar* beginning *Vayivla Mateh*, and see *Parshas Bo*, the *maamar* beginning *Be'etzem*), these were only clarified much later, after that entire generation had passed away. Furthermore, the Alter Rebbe’s language implies that it depends on the study of Torah, not on the clarification of the sparks. And if one were to argue that this is the way of Torah—that one must live a life of hardship and only then "happy are you and it shall be well with you"—this refers to physical pleasures; as the saying goes, "a morsel of bread with salt," etc. In this regard, the opposite is true: in Egypt, they specifically ate the "fat of the land," which we do not find they had while in the land of Canaan. However, were it not for this [Torah study], Egypt is the "nakedness of the land," whereas Eretz Yisrael, which they left, has an atmosphere that makes one wise in the study of Torah (*Bava Basra* 158b; though it is somewhat forced to say that the atmosphere only makes one wise once the Jewish people entered the land, similar to what is said by our Sages in *Megillah* 14a).
+
+Therefore, he sent Yehuda specifically—representing the *kabbalas ol* (acceptance of the yoke) of a simple servant, who also finds *taanug* (pleasure) in his service of *kabbalas ol*, because the *taanug* of the Master is his own *taanug* (see *Kuntres Eitz Chaim*, ch. 19; *maamar* beginning *Acharei D'a Tielchu*, 5666, and elsewhere). The Master’s *taanug* in this is most profound specifically in the study of Torah in Egypt, for regarding the service of *birurim* (clarification), there is room for the intellect to argue that the descent to Egypt was necessary, as mentioned above. This is not the case with Torah study, which on the face of it is the opposite of intellect—even the intellect of the *neshamah*—but is rather a profound counsel of the Master to reveal the *Atzmus* (the Essence; *Ohr Torah*, the *maamar* beginning *Yadoa Teda*).
+
+## 317
+
+Through the quality of Yehuda, the servant also experiences a deep and essential *taanug* in this. Therefore, it is specifically through Torah study in Egypt that these were the best years of his life.
+
+(From a letter, 3rd of Parshas Vayechi, 5707)
+
+...Regarding the words of the Rashbam on the verse "Dan shall judge," he notes that those who interpret it as referring to Shimshon do not understand the depth of the *peshat* (literal meaning), etc. Yet, in many Midrashim of our Sages, they interpret it in the manner mentioned. The nuance of the Rashbam is that those interpretations belong to the category of *drush* (homiletics) in Torah, not the category of *peshat*. The Rashbam’s perspective on this is explained more fully in his commentary at the beginning of *Parshas Vayeishev*; see there.
+
+(From a letter, 24 Teves, 5719)
+
+...I await your letter with good tidings. Preceding this, one should look at the *Torah Temimah* on the verse "Naftali is a hind let loose," and in the Midrash cited in the book *Tzror HaMor*, "Naftali is a hind let loose"—it is said of Naftali that he was a man of peace, and his father and brothers made him a messenger to bring tidings of peace. The connection of Naftali to speed and good tidings can be explained based on what is explained in *Ohr HaTorah* by the Tzemach Tzedek that Naftali comes from the word *tefillah* (prayer) and *chibur* (connection) from above to below, and when he moves with speed, it is only good and kindness, as is known regarding the matter of Aharon’s almonds (*Likutei Torah*, end of *Parshas Korach*).
+
+(From a letter, 3rd of Vayechi, 5707)
+
+---

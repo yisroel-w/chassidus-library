@@ -1,0 +1,8817 @@
+# Igros Kodesh
+
+## Volume 10
+
+## 2965
+
+B"H, 4 Tishrei, 5715
+Brooklyn
+
+To the esteemed and distinguished scholar, etc., R' Avraham, may he live, known as Dr. Goldberg,
+
+Peace and blessing!
+
+After not hearing from you for a long time, it was pleasant for me to receive your letter of 19 Elul, and subsequently also your regards via the esteemed Rabbi, etc., R' Avraham Aharon, may he live, Gorodetzky. I was happy to read in your letter that your book on Maseches Ohalos, with commentaries and notes, will soon be published. I assume you are referring to the manuscript you showed me when you were here two years ago.
+
+Regarding what you wrote about the exchange of books that you discussed with Rabbi Gorodetzky, may he live: my library receives books from authors and institutions, as this library serves the public good due to the work of the Chabad institutions here, as well as my own work. Consequently, many are interested in having their published books and pamphlets found here. Rabbi Gorodetzky, may he live, will write to you with the details, and I thank you in advance for doing what is necessary to bring this to fruition.
+
+During these days, at the beginning of the year that is approaching us and all of Israel for good and for blessing, I wish you and your family, may they live, a *chasima tova* and a *gmar chasima tova* for a good and sweet year. May you utilize your talents and influence to their fullest to instill the spirit of Chassidus and its guidance in the environment in which you are located.
+
+With blessing.
+
+#### ***2965***
+
+Most of the letters are from the secretariat's copy or from a photocopy of the letter. We do not mark them with footnotes unless the source is different or it has already been printed.
+
+**Exchange of books:** Kehot books in exchange for books sent to the library. For more regarding the exchange of books, and in general regarding sending books to the library, see above, Vol. 9, Letter 2926; Vol. 7, 2078, 2113; Vol. 5, 1250, and the references noted in the footnotes there. See below, 2989, 3026, 3076, 3105, 3351.
+
+## 2866
+
+B"H, 4 Tishrei, 5715
+Brooklyn.
+
+To my dear relative, the G-d-fearing, esteemed, and distinguished, of noble lineage, R' Shmuel Abba, may he live.
+
+Peace and blessing!
+
+I am writing to express my gratitude and to share the good news that the esteemed R' Binyamin Eliyahu Gorodetsky, who is engaged in communal needs, brought the Sefer Torah about two days before Rosh Hashanah. On Rosh Hashanah, I was called up to the Torah for the Maftir reading, and may your mind be at ease, just as you have set my mind at ease.
+
+May it be the will of Hashem to grant each of us the merit to bring nachas ruach to one another, and to do so with proper health and with joy.
+
+With thanks and a blessing for a *chasima v’gmar chasima tova*.
+
+***
+
+**R' Shmuel Abba:** Shapira. Additional letters to him: above, Vol. 9, 2896, and the references in the notes there. Below: 3064, 3174.
+
+**The Sefer Torah:** Belonging to the holy brothers, the printers of Slavita. See above, ibid. Below, letter 3064. *Sefer Yechidei Segulah*, pp. 272–275.
+
+## 2867
+
+B"H, 4 Tishrei, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished individual, occupied with communal needs, Moreinu HaRav Pinchas Todros, may he live.
+
+Shalom u’Bracha!
+
+I hereby acknowledge receipt of your letter dated 21 and 22 Elul, along with the enclosures. It is surprising that you delayed writing, and that the letters were also delayed in transit. I reiterate my thanks for the erection of the *matzeivah* and for informing me regarding this.
+
+Regarding what you write—that it was erected along the length of the body and not at the head—if there are other *matzeivos* there in that fashion, it should be left as is. However, if not, one should not deviate from the custom of that *beis hachaim*. If it is impossible otherwise, another *matzeivah* should be made and erected like the other *matzeivos*. But it puts my mind at ease that you write that many *matzeivos* are placed in that manner in Tzfas...
+
+With the blessing of *Chasimah v’Gmar Chasimah Tovah*.
+
+***
+
+**2867**
+
+**Moreinu HaRav Pinchas Todros:** Altehoz. Another letter to him—see above, Vol. 5, 1295.
+
+**The matzeivah:** Of R' Yisroel Aryeh Leib Schneerson, the brother of—may he be distinguished for a long and good life—the Rebbe.
+
+## 2868
+
+B”H, 6 Tishrei, 5715
+Brooklyn
+
+To Anash and the Temimim of Kfar Chabad in our Holy Land—may it be built and established by Moshiach Tzidkeinu—may Hashem grant them life,
+
+Peace and blessing!
+
+The report has reached me—though not as clearly as necessary—that a significant portion of Anash and the Temimim are in the habit of eating their Shabbos meals away from home on Shabbos Mevarchim. It appears this refers not to Seudah Shlishis, but to the second meal; that is to say, upon coming to the beis medrash for davening, they return home only toward evening or even after Maariv.
+
+Now, I do not know if, in years past, the Sages would have been pleased with such a practice. For while on one hand they fought against the conventions of the world and the ways of the *baalei batim*, on the other hand, they did not desire the opposite extreme to become a fixed practice. Even though at times it is necessary to go *arois fun di keilim* (outside the vessels)—because otherwise the light is liable to dim more and more, and from time to time it needs to be revived (*apfrishen*)—nonetheless, the conduct of *b’chol me’odecha* (with all your might) and actual *mesiras nefesh* is something that should occur from time to time; it is not a matter for constant, daily conduct, as is explained in many places in Chassidus.
+
+The same applies to the aforementioned detail. If they will listen to my opinion, they should arrange the farbrengen on Shabbos Mevarchim in such a way that the light from this farbrengen will reach the homes of each and every participant, and the beginning of this transmission should take place on Shabbos itself. Surely, even on the Shabbos of the winter months, it is possible to divide the farbrengen or arrange it in such a way that they can eat the Shabbos meal in their homes and also speak at home about the general concept of Shabbos Mevarchim, and about this specific Shabbos Mevarchim in particular.
+
+It is my hope that this will also inspire the women and girls to arrange farbrengens on their part on Shabbos Mevarchim, or on Motzaei Shabbos.
+
+In addition to my blessing to each one individually for a *kesivah v’chasimah tovah*, I hereby also express my blessing for a *chasimah v’gmar chasimah tovah* for a good and sweet year, in goodness that is visible and revealed.
+
+With blessing.
+
+## 2965
+
+B"H, 6 Tishrei, 5715
+Brooklyn, N.Y.
+
+To the esteemed, G-d-fearing, and distinguished individual, who engages in communal needs,
+Rabbi Avraham Mordechai Shmuel, may he live and be well,
+
+Shalom u’Bracha!
+
+In response to your letter of 23 Elul and the *pidyon nefesh* enclosed therein, in which you write that you are teaching the *kamatz aleph*—that is, the vowel and the letter separately—as per the instruction of our holy *Nesi’im* who strove for this with *mesiras nefesh*, and you ask how to conduct yourself regarding the study of pronunciation, given that your class consists of Yemenite children.
+
+Since our Sephardic brethren have been accustomed to this pronunciation for many generations, one after another, there is no need to change their custom in this regard, for the custom of their fathers is in their hands. Certainly, the repetition of *Chassidus* in the Sephardic pronunciation that they hold by—because they received it from their fathers and forefathers, children of *mesiras nefesh* for His Name—will cause *nachas ruach* Above and will accomplish its effect Below.
+
+I was pleased by what you write, that you are taking part in the study *shiurim*, both in *nigleh* and in *Chassidus*. Surely, in the coming year, you will increase in this, and it is already known that the ruling of our Sages is: "Whoever adds, they add to him."
+
+With blessings for a *chasimah v’gmar chasimah tovah*.
+
+#### ***2965***
+
+Printed in *Likkutei Sichos*, Vol. 21, p. 410, and completed according to the secretariat’s copy.
+
+**Rabbi Avraham Mordechai Shmuel, may he live and be well:** Lider, Jerusalem.
+
+**The vowel and the letter separately:** See regarding this above, Vol. 8, Letter 2325, and the references in the notes there.
+
+## 2970
+
+2970
+
+By the Grace of Hashem, 6 Tishrei, 5715
+Brooklyn, N.Y.
+
+Blessings and greetings!
+
+As we are currently in the days of the Aseres Yemei Teshuvah—days of which the prophet says, "Seek Hashem **when He is found**, call upon Him when He is **near**"—even more so than throughout the rest of the year, I wish to add to my previous letter the following lines:
+
+With the help of Hashem Yisbarach, certain standards and conduct have recently been adopted among Anash, and among the women of Anash in particular, which until now, for various reasons, were not maintained by everyone.
+
+Since anything new in this area is easily undermined, Heaven forbid, the merit of everyone who contributes their part to strengthening this is exceptionally great. On the other hand, it is easier to carry out personally—even if until now one did not appreciate its true importance—when one takes into account that this is not a private matter, but rather has an influence, to a certain degree, on the entire circle.
+
+Therefore, without entering into the reasons that have until now held back the introduction of certain matters in the homes of Anash—in dress and in the chinuch of children—I want to bring to your attention once again that from today onward, everyone, **without exception**, should unite with the women of Anash who wear a sheitel, provide their children with a true Chassidishe chinuch, and lead a true Chassidishe home in every detail. May Hashem Yisbarach help you to see the truth: that this is not such a difficult thing, and it is not something to be ashamed of, Heaven forbid. On the contrary—you should be proud of the strength not to be ashamed, that when walking in the street, acquaintances and friends will recognize that here walks a Jewish woman who holds fast to the religion of Moshe and Yisrael, and to such an extent that she does not want to hide it. Be proud that your children know they are different from all the nations, that they have received the Torah—Toras Chaim—and that they learn it as the sole foundation of their chinuch.
+
+Only after laying this foundation for a building and reinforcing it for a set time, without any distractions or interference from other studies, can one think about further education.
+
+May the merit of making a firm decision in this—with all your heart and with joy, and immediately beginning to implement it in life—bring, and will bring, a *chasimah* and a *gmar chasimah tovah* on the holy day, Hoshana Rabbah, and Shemini Atzeres, which are approaching, for you and all your household, may they live.
+
+With blessings for a *chasimah* and *gmar chasimah tovah*, awaiting good news regarding all the above soon.
+
+## 2,971
+
+B"H, 6 Tishrei, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter, including the *pidyon nefesh* enclosed therein, in which you write that you lack a sense of fulfillment in your efforts with the students at the institution where you work, as you do not see any benefit or impact upon them.
+
+Now, regarding matters such as these, it is known from the words of our Sages, "Why concern yourself with the hidden things of the Merciful One?" Especially according to what is explained in *Tanya*, Chapter 25, that this unification (which is brought about through a good deed) above is eternal, forever and ever. It is understood that I do not mean that you should be satisfied with this, *chas v’shalom*, for you must view yourself as a representative of our holy *Nesi’im* in the institution where you are located, to "bring forth the precious from the vile," even if we do not know whether this will be in its entirety, or merely a preparation, or even less than that. And since you have been given this *shlichus* at this time and in this place, you have certainly been given the *kochos* to fulfill the *shlichus*, even if the evidence may perhaps be delayed in the eyes of flesh and blood; in the end, it will come to pass...
+
+With blessings for a *chasimah v’gmar chasimah tovah*.
+
+## 2972
+
+B"H, 11 Tishrei, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from Erev Yom Kippur—and you have surely received my letter with blessings for the year—it is a well-known saying of our Rebbes that one action is better than a thousand sighs. Consequently, you should translate this into actual practice by increasing your study of the revealed Torah and the teachings of Chassidus, and by being meticulous in the performance of mitzvos. If one good action is effective as stated, then how much more so are several actions. It is understood that in order to refresh all of the above, it is necessary to be present from time to time at a Chassidishe farbrengen. May Hashem grant you success.
+
+With blessings,
+
+P.S.
+Regarding what you wrote about the interpretation of *Bnei Maron*, see Rosh Hashanah 18a and Rashi’s commentary there.
+
+You mention in your letter that you also have a position in the city of Albany; it would be appropriate for you to connect there with the shochet, Rabbi Isser Brickman, may he live and be well.
+
+## 2973
+
+B"H, 11 Tishrei, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from Parshas Vayelech, in which you write the reasons why you were unable to arrange the wedding in the month of Elul: after all the explanations, they are secondary to the essential matters for which it was not worthwhile to prolong the time. It is understood that my intention is not to complain about the past, but rather to urge you, at the very least, regarding the future—that you should arrange it in the month of Kislev, the month of Geulah, may it come soon. May it be His will that it be in a good and auspicious hour.
+
+Regarding what you wrote—whether your conduct with your future in-laws should be "like water reflecting the face" or the like—it is understood that your conduct must be "like water **reflecting the face to the face**." However, the true interpretation of this is that which is in the inner essence and in truth: that without a doubt, the future in-laws and his wife, may she live, are also good, but one must bring this out from concealment into revelation. One of the pieces of advice for this is to relate to them with Ahavas Yisrael in general, with the additional love that comes from the future family relationship, as "your son-in-law is like your son." Elaborating on such a simple matter is superfluous.
+
+Regarding what you wrote about the study of Chassidus, that you have found obstacles from a Rabbi who is suited for this, etc.: here too, it is a simple matter that this is nothing but a temptation of the Yetzer Hara, who is "an expert in his craft," as the Sages of blessed memory expressed it. Consequently, he incites every individual with the arguments suited to that specific person. Naturally, even the "old and foolish king" understands that if he were to come to you and say, "Do not study Chassidus, because it leads to the love and fear of Hashem (see Rambam, Hilchos Yesodei HaTorah, beginning of Chapter 4) and brings vitality even to the study of Nigleh and the fulfillment of Mitzvos, and through this you will be connected to the 'Tree of Life,' as explained in the Zohar, Vol. 3, page 124b," then you certainly would not have listened to his incitement and temptation at all; on the contrary, you would have added strength to your efforts. Therefore, the aforementioned [Yetzer Hara] comes with the arguments from the other extreme, which you write in your letter.
+
+I have already written to several of those who have asked in this vein, that just as the general acceptance of the Torah was **only** through the precedence of "we will do" to "we will hear"—at which point "the integrity of the upright shall guide them" and the like (as it is in Shabbos 88a)—so too is it with the study of the inner dimension of the Torah, and even more so, as is brought in the *Kuntres Limud HaChassidus* of my revered father-in-law, the Rebbe, of blessed memory.
+
+And in these days, the eve of our festival of rejoicing (in the plural), may it be His will that the joy be extended to you and your household, may they live. According to the rule that "joy breaks through barriers," the concealments and obstructions in your affairs will be diminished, and out of a broadened mind and joy, you will build a home in Israel, a Jewish, Chassidishe home.
+
+With blessings, awaiting good news.
+
+## 2974
+
+B”H, 13 Tishrei, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+A few days ago, I received your letter in which you write the main chapters of your life story, what you have experienced, and that you have now been in... for several years. You also add that during your days of wandering, you met with anash and envied them, for wherever they go, they conduct themselves as if they are within their own four cubits.
+
+There are two points to note regarding this:
+
+a) In every matter, one must find a way to assist in the avodah of the Ribono shel Olam. This is also true regarding the trait of jealousy. Although in general it is a disparaging trait, nevertheless, "jealousy among scholars increases wisdom." If not used for this, it remains a disparaging thing. Therefore, my hope is that for you, too, this feeling will serve to increase your own strengthening in matters of Torah and mitzvos, specifically with hidur.
+
+b) Regarding what you wrote—that anash follow their established path—together with this, they act in accordance with the instructions of our holy Nasi to influence their surroundings, to bring them closer to Yiddishkeit, to Torah, and to mitzvos. For in all times, and especially in our current time, there are only two possibilities: to be an influencer or to be influenced. Even though one who comes to a new place can find many arguments regarding the difficulty of this avodah, etc., from all the excuses, no actual avodah will come. Since all Yidden are believers, the children of believers, in hashgacha pratis, they naturally know that "the steps of man are established by Hashem." Thus, hashgacha pratis has brought them to a certain place at a certain time, surely as a shlichus from Above to illuminate the surroundings—to illuminate with the candle of mitzvah and the light of Torah. And since the Ribono shel Olam does not deal unjustly with His creations, it follows that the strengths for this have also been given to him, and the matter depends only on **his will.**
+
+And all these things apply to you as well; it is essential that you immerse yourself (throw yourself) into the avodah of strengthening Yiddishkeit in matters of **action** within your surroundings. For perhaps everything you have experienced until now is only preparation for this purpose. And it is known what our Sages said: when one opens [a path] the size of a needle’s eye, the Ribono shel Olam opens [a path] like the entrance to the Ulam. May it be His will that these actions of yours draw down additional blessing and success in your shidduch, that you may build a home in Yisrael, a true Jewish home.
+
+With blessings for our festival of joy—which is in the plural form, and it is brought in the sefarim that this refers to "Yisrael will rejoice in His Maker" and "Hashem will rejoice in His works," as they are united through Oraisa. As the Zohar states (Vol. III, p. 73a), "There are three levels: Yisrael, Oraisa, and Kudsha Brich Hu"—see there.
+
+## 2975
+
+[13 Tishrei, 5715]
+
+In response to your letter regarding the *Sefer HaTechunah* by R’ Chaim Vital: it is located in the library, and you may speak with Rabbi... *shliach* to examine it as you requested.
+
+Let it be known that, for the time being, I have not found it mentioned in the books of Chassidus. Furthermore, since the title page is missing from my copy, I also do not know who published it or the details regarding it.
+
+2) Regarding your observation questioning whether the grasp of a minor’s hand is effective in the context of *avodah zarah*, and your limitation that the proofs must be specifically from that same subject and not from another (it is surprising to see this limitation, as it is not common in the analytical discourse of Torah law):
+
+Time does not permit me to search through the seforim, but nonetheless, several arguments can be brought that there is no distinction in the grasp of a person’s hand between the hand of a minor and that of an adult. They are: 
+
+a) Based on your own premise—the aforementioned matter regarding *avodah zarah*—in many places (*Avodah Zarah* 46a and elsewhere), the two matters of *mechubar* (attached) and *ba’al chayim* (living creatures) are brought together, as they are only prohibited through **t’fisat yad adam** (a person’s grasp). The example provided is slaughtering an animal and a person’s grasp on an attached object. Just as in slaughtering, it is a simple matter that even the slaughtering of a minor renders the animal prohibited for *avodah zarah*—even if only a minority of the *simanim* were cut, since it is part of a slaughtering process that renders it fit for consumption—the same applies to *mechubar*. 
+
+b) As mentioned above, the nature of *mechubar* is that it is in its original state of creation. This is why there is an opinion that even stones of a mountain that were loosened through the forces of **nature** are also prohibited, since they have changed from their initial creation. We should not multiply disputes and suggest that a matter subject to dispute does not count even as the act of a minor. 
+
+c) The simplicity and directness of the *sugya* prove that a person’s grasp is a matter of action, not of intent. A minor possesses a hand and an action that is powerful, sometimes even more so than the strength of an adult (*Chullin* 16a; see *Tzafnat Paneach* by the Rogatchover Gaon, *Hilchot Shechitah*, Chapter 2, Halacha 11).
+
+With holiday blessings.
+
+P.S.
+Merely for the sake of sharpening the mind, I wanted to bring a proof that the grasp of a minor’s hand is effective, since the term "person" (*adam*) includes a minor. Several proofs for this are brought in *Beit HaOtzar* by the Mahar”i Engel, Part 1, Rule 11. I subsequently saw that the matter is subject to dispute, as brought in the seforim cited in *Sdei Chemed*, General Rules, Part 1, Section 72. Their words are puzzling...
+
+## 2996
+
+B"H, 13 Tishrei, 5715
+Brooklyn.
+
+To the Administration of Agudas Chabad in Tel Aviv,
+May Hashem preserve them and grant them life.
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your letter from 23 Elul. Regarding your question as to which specific category of synagogue-related activities I intended, my intention was to include all the categories you mentioned—each according to its nature...
+
+I was pleased to see the excerpt from *HaModia* and *HaKol*, in which the Chabad institutions were listed together. Although, it is surprising that the Agudas N'shei U'Bnos Chabad was not mentioned as well; regardless of the specific nature of their work, a publication of this kind in the press would certainly have been an obligation for them and would have brought about a positive result...
+
+Awaiting good news and signing with blessings for the holiday,
+
+**M. Schneerson**
+
+#### ***2996***
+
+**My intention:** See Vol. 9, Letter 2739.
+
+## 2977
+
+B"H, 4th day of Chol Hamoed Sukkos, 5715
+Brooklyn
+
+To the esteemed Rabbi, the Chossid, G-d-fearing, learned in Torah and Chassidus, etc., R' Pinchas, may he live.
+
+Greetings and blessings!
+
+Due to an oversight, these pages were not enclosed with the letter from the Rebbe, shlita, and I ask for your forgiveness.
+
+With blessings for a joyous holiday,
+
+Secretary
+
+P.S.
+
+On this occasion, I would like to acknowledge with thanks the receipt of your gift, the sefer *Minchas Soiles*, Vol. 1. As a token of appreciation and out of affection for the subject matter, I have noted a few comments, although I have written them in haste, as time is short.
+
+Mitzvah 1.
+
+**Section 1, at the end:** [You wrote] that "being killed is different, as one must return in *gilgul*, etc." — This requires study (*tzarich iyun*), for if we follow the *nigleh* of the Gemara, even one who is killed does not necessarily need to return in *gilgul*, as our Sages say in *Chagigah* (5a), "And the Havayah is a substitute." And if we follow the Kabbalists, this does not depend on the manner of death, but rather on whether one has fulfilled what was incumbent upon them during their lifetime or has not yet completed it, and so on (see *Shaar HaGilgulim* by the Arizal at the beginning, there, Introduction 8, and in many other places; *Tanya*, end of Chapter 7; *Iggeres HaKodesh* 29, and elsewhere). And regarding the passage in *Chagigah*, which must mean that she had not completed what was incumbent upon her, and yet her years were given to another, it can be explained according to the well-known principle (*Shaar HaGilgulim*, ibid., Introduction 9) that **in general**, the concept of *gilgul* does not apply to women.
+
+**Ibid.** Regarding what you wrote, "According to the Kabbalists, etc., according to the Maharsha, etc." — In my humble opinion, the difficulty that the law exists because of this is puzzling.
+
+It is well known what the *Noda B'Yehuda* (First Edition, *Orach Chaim* 35) writes in such a case, that *teshuvah* does not avail for punishments [decreed by] a *Beis Din* below. It is also worth noting the *Tzemach Tzedek* on *Mikvaos*, Chapter 1, Mishnah 6, at the end (172a): that one does not derive [halachic rulings from such sources], etc.
+
+**Ibid. Section 2.** Regarding the opinion of the Yerushalmi and the *Tosafos Chad Mikamai* that according to all opinions one fulfills the obligation with two males — based on this, the words of the *Zohar* (Vol. 3, 143a) are easily resolved.
+
+**Ibid. Section 3.** It is surprising that you did not note and illuminate this from the *Shulchan Aruch* of Rabbeinu HaZaken, *Hilchos Talmud Torah*, end of Chapter 2. See there.
+
+**Ibid. 139, 4.** The paragraph "And behold, the Rashash." It is worth noting *Kiddushin* 21b, in the *Chiddushei HaRashba* there; *Responsa Bnei Tzion*, Vol. 1, and elsewhere. Regarding what you wrote concerning the *Mechilta* — behold, according to the aforementioned [sources] in the *Rashba* and others, it is seemingly puzzling why a verse is needed. The interpretation in the *Tzafnas Paneach* by the Rogatchover Gaon is brilliant on this point (though the sefer is not currently in my hands): that the matter is precise in the *Mechilta* — "The nations that surrounded Eretz Yisrael and the Jews desecrated the Shabbos" — for why the entire length and the existence of an utterly unlikely scenario? Rather, it is precisely and only in this case that a verse is needed, since the Shabbos was completely nullified.
+
+**Ibid. 142, 4. Section 5.** The opinion of the *Tiferes Yisrael* is implied in the *Sefer Likutei Torah* of the Arizal, *Parshas Vayeira*, and in his *Shaar HaMitzvos*, beginning of *Parshas Yisro*. And likewise, that the youngest of the sons is obligated to all those who preceded him.
+
+**At the end, 157, 3.** Regarding the matter of love for a wicked person — see *Tanya*, Chapter 32, and in the sefer cited by the *Tzemach Tzedek* in his annotations (*Sefer Kitzurim L'Tanya*, p. 36).
+
+## 2978
+
+B"H, 24 Tishrei, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, G-d-fearing and distinguished, engaged in communal needs,
+Rabbi Gershon, may he live.
+
+Peace and blessing!
+
+...Regarding the maamar "Where did He hide it in the Torah," it is noted in the margin of the letter.
+
+With blessings for success for the new year in communal matters and in your personal affairs.
+
+Under the banner of the camp of Ephraim, Bereishis: "And He hid it for the tzaddikim, etc." **And I heard from my father-in-law, the Rebbe, of blessed memory,** where that light was hidden, **and he said** that Hashem hid it in the Torah. See also Ohr HaMeir, Parshas Pekudei. And regarding the above: Zohar Chadash, Bereishis 264a; Zohar Chadash, Vol. 2, 149a; Zohar Chadash, Rus 85b.
+
+#### 2978
+
+**Rabbi Gershon:** Chen. Additional letters to him appear above in Vol. 9, 2827, and in the references noted in the footnotes there. See also below, 3131.
+
+**Regarding the maamar "Where did He hide it in the Torah":** See Likkutei Sichos, Vol. 10, p. 10, footnote 22.
+
+## 2,979
+
+2,979
+
+B"H, 24 Tishrei, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...Regarding what you write about the fundraising campaign conducted by the esteemed Chossid, G-d-fearing, and distinguished, who engages in communal needs, etc., Moreinu Harav Ben Zion Shemtov, shliach, for the benefit of the Oholei Yosef Yitzchak Lubavitch educational institutions in Morocco, which operate under my Nasi-ship.
+
+This is indeed correct and true. It is certainly unnecessary to elaborate on the well-known and publicized fact that the pressure and hardship there are extremely great, and consequently, matters of Torah and mitzvos suffer greatly as well—especially in the field of education on the purity of holiness. On the other hand, because the standard of living there is low, one can accomplish great things with sums that are small by the standards of other countries. Even though, with the help of Hashem, thousands upon thousands of Jewish boys and girls are already studying in the Oholei Yosef Yitzchak Lubavitch educational institutions in Morocco, every sum added to the treasury brings many more Jewish children within the walls of the aforementioned Talmud Torahs and yeshivos. And although we do not take the state of the treasury into account and we borrow, it is understood that even loans are limited, and a word to the wise is sufficient.
+
+Please convey my thanks and blessings to all those who participated in the aforementioned campaign—both those who organized it and those who contributed—for whom Hashem will surely fulfill His promise, "Tithe so that you may become wealthy," and consequently, they will surely increase their efforts in this regard in the future, many times over.
+
+With blessings for good tidings in all the above,
+
+[The Rebbe]
+
+## 2880
+
+2880
+
+B”H, 27 Tishrei, 5715
+Brooklyn.
+
+To the esteemed Rabbi, G-d-fearing, and learned, etc., R’ Avraham Tzvi, may he live.
+
+Greetings and Blessings!
+
+I am writing to express my gratitude for the gift of his book, *Shaarei HaMitzvos*, which I received through the esteemed Chossid, G-d-fearing, and learned, etc., R’ Shalom DovBer Raskin, shochet u’bodek, may he live. May it be the will of Hashem that his strength be for the sake of Torah, to magnify Torah and glorify it through organized indices, etc.—“handles” for Torah. If in the earlier generations, who were like angels, the merit of this was great, as our Sages of blessed memory state in many places, then how much more so is this the case in these final generations, the last of the last.
+
+I will take this opportunity to express my thanks to him for his assistance to the refugee shochtim, and to the shochtim of Anash.
+
+Thank you for the past, and a request for the future: to assist them in all matters to the best of your ability. And although I am certain that you would do so regardless, we only urge the diligent, and this is needed only to encourage even greater effort.
+
+With respect and with blessings for success in all the above.
+
+#### ***2880***
+
+**R’ Avraham Tzvi:** Weinstein, London.
+
+## 2,981
+
+2,981
+
+B"H, 27 Tishrei, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter, in which you write that you do not feel an inner desire or will in your studies, etc.
+
+I have already written regarding this to several of your peers, and I added that for all *avreichim* and students, this is included in the fact that our holy Torah is a *Toras Chaim* (a Torah of life), and it is ruled that "if one says, 'I have labored and not found,' do not believe him." Consequently, it is in their hands to exert themselves in this through *hasmadah* (diligence) and *shekidah* (assiduity), and by establishing a fixedness in the soul—in addition to the fixedness in time—by keeping to the times and *sedarim* of study, and by engaging in the Torah of Hashem, the perfect Torah, with true *mesiras nefesh* and dedication, without extraneous thoughts, calculations, and the like. Then they are guaranteed to succeed. However, one must purify the vessel to receive the Torah—which is the body, and specifically one’s thoughts and speech.
+
+Therefore, one must be careful with *tevilas Ezra*, and be careful with the *mitzvah* of *ahavas Yisrael* to an even greater degree, and with good character traits in general. One should also engage in the *pnimiyus haTorah*—the *neshamta d'oraysa* (soul of the Torah) and its vitality—for through this, vitality is revealed in the *nigleh d'Torah* (revealed dimension of Torah) as well. May Hashem grant you success to bring good tidings in all of the above, both regarding yourself and regarding your peers, and the sooner this is done, the more praiseworthy it is.
+
+With blessings,
+
+On behalf of the Rebbe, *shlita*,
+
+Secretary
+
+## 2882
+
+B”H, 27 Tishrei, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and refined, involved in communal needs,
+Rabbi Shimon Baruch, may he live, Shochet u’Bodek
+
+Peace and blessing!
+
+Following the long silence, it was a pleasure to receive your letter from Erev Hoshana Rabbah... I received your blessing and am responding on the day after Shabbos Bereishis, at the beginning of the year that is approaching us and all of Yisrael for good—may it be a blessed and successful year for each and every one in their personal matters and the matters of their household, may they live. And since "all of Yisrael are *areivim* (responsible) for one another," beyond the literal interpretation of *areivim* as responsibility, this responsibility (*areivus*) comes about through the second meaning of the word *areivim*—sweetness and pleasantness—whereby each person willingly accepts responsibility for his fellow. Consequently, this also leads to the third meaning of *areivim*, that they are "intermingled" (*me’oravim*) with one another, such that all of them together form one complete stature.
+
+It is certainly appropriate that you, too, should add strength and vigor to your communal activities in general, and to assisting in the support of the holy institutions of Oholei Yosef Yitzchok Lubavitch in Morocco in particular. Great is the merit of your efforts in this, to serve as a conduit and vessel for the blessings of Hashem from above.
+
+With blessings.
+
+#### 2882
+
+**Rabbi Shimon Baruch:** Ohayon.
+
+**Areivim:** See also above, Vol. 4, Letter 1289, and elsewhere.
+
+## 2983
+
+B"H, 27 Tishrei, 5715
+Brooklyn.
+
+To the esteemed and distinguished, etc., R' Shmuel, may he live,
+
+Greetings and blessings!
+
+I was pleased to hear from the esteemed and distinguished, who engages in communal needs, R' Yochanan, may he live, the gabbai of the Lubavitch shul in Lubavitch, that he served as the shaliach tzibbur during the days of favor, the Yomim Nora'im of this year. It is already known from our Sages, of blessed memory, "Honor Hashem with your wealth" (Mishlei 3:9) — do not read it as "your wealth" (*mehonecha*), but as "your throat" (*migronecha*) (Rashi, ad loc.). And in Zohar Vol. II, 93a, it is explained that *mehonecha* refers to the grace and sweetness of the nigun. May it be the will of Hashem that these prayers, together with the prayers of the rest of Klal Yisrael, will bring about [blessings] for the entire year, both materially and spiritually.
+
+I was also pleased that the aforementioned individual fulfilled the verse literally, "with your wealth," and donated the sum to the tzedakah fund which, according to my instruction, is given to the *lishkat chashaim* (chamber of the silent), one of the highest levels of tzedakah. May Hashem bless him and his wife, may they live, with all that they need, both materially and spiritually.
+
+With blessings,
+
+***
+
+**R' Shmuel:** Lyubashitzky.
+
+**R' Yochanan:** Gordon.
+
+## 2884
+
+2884
+
+B”H, 27 Tishrei, 5715
+Brooklyn
+
+To the esteemed Chossid, G-d-fearing, and refined, R’ Avraham Sender, may he live.
+
+Peace and blessing!
+
+I received your booklet in due time, and as you suggested, I set the matter aside until after the Yomim Tovim. The saying of our Sages in Pirkei Avos was fulfilled: “Do not say, ‘When I am free I will study,’ for perhaps you will never be free,” as the preoccupations did not decrease, but rather the opposite. Consequently, I do not wish to delay the matter any further, and I will at least respond with a few lines; please accept my apologies.
+
+It is known that one does not respond to a *derush* (Kanfei Yonah, Part 2, Section 125). Nevertheless, as is customary in such matters, I will also contribute my share, and it is known from our Sages (Yerushalmi, end of Berachos) that “the chatter of Torah is good.”
+
+Regarding point 1, on the verse “Noach was a righteous man in his generations,” our Sages comment that this implies he would not have been considered righteous in the generation of Avraham. The *Torah Sheleimah* raises a difficulty here, as Avraham was fifty-eight years old when Noach died. One could explain that the intention of “in his generations” refers to his own generation—meaning that he was its *parnas* (provider) and leader, as in the expression of our Sages, “a generation and its leaders” (Vayikra Rabbah, ch. 6).
+
+Regarding the beginning of page 3, concerning the reasons for the *mitzvos*: See what the great teacher wrote on this in *Moreh Nevuchim*, Part 3, ch. 31 and onwards; *Iggeres HaKodesh* by our Alter Rebbe, Section 19; and the *Sefer Taamei HaMitzvos* by the Tzemach Tzedek, end of the *mitzvah* of *Pru U’rvu*.
+
+Regarding the *mitzvah* of *ner Chanukah*, beginning of chapter 3, and elsewhere: Regarding salt specifically, see *Likutei Torah*, end of *Parshas Vayikra*, in the *maamar* titled *Lo Tashbit Melach*, and its explanation.
+
+Regarding the end of the booklet, concerning the greatness of *baalei teshuvah*, that even complete *tzaddikim* cannot stand in their place: See *Iggeres HaTeshuvah* by our Alter Rebbe, end of chapter 8. This aligns with what is written in *Tanya*, end of chapter 7: “*Teshuvah* is so great...,” as our Sages say, “In the place where *baalei teshuvah* stand, even complete *tzaddikim* cannot stand.”
+
+I was pleased to see you here at the *farbrengen* of Simchas Torah. It is a pity that you were unable to be present also at the *farbrengen* of Shabbos Bereishis, the beginning of the year. According to the well-known saying of the Tzemach Tzedek, which we heard from my father-in-law, the Rebbe, regarding Shabbos Bereishis—that one’s conduct on that day influences the entire year—may it be Hashem’s will that your sincere intention be considered as an actual deed.
+
+With blessings for a healthy winter for you and all that is yours.
+
+## 2885
+
+B.H., 28 Tishrei, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I hereby acknowledge receipt of your letter—though you did not indicate the date it was written—and in accordance with your request, I am responding without waiting for the turn of even the urgent letters, and following the order of your letter.
+
+It is strange that you begin by saying that "the last spark is being extinguished," etc., for where would a **person** get such information? It seems that your entire premise is based on age, but this is no proof at all. As explained in the words of our Sages, and as we see in reality, women older than you give birth to sons and daughters. Furthermore, anyone who observes the world of the Ribono shel Olam sees that—to use the language of the verse—"How great are Your works, Hashem," it is impossible for one person to encompass and grasp all matters, nor even a significant part of them, nor even the majority of the matters that exist within their own four cubits and affect their personal life. Therefore, people have divided into specialists in various fields, and an upright person does not express a definitive opinion except in their own field; in others, they rely on the expert in that area.
+
+Regarding the matter at hand, although the Torah takes into account the opinions of doctors, and specific rulings in the Shulchan Aruch depend on their assessments, and it is the conduct of every individual to act according to the instructions of doctors regarding **practical action** in actual reality—nonetheless, alongside this, one must know **clearly** in their heart that the Ribono shel Olam is the Healer of all flesh, and He is the One who leads His world in the literal sense, meaning in the daily life of every individual, in detail and in the minutiae of details, and certainly in major matters.
+
+It seems your letter did not contain the opinion of a specialist doctor regarding the aforementioned matter. But even if such a case were to occur to someone, the instances where doctors are mistaken in such matters are too numerous to count. The matter depends only on the strength of a person's bitachon and their hiskashrus with the Creator of the world (through a daily lifestyle of bitachon, which naturally causes joy, as well as the joy of the ability to do something for one's surroundings—the magnitude of the merit of which cannot be estimated). As is known from the saying of the Baal Shem Tov, that a neshamah descends below to this world for a period of 70 or 80 years in order to do a favor for a Yid once, whether in material or spiritual matters. And who like the Baal Shem Tov understood the magnitude of the descent of the neshamah from a high peak to a deep pit by the coming of a neshamah into this world? Yet, despite all this, he said as above and transmitted this to the generations after him, the generations of the children of the galus, which is ever-increasing. Especially when the subject is a young woman who has not yet utilized her strengths to their fullest in influencing her surroundings to awaken the good within their souls and to strengthen them in goodness—and there is no goodness other than Torah and mitzvos—and not specifically on Shabbos and Yomim Noraim and in exceptional cases, but specifically and precisely in daily life (which some mistakenly call "gray days"). In truth, no explanation or length is needed to clarify such a simple point; a single thought is sufficient: that every Yid, being of the children of Avraham, Yitzchak, and Yaakov, is a part that connects the Creator and the creation through their life as it is, and especially through the aforementioned actions. This connection is the purpose of the entire creation.
+
+**Certainly** it is superfluous to add that I do not intend by all the above to minimize, chas v'shalom, the matter of a son or daughter. I only come to point to the **absolute** truth, that there is no place for sadness, and certainly not for the expression of despair that you write of; on the contrary, and on the contrary.
+
+Regarding your question about moving apartments, and the second and primary matter of taking a child into your home to educate—this depends on the influence it will have on you and your husband, shlita. If through this, joy will be added and your level of bitachon in the Ribono shel Olam will be strengthened—that He will fulfill your requests for the good in a revealed and revealed way—then it is certainly the right thing. I believe I have already written to you once in my letter, based on one of the sichos of the Rebbe, that although it is necessary for a person to make a cheshbon hanefesh regarding all this, it is also necessary that it not be done except at special times, for otherwise the loss outweighs the gain. Desist from making a cheshbon hanefesh every day or even once a week; it is better that you invest your talents in good deeds by influencing your surroundings, and the Ribono shel Olam pays measure for measure, only many times over.
+
+With blessings for joy and good tidings in all the above.
+
+## 2986
+
+B”H, 28 Tishrei, 5715
+Brooklyn
+
+To the esteemed Rabbi and Chossid, G-d-fearing and learned, engaged in communal needs,
+Rabbi Ephraim Eliezer HaKohen
+
+Greetings and blessings!
+
+I received your letter of 27 Tishrei, and prior to my departure to the holy gravesite, I will, as you requested, mention you when I am there, as you wrote.
+
+Regarding what you touched upon in your letter concerning the recitation of *Modeh Ani*: Since our *Alter Rebbe* arranges this in his *Siddur* before the matter and order of *netilah*, it is clear that his opinion is to say it before *netilas yadayim*. This is also evident from his language there, "to say immediately upon waking." Furthermore, even if it were not explicitly stated as above, it would be strange to say it after the act, given that it has precedence.
+
+On the face of it, it is possible to say it without *netilas yadayim*. Regarding the text in the *Siddur* of R' Kapel, which is based on the *Eser Sefiros*—since they are not mentioned explicitly, one should examine *Sefer Me'asef L'Chol HaMechabrim*, *Orach Chaim* 1:23, and the Sephardic *Sefer Sha'arei Tefillah*, page 1b, where a group of *Acharonim* is gathered who write explicitly that *netilas yadayim* is not required. Of those who disagree, he only cites *Rechev Eliyahu* and *Minchas Aharon*, who write to say it after pouring once on the right hand; *Amudei Shamayim* and the *Siddur Yaavetz*, who suggest thinking it in one's mind before *netilas yadayim*; and *Sefer Keser Gudal*, which brings two opinions—that it is not required, and that some say it is required.
+
+With blessings.
+
+***
+
+ And indeed, *netilas yadayim* is because one is acknowledging [Hashem] before Him.
+
+ I have since seen that it is written explicitly there.
+
+## 2887
+
+B"H, 28 Tishrei, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+It was a pleasure to receive your letter... and it is understood that you may write to me in Yiddish. As the Rebbe, my father-in-law, used to say, "The deepest feelings express themselves in Yiddish." He explained this by referencing the Tanya, *Iggeres HaKodesh*, at the end of page 163a, where, after the awakening described by the Alter Rebbe, he exclaims "Gwald, Gwald!" specifically in Yiddish. The main thing is that the content of the letter should be joyful. Regarding your dissatisfaction with your situation in both *gashmius* and *ruchnius*, it is well known that if one opens an opening even as small as the eye of a needle, Hashem helps and opens it to the size of the entrance of the *Ulam*, which was twenty by forty *amos*. May Hashem help you to achieve this with joy and proper health, both in *ruchnius* and in *gashmius*.
+
+Your donation has been delivered to the *Bikkur Cholim* fund, and the merit of this shall stand by you for a speedy recovery, health, and for long, good years.
+
+With blessings.
+
+## 2888
+
+2888
+
+By the Grace of Hashem, 28 Tishrei, 5715
+Brooklyn, N.Y.
+
+Greetings and Blessings,
+
+I hereby acknowledge receipt of your letter dated 22 Elul, which arrived with some delay. Due to the holiness of the Yom Tov, my response was delayed, and I ask for your forgiveness. I trust that in the meantime you have received my letter containing my blessings for the year.
+
+Thank you for your visit to Kfar Chabad. As I can see from your letter, your visit was marked by personal attention and interest, and your assessment was made with a favorable eye. Consequently, I am strengthened by the hope that the assistance we hope to receive from you will also be given with a favorable eye, as will your influence in the institutions to the extent that your reach extends.
+
+Regarding the specific details you wrote about that require correction and improvement: as you describe the situation as it stands now, I have once again realized that the Kfar has progressed significantly from its previous state. The current static situation is not as important as the movement and the direction. Since the movement is toward improvement and perfection, that is the main thing, and in time, that which requires correction will also be rectified. However, one must take into account to what extent the correction depends on internal factors, and to what extent the shortcomings were caused by external conditions—the results of necessity and duress—such as, for example, a lack of sufficient land, equipment, and the like.
+
+In particular, one must pay attention to the human material in the Kfar. They originate from a place where their status and situation forced them to constantly struggle with their environment, to live in the underground, and to relate to every matter with the greatest suspicion. Thanks to this adaptation to the most negative conditions, they remained whole and saved not only their own souls, but also the souls of their sons and daughters and their way of life. After the great miracle of their rescue and departure from there, we see a miracle within a miracle in their adaptation, in a relatively short time, to the conditions of Eretz Yisrael and to communal life in the Kfar. Even though the sense of adaptation among Jews in general—at least in external matters—is highly developed, everyone agrees that five years is a very short time for such a fundamental change in their living conditions. I hope that both individuals and institutions have taken note of this in the past and will continue to take it into account in the future. I am certain that any concession granted to the Kfar, even beyond the letter of the law, will bring blessings many times over.
+
+I would like to emphasize one more thing. Although I am close to the matter and therefore one might suspect that I am biased in their favor, I believe that I can say with complete justice that the material of the people of the Kfar is unique—not only in and of themselves and regarding the Kfar, but also for the entire surrounding area. For even if you find among them, as in all other settlements, divisions and separations regarding trivial matters—or perhaps even the trivial of the trivial—in their inner essence, they are one cohesive bloc. Their unity has been ingrained in them for generations in a spirit of brotherly closeness, and even more than that, in the words of our Rebbe the Alter Rebbe in the conditions of *Perek Lamed-Beis* (of Tanya): "literally brothers, only the bodies are divided." It is understood that such a cohesive bloc has the potential to bring immense benefit if only given the appropriate conditions for its own development, and as mentioned, taking into account its unique character—as per the instruction of the Ribono shel Olam at the time of the first conquest of our Holy Land: "little by little, etc., until you increase and inherit the land..."
+
+Regarding the tour of our yeshiva students from here in Eretz Yisrael, and your fear that the Jewish Agency will betray its principle if they do not guarantee in advance that the students participating in this tour will study during their visit in Eretz Yisrael (may it be rebuilt speedily) specifically in Lashon HaKodesh... in order not to remain without an answer to all of this—and I hope you will forgive me for the sharp expressions below—the distinction of the *avodah* of Lubavitch is that, even though among our students there are those who study in Yiddish and those who study in Lashon HaKodesh, our entire effort and *avodah* is to unite them from within and in their inner essence, without intervening through coercion in their free choice regarding their language, customs, etc., provided that it is not contrary to the Torah. We are confident that their internal unity will eventually bring about a desirable blending, at which point it will make no difference at all which language they speak, since the content of their speech will be one. At the same time, to our sorrow, many of the "defenders of the language" strive to force a unity of the language of the mouth while increasing the division in the hearts between fathers and sons, between the younger generation and the generation that educated and raised them until now. What will it profit your honor if they inflict, *chas v'shalom*, blows (physically or spiritually) upon one another—son upon father—amidst cries of "strike, strike" specifically in the language of the *Tanach* and not in the language of Ashkenaz?
+
+It goes without saying that the last paragraph is not written in diplomatic language at all, for it comes from a feeling of pain—not regarding the end of your letter, but regarding the outlook and thought process in certain circles in Eretz Yisrael (may it be rebuilt speedily) that led to the aforementioned attitude.
+
+Regarding the practical matter, as you write: "It is clear that it is not in the authority of anyone to instruct where to direct the students who will come to a place of Torah in the land," and your concern that the students will be in such an institution that creates divided factions and does not fulfill the "and he camped" (*vayichan*) in the singular—I assure you with a whole heart that they will be in such an institution that will strengthen the unity between the visitors and the students currently in Eretz Yisrael (may it be rebuilt speedily), and also among these students themselves. Would that the Ribono shel Olam grant that the days come when from all the educational institutions in Eretz Yisrael, students and pupils will emerge who are united among themselves, at least to the degree that unity is instilled and exists among the students of the Lubavitch institutions, connecting those who are in Eretz Yisrael, France, the United States, Canada, Australia, etc., etc.
+
+My request at the conclusion of my letter is that, just as I have written to you with an open heart, without embellishment, I hope that your response will also be in such a manner. For surely our intention is one: to bring benefit to our brethren, the Children of Israel, to the maximum extent possible—benefit in both *gashmius* and *ruchnius* together, for there is no existence for *gashmius* without the *ruchnius* that sustains and enlivens it.
+
+With esteem and honor, awaiting good tidings regarding the above.
+
+## 2889
+
+B"H, 28 Tishrei, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and refined, engaged in communal needs,
+Rabbi A. Chanoch, may he live.
+
+Peace and blessing!
+
+...Regarding what you wrote concerning the publication of selections from my sichos at the farbrengens of recent years, it is certain that you should add a note that this is a transcription based on the notes of those who were present.
+
+It would be appropriate for the authors and those who write maamarim with whom you are in contact to explain to them that the library [Kehot/Lubavitch library] is also for the benefit of the many. Consequently, many of the best authors and writers of maamarim send their publications to it (it is understood that in return—should they request it—they should be provided with Kehot publications). This is so that their own opinions and subject matter may also be found in this library. With the proper explanation—and especially if you take upon yourself the effort of shipping and the expense involved (which will, of course, be reimbursed to you)—the matter will surely come to fruition...
+
+***
+
+**Rabbi A. Chanoch, may he live:** Glitzenstein. Additional letters to him: above, Vol. 9, 2862, and the references in the notes there. Below, 3162, 3661.
+
+**Add a note... those who were present:** See also below, letters 3051, 3162, 3280, 3661.
+
+**The library:** See above, letter 2865, and the references in the notes there.
+
+## 2990
+
+2990
+
+B”H, 1 Menachem Av, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I hereby acknowledge receipt of your letter from Motzaei Rosh Hashanah—which arrived with some delay—and it is puzzling that since then, I have received no further letters from you. Surely the esteemed Rabbi D. Chenzin (may he live) has already conveyed my double and triple request to all the teachers in the Reshet. If the teachers in the schools of Agudas Yisrael waived twenty percent of their salaries throughout the entire past year, then the teachers in the institutions of my father-in-law, the Rebbe, should certainly contribute at least 20 percent of their time—each according to their talents—to the needs of the school where they serve.
+
+Regarding what you wrote concerning guidance and the like: the unfortunate reality with many of our fellow Jews, and even among Anash, is that while the vast majority want to be guided, they only want to be guided in the specific manner they choose and in the matters they prefer. I fear that this is the case with you as well.
+
+My intent is understood when prefaced by what is hinted at in Iggeres HaKodesh and explained in many places in Chassidus: that every one of the Jewish people has a specific mitzvah or area of avodah that serves as the "gateway" through which all their Torah and mitzvos ascend, and through which all influence and blessings from Above are drawn down to them.
+
+This gateway might not necessarily be one of the fundamental mitzvos of the faith, and perhaps not even one of the "weighty" ones—in the categorization of mitzvos into "weighty" and "light." This is understood from the example of our Sages: "In which mitzvah was your father most careful? In tzitzis." Regarding **this** specific mitzvah, a person must be especially careful and meticulous. Regarding you, your fellow teachers, and the administrators of the Reshet: in these times, your gateway is your work and involvement in the Reshet. Consequently, when you are increasingly meticulous in this, you will draw down success in your spiritual matters, and by extension, in your material matters as well. Furthermore, regarding what I wrote in my general letter—where I did not touch upon this specific point, but rather on the reciprocity between those who work not for the sake of reward and the compensation they receive—this letter is addressed specifically to you. This point is even more important and relevant, in order to awaken not only your revealed powers but also your hidden powers to exert their influence on the affairs of the Reshet. I hope you will find the appropriate words to explain this to your wife and to all your fellow teachers and members of the administration.
+
+Words that come from the heart enter the heart. From this, the answer to your question regarding whether you should withdraw from communal work is also understood: based on the above, it is out of the question.
+
+Regarding moving your residence to Kfar Chabad: for the time being, it does not seem appropriate to me, as we need to ensure that those settling there are people who will engage in agriculture. As for you and your wife (may you live), there is greater benefit in your involvement in education.
+
+With blessings for success in all the above and for good tidings in all the above,
+
+**M. Schneerson**
+
+## 2991
+
+B”H, 2nd of Menachem Av, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I received your letter in due time, but due to the preoccupations of the month of Tishrei, I was unable to respond until now...
+
+Regarding what you wrote concerning the distressing situation... what is the value of the consolations with which people comfort themselves and others using trivialities, at a time when the souls of the students, may they live, are crying out bitterly in a *kala penima’ah d’la ishtama* (an inner voice that is not heard)? Their claim is: "It is our desire and our will to study in an institution founded by my revered father-in-law, the Rebbe, *ztzukulleh-h nbgm zi”a*, and for it to be conducted specifically in his spirit and intent." Yet, in its place, there are several classes being taught using the methodology introduced by the *Maskilim* during their war against everything holy to Israel, wasting our precious time on this (even non-religious educators agree that from an educational standpoint, the "Hebrew in Hebrew" method wastes the students' time). Meanwhile, we could have been studying the Torah of Moshe, its *mitzvos*, and the customs of Israel—which are also Torah—but there is not enough time because of the stubborn insistence on the aforementioned method, the abundance of secular studies, and so on. Furthermore, in several classes, secular studies are prioritized over holy studies. It is well known that the *Tzemach Tzedek* said that the beginning influences the entire continuation. Moreover, boys and girls are being taught together, even at an age where this is not desirable at all. Additionally, there are teachers among them who are not *yirei shamayim*, and consequently, this also influences the students.
+
+As for all the responses and excuses regarding this—the sum of which is that there is some other place that is even worse, or that for each of these matters there is someone else to blame, and therefore the complaint should not be directed at me, etc.—it is clear that the students are not to blame for any of this. It is also clear that "you who cleave to Hashem your G-d are all alive today," and it is clear that this *dveikus* in Hashem is achieved specifically through His Torah and *mitzvos*, and there is no other path to it. The parable is already well known: a slight injury to a seed or a young sapling affects it far more than a major injury to a tree that is already aged. May the *Ribono shel Olam* grant success to each and every one of us that the statement of the Rebbe Maharash, *n”a*, be engraved in our memory: "One cannot deceive Hashem, and one cannot deceive people; one can only deceive oneself." May this be realized in practice as soon as possible, so that true success will be drawn down in *avodah* and general communal work, and consequently, in one’s personal matters as well.
+
+With blessings.
+
+## 2992
+
+B"H, 4th of Mar-Cheshvan, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, G-d-fearing and learned, etc., etc.
+Rabbi Chananya Yom Tov Lipa, may he live.
+
+Peace and Blessing!
+
+In response to your letter from Motzaei Shabbos Bereishis, in which you write regarding the concern for the kashrus of children born to women who bathe at beaches and rivers in places where men also bathe, and you connect this to the concept of "conception via a bath" (*nit'abrah b'ambati*).
+
+Surely you are aware of the various opinions regarding this matter of "conception via a bath," which are brought in the sefer *Otzar HaPoskim*, Siman 1, subsection 42, and elsewhere, as well as in the *Pardes* jubilee volume in the article by Rabbi Friedman, may he live.
+
+I was alarmed by your suggestion that there is room here for a concern of *mamzerus*. If that were the case, G-d forbid, there would be no kosher seed left in Israel without concern. For if one compares the aforementioned situation to the matter of a bath, the bathing does not even need to occur at the same time, but even after time has passed. Furthermore, the father of Shmuel would make *mafatz* (a type of protective garment) for his daughters, and they would immerse in rivers, and it was never heard that women were forbidden from immersing there for that reason. And there were certainly many non-Jews in Nehardea (see *Yoma* 19b). In general, regarding the issue of bathing in the United States—while the immense lack of *tznius* in such bathing certainly requires no explanation—the law is that one must bathe in trunks, and consequently, there is no basis for the aforementioned concern, even if it were in a small body of water (*ashburin*). Regarding what is written in the Yerushalmi at the beginning of *Yevamos* about the "way of a sheet," see what is written in *Nedarim* 28b.
+
+To speak in defense of the daughters of Israel—though, of course, one does not say this in the presence of the unlearned—the fact that bathing at beaches and rivers is so common that it has become a fashion, almost a necessity, is precisely what has saved the generations of Bnei Yisrael here, such that the children are not *bnei niddah* according to Torah law, G-d forbid, and there is room to say that they are not even *bnei niddah* according to Rabbinic law. For this immersion does not require *kavanah*, etc. This is our consolation in the threatening state of the matter of *taharas hamishpachah* of the previous generation, and even now, as the "remedy preceded the illness." Since they are not satisfied with baths in homes—which are not bodies of water in which one’s entire body can be submerged—but rather bathe in rivers and beaches, etc., etc., as mentioned above. My intention in this is not to minimize the destruction of *tznius* caused by mixed bathing, but to find the good part and at least a partial answer as to what Hashem has done for us through this brazen custom. As is known, a falsehood cannot stand unless it contains a grain of truth and good.
+
+Regarding your desire to speak out publicly against the aforementioned bathing, *yishar cheilcha* (more power to you). However, on the other hand, if you would take my opinion into account, do not mention, G-d forbid, the concern of *mamzerus*, *rachmana litzlan*, nor the question of whether she requires a *get* from her husband, etc.
+
+With respect and blessing,
+
+P.S.
+I have been approached by a city named Pottsville regarding a *mikveh*, and I advised them to speak with you regarding the manner of its construction.
+
+## 2993
+
+B"H, 4th of Mar-Cheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from the 25th of Tishrei, in which you inform me of your birthday, mention that you are strengthening yourself in your studies, and ask for encouragement regarding the known matter, etc.
+
+In your own letter, you write one of the remedies in your admission that when you are in the yeshiva you maintain your composure, but when you come [home]... etc. This is further proof of the recognition that you must exert yourself in your studies and in conduct that aligns with the order of the yeshiva. You should distance yourself from undesirable friends and attach yourself to good friends who are G-d-fearing and Chassidim, and then the promise of our Sages, of blessed memory, will be fulfilled in you: "I have labored and I have found."
+
+In connection with your birthday, may it be the will of Hashem that this be a year of success for you in your conduct, with true fear of Heaven, both internally and externally. May you increase your courage in Torah and mitzvos with consistency in your soul and consistency in time. You should contemplate the beginning of the seventeenth chapter of Tehillim, which you are now beginning to recite from your birthday: "Hear my prayer, from lips without deceit. From before You, may my judgment emerge" (see the holy commentary).
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 2,994
+
+2,994
+
+B"H, 5th of Menachem Av, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...You write that when you speak about the fact that the education of girls should be based on Torah and not merely on tradition, you are told that this is forbidden. Yet, there is a living example in recent generations that this opinion is negated and refuted, and anyone who observes sees the damage and destruction that this attitude has brought about, especially in recent times. Even one who wishes to be precise with the Shulchan Aruch—without understanding it beyond the simple, literal meaning of the words and letters—is surely aware of the **ruling** that "women are obligated to learn the halachos that are necessary for them, to know them, such as the laws of Niddah, immersion, salting [meat], the prohibition of Yichud, and the like; every positive mitzvah that is not time-bound, and all the negative mitzvahs of the Torah and of Rabbinic origin that they are cautioned against, etc. And in their days, the Sage would expound upon the common and regular halachos that every person needs to know, in a language that the women understand, etc." (Hilchos Talmud Torah of our Rebbe the Alter Rebbe, end of Chapter 1, and see the sources there)...
+
+## 2,995
+
+B"H, 5th of Menachem Av, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...Regarding several matters, it is in accordance with what is explained in our Torah, *Toras Chaim*, that if one turns a minor issue into a matter of decree and principle, then one will insist even on the "strap of a sandal" to the point of *mesiras nefesh*. Conversely, when one minimizes these things and strives to arrange them in a secondary manner, one succeeds in straightening out even matters that are like mountains. May the *Ribono shel Olam* grant you success in influencing your surroundings in the spirit of *Yisrael Saba*, in peace and with uprightness.
+
+With blessings.
+
+Regarding what you wrote—that sometimes one is stirred to *teshuvah* and to *Torah u’mitzvos*, and afterwards it passes completely, etc.—the matter is explained well in *Likutei Torah*, *Vayikra*, in the *maamar* beginning with the words "Adam Ki Yakriv." See there, according to one's own soul.
+
+## 2996
+
+2996
+
+B"H, 5th of MarCheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from Motzaei Shabbos Bereishis, in which you write that you feel sadness and despair, etc., and you surmise that this stems from your study of the sefer *Derech HaChaim*.
+
+It is well known what is explained in many places in Chassidus regarding how strongly the trait of sadness is discouraged, and the great loss it causes in the war against the *yetzer*. Consequently, one must rid oneself of this as quickly as possible, for it does not stem from the side of good. As with all undesirable matters, the way to achieve this is by adding strength to the side of good; even a little light pushes away much darkness, and all the more so with a great amount of light. When you study our holy Torah—which gladdens the heart and the soul, as it is written, "The precepts of Hashem are upright, gladdening the heart"—with diligence, perseverance, and consistency in time and consistency in the soul, the feeling of despair and even the feeling of sadness will naturally be nullified.
+
+This is especially true when you contemplate the concept of *hashgacha pratis*, that the *Ribono shel Olam*, who is the essence of good, watches over every individual in their daily life, in the details and the minute details. A person has only to remain in *hiskashrus* and ensure that the channel remains open, which is achieved through the aforementioned matters—the totality of which is strengthening oneself in the three pillars of Torah, *avodah*, and *gemilus chasadim*. May the *Ribono shel Olam* grant you success in all of this, and may you bring good tidings that you are serving Hashem (and even though "serving" (*oved*) is related to the word for "tanned hides" (*oros avudim*), as explained in *Torah Or*, beginning of *Parshas Mishpatim*—meaning it is great *avodah* and toil—nevertheless, you are fulfilling the command) with joy.
+
+With blessings,
+
+On behalf of the Rebbe, shlita
+
+#### ***2996***
+
+**Sadness... in the sefer *Derech HaChaim*:** By the Mitteler Rebbe. See further regarding this in Letter 3223.
+
+## 2997
+
+2997
+
+B"H, 5 Cheshvan, 5715
+Brooklyn.
+
+To the congregants of the synagogue...
+May Hashem keep them alive.
+
+Peace and blessing!
+
+I was pleased to receive a general greeting from you, and I hope that everything is going well with you, in both gashmius and ruchnius.
+
+Since the new year has recently begun and we have started reading the Torah once again from *Bereishis bara*, it is as brought down in the *seforim*: this reading should remind a Yid that a new order must begin, both in "the heavens"—regarding matters of ruchnius—and in "the earth"—regarding matters of gashmius. One must know that "Hashem created"—according to the statement of our Sages, "Were it not for Hashem helping him, he could not overcome it" (*Sukkah 52a*)—that the Ribono shel Olam helps one realize the good resolutions that every Yid takes upon himself during the month of Tishrei, to carry them out in actual practice throughout the days of the entire year.
+
+Regarding the synagogue: however good it has been in the past, there is certainly still room to add to the *shiurim* that are studied in public. I hope that *Tehillim* is being said every day after *davening* in the morning, and that funds from the *shul* are being given to *tzedakah* *al taharas hakodesh*. This also helps ensure that the congregants of the *shul* take home an added measure of *lebedikkeit* and warmth from the *shul*, which in turn brings additional blessings from Hashem Yisbarach in everything that a person and his household *shichyu* require.
+
+With blessings for a healthy winter and a year of *hatzlacha* in general.
+
+#### ***2997***
+
+A similar letter was sent to several synagogues, dated the 5th–27th of Cheshvan.
+
+## 2998
+
+2998
+
+B"H, 5th of MarCheshvan, 5715
+Brooklyn.
+
+To the esteemed Rabbi, G-d-fearing, Torah scholar, etc., R' Yaakov, may he live.
+
+Greetings and blessings!
+
+In response to your letter from Chol HaMoed Sukkos and the 21st of Tishrei, which was received with some delay: As you requested, I will mention you and your family at the holy gravesite of my father-in-law, the Rebbe, of blessed memory, at a time of favor.
+
+Thank you for the good news that a minyan was established in the Chabad beis medrash during the Aseres Yemei Teshuvah, and for the addition that it served not only as a shul but also as a beis medrash. As is known, our Sages of blessed memory commented on the verse, "Hashem loves the gates of Tzion more than all the dwellings of Yaakov" (Berachos 8a).
+
+Regarding what you wrote about non-grafted esrogim—that you see several among them that lack a pitom and also lack a depression (guma) in that spot, and consequently you are in doubt as to which is preferable: whether a grafted esrog or the aforementioned esrog, given this flaw, as explained in the commentaries on Shulchan Aruch, Orach Chaim, section 648.
+
+You should examine the Responsa of the Chasam Sofer, Orach Chaim, section 207, where he rules that the status of an esrog is like that of a kosher bird, which is only eaten based on tradition (mesorah). It is also explained there that the [physical] signs are clearly not of Torah origin, and they are not mentioned in the Gemara or the Rishonim. From this, we can also learn regarding what you wrote about the necessity of the guma; this ruling stems from [empirical] reality. This is unlike the case when esrogim are discovered that are known by tradition to be non-grafted, even without a pitom and without a guma. It seems clear that many of the esrogim the Chasam Sofer writes about—which have a tradition—are without a pitom and also without a guma. It is possible that these varieties did not reach the later authorities who write about the necessity of the guma.
+
+With blessings.
+
+## 2999
+
+2999
+
+B"H, 5th of MarCheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from the beginning of the month of Tishrei—the reply was delayed due to the preoccupations of the holidays and festivals.
+
+Regarding what you write about the state of your health: It is well known that the instruction of our Torah, the Torah of life, regarding the verse "and he shall surely heal" (*V'rapo yerapei*), is that permission has been granted to the physician to heal. Consequently, one must fulfill the instructions of a specialist in this field. However, at the same time, one must know clearly that Hashem is the Healer of all flesh, who performs wonders, and that a specific person or a specific medication are merely His messengers and instruments. Therefore, first and foremost, one must improve and strengthen one's state of health in the spiritual realm, for through this, one’s *dveikus* to Hashem is strengthened, which then brings about "you who cleave to Hashem your G-d are all alive today" in a revealed vitality, throughout all one's limbs.
+
+You should increase your persistence and diligence in the study of Torah, the performance of *mitzvos* with *hiddur*, and the *avodah* of *tefillah*.
+
+It is understood that all of this can be done without compromising one's health; there is enough time in the day to work on the health of the soul and to work on the health of the body. Then, your state of health in the physical sense will improve. And there is nothing that can stand before the will.
+
+With blessings for true health,
+
+**M. Schneerson**
+
+#### ***2999***
+
+Printed in *Likutei Sichos*, Vol. 11, p. 292, and completed according to a photocopy of the original letter.
+
+## 2500
+
+B"H, 6 MarCheshvan, 5715
+Brooklyn
+
+To the esteemed Chossid, G-d-fearing and refined, occupied with communal needs,
+Rabbi Betzalel, may he live, Shaliach
+
+Shalom u’Bracha!
+
+In response to your letter from the beginning of the month of MarCheshvan: It is surprising to hear that specifically on Shemini Atzeres and Simchas Torah, the number of those davening was lower than on the preceding Yomim Tovim, even though the custom in other places—including the United States—is the opposite. Surely you publicized that you would be holding Hakafos, etc.
+
+I was pleased to hear that you are striving to make the Yeshiva building a center for all matters. You will surely contemplate further what can be done in this regard—namely, that it should become known throughout the city and its surroundings that this building is a center where one finds solutions and encouragement for all matters of Torah and Yiddishkeit. Certainly, you will find a way to ensure that, nonetheless, farbrengens are held from time to time in the homes of anash, in order to bring the light and warmth directly into the home, without intermediaries.
+
+It is surely unnecessary to remind you that the library should also be in the aforementioned building, as well as the center for Agudas Neshei u’Bnos Chabad, and also the center for Agudas Chabad in general. As is the custom in many places, a bulletin board should be placed in the corridor there, where everyone who enters will be informed about the various shiurim being taught, where to find kosher meat, etc. Surely, even with a little contemplation, you will find several other matters that will be helpful in this regard.
+
+It is surprising that you do not mention anything regarding the education of girls, the holding of Shabbos parties, etc.
+
+I await good news regarding concrete activities, and—in contrast—**in action** regarding the matters you mention in your letter.
+
+## 301
+
+301
+
+B"H, 6 Marcheshvan, 5715
+Brooklyn, N.Y.
+
+Greetings and Blessings!
+
+I have received your *pidyon nefesh* through Rabbi Gerlitzky, may he live, in which you ask to be remembered for success in your studies to become a doctor who is *shomer Torah u’mitzvos*.
+
+I will remember you at the *tziyun* of my father-in-law, the Rebbe, of blessed memory, at a time of favor (*eis ratzon*).
+
+In general, every Jew—and especially one who has studied in a Lubavitcher yeshiva—must always and everywhere view himself as a *shaliach* of the Ribono shel Olam. As our Sages of blessed memory said (end of Kiddushin), "I was created only to serve my Maker," and one must strive to influence fellow Jews so that they, too, arrive at this realization.
+
+Since you are in [a university], and especially in a circle of Jewish students, many of whom undoubtedly are in need of spiritual assistance, I hope that you will consider it your mission to bring them closer to Torah and *mitzvos* in their daily lives. And when the Ribono shel Olam gives someone a mission to carry out, He also gives him the *kochos* to fulfill his *shlichus*; this is dependent solely upon one’s good will (*ratzon hatov*).
+
+Regarding medical students in particular: taking into account that even science now acknowledges the importance of 'heredity' in human life, one must explain to them that the health of a Jew's *neshamah* is bound up with the Torah inheritance from the time of *Maamad Har Sinai*. A Jew cannot be spiritually healthy and whole if he is, G-d forbid, severed from the source with which his parents and grandparents were closely connected for countless generations.
+
+Finding yourself in an environment where one must rely on *siyata d’shmaya* to guard oneself against the *le’umas zeh*, know that since the *middah* of the Ribono shel Olam is *middah k’neged middah*, by bringing others closer to Torah and *mitzvos*, Hashem will grant you additional *kochos* to traverse your path in the way of Torah and *mitzvos* with *yiras shamayim* and *kabbalas ol*, to feel always that "as for me, the nearness of G-d is my good."
+
+With blessings for good tidings.
+
+312
+
+B"H, 6 Mar-Cheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I have received your letter and the *pidyon nefesh*. My response was delayed due to the additional burdens brought on by the holiness of the *moed*. As you requested, I will read the *pidyon nefesh* at the holy *tziyun* of my father-in-law, the Rebbe, of blessed memory.
+
+Regarding the aforementioned, as well as the content of your letter, it must be explained to your wife—and to yourself as well—that, ultimately, one cannot "limp between two opinions." You must decide: are you going to conduct yourselves in a way that finds favor in the eyes of the neighbors and the like, or do you wish to arrange your home in a way that finds favor in the eyes of my father-in-law, the Rebbe, at whose *tziyun* the *pidyon nefesh* is read? The saying of the Rebbe Maharash, of blessed memory, which is cited in a letter of my father-in-law, the Rebbe, is already well known: "You want Hashem to obey you, yet you do not want to obey Him." Further elaboration is superfluous.
+
+For, in any event, if there is a desire to understand this simple matter, the above is sufficient; and if there is no desire to understand, further elaboration will be of no use.
+
+As I wrote to someone else, this response is not written by me, but rather [it is a reflection of the situation]. The matter depends on the wife. Our Sages have ruled that words coming from the heart enter the heart. If women did not sense a weakness in their husbands' stance, they would **long ago** have not only ceased opposing what is desirable and good, but would have actively assisted in it. I was pleased to note that, as is evident from your letter, you included yourself in the content of the *sicha* I spoke regarding one to whom [the Rebbe] appeared in a dream, etc. May it be Hashem’s will that the point of *tamim* (wholeness/sincerity) within you be awakened to bring about a practical change, and the ruling of our Sages is well known: that a man’s wife is considered as his own body.
+
+With blessings.
+
+***
+
+**The *sicha* I spoke:** On Simchas Torah 5715: A story about a young man who was not conducting himself as he should in a certain matter. The Rebbe related that they had spoken to him, but it did not help, until the Rebbe himself came to him in a dream. So, instead of him having an influence on someone else, he himself was...
+
+## 33
+
+33
+
+B”H, 6th of Cheshvan, 5715
+Brooklyn, N.Y.
+
+To the honorable Rabbi, the Chassid, the G-d-fearing man, who sits in judgment and leads his community with integrity, a master of good deeds, etc., Rabbi Shushan HaKohen, may he live and be well, Av Beis Din of the holy community of Djerba, may it be protected.
+
+Greetings and blessings!
+
+Your letter of the 28th of Elul was received with some delay, and my response has been delayed due to the holidays and festivals of the month of Tishrei and the heavy burden of work upon me; I ask for your forgiveness.
+
+The honorable Rabbi, the Chassid, the G-d-fearing man, who is engaged in communal needs, a man of energy and many accomplishments, etc., Rabbi Binyamin Eliyahu, may he live, has informed me of the details of your situation. We are currently searching for a suitable person to travel to your camp to carry out the establishment of a Beis Medrash for Rabbis, with the help of Hashem.
+
+Wishing to participate in the work of strengthening Torah and Yiddishkeit in your camp, to the extent of my ability, I have instructed that a sum of fifty thousand francs be sent to you from our funds as a one-time contribution. Would that I were able to do this a thousand times over, but alas, the handful cannot satisfy the lion.
+
+I look forward to receiving good news from you regarding your holy work in keeping the sacred watch of the tradition of your fathers and our holy fathers, disseminating Torah with pure Yiras Shamayim, and the practical fulfillment of its mitzvos. May Siyata Dishmaya be with you.
+
+With blessings.
+
+#### ***33***
+
+**Rabbi Binyamin Eliyahu, may he live:** Gorodetsky.
+
+## 304
+
+304
+
+B"H, 7 Cheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I have received the *pidyon nefesh* that was delivered through the esteemed *chossid*, G-d-fearing, and refined man, who engages in communal needs, our teacher Rabbi [Name]...
+
+I will mention it at the holy *tziyun* of my revered father-in-law, the Rebbe, of blessed memory. And behold, even though Hashem grants success as broad as the entrance to the *Ulam*, it is incumbent upon a person to open [an entrance] at least as narrow as the eye of a needle—especially regarding the matter of refining one’s character traits (*tikkun hamidos*), for this matter is among the primary purposes of the soul’s descent from the highest heights to the deepest depths.
+
+He should study with deep focus Chapter 32 of the *Tanya Kadisha*, as well as the *mitzvah* of *ahavas Yisrael* in the *Sefer HaMitzvos* of the *Tzemach Tzedek*, until he is fluent in these matters, at least by heart. This will make the war against the *yetzer* easier for him, [helping him] to refine his character traits and [achieving] success in the study of the complete Torah and in *yiras shamayim*.
+
+With blessings,
+
+On behalf of the Rebbe, *shlita*,
+
+Secretary
+
+## 305
+
+B"H, 7 Cheshvan, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+[Name] relayed to me his concern that while in our country, he fears he may have inadvertently stumbled once or twice, having learned that the mikveh was not kosher, though he does not know the details. I told [Name] that, in my opinion, it is highly likely that this is merely a figment of his imagination. Since, as per the language of the Alter Rebbe in Iggeres HaKodesh and Iggeres HaTeshuvah, all those who tremble at the word of Hashem are accustomed nowadays to increase charity very, very much, he and his wife should—without a neder, of course—set aside, on weekdays before davening or the blessings, and his wife should also do so before lighting candles on Erev Shabbos and Erev Yom Tov, a few extra francs beyond what they are currently accustomed to giving to charity, until a sum of approximately 53.50 dollars is collected. Then, they should put the entire matter out of their minds. May the Ribono shel Olam lengthen their days and years in goodness, and may they see true nachas—Chassidishe nachas—from all their children, may they live, in proper health, both materially and spiritually.
+
+With blessings.
+
+#### ***305***
+
+**53.50 dollars:** See below, letters 334, 373.
+
+## 315
+
+B"H, 7 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I received your letter via the esteemed Chossid, G-d-fearing and refined, involved in communal needs, a man of many accomplishments, Rabbi Nissan Nemannov, may he live. Regarding what you write about foreign thoughts (*machshavos zaros*): the advice is to be careful to avoid idle talk, and to daven and learn from inside the sefer. It is understood that one must be careful regarding *tevilas Ezra*. It would be appropriate that, in addition to the above, you contemplate the matters of *ahavas Yisrael*, for through this, sadness will be removed from you. Surely you have studied with depth the holy Tanya, Chapter 32, and the mitzvah of *ahavas Yisrael* in the *Sefer HaMitzvos* of the Tzemach Tzedek...
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 307
+
+B"H, 8 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your recent letter received today, as well as the one preceding it, it is surprising:
+
+1) That you are brief in your updates regarding your state of health... at a time when previously you would send telegrams every single day. It is already well known that the middle path is the straight path, not the two extremes (except in exceptional cases, as explained in Rambam, Hilchos Deios).
+
+2) That your letters are written in terms of fear and alarm. Where is the concept of the "mind ruling over the heart," or at the very least, the negation of the heart’s rule over the mind? That is to say, the heart is frightening itself and viewing matters not in accordance with the requirement of our teacher, the Baal Shem Tov, to be in joy. I have already written to one of our anash that by combining two rulings of our Torah—Toras Chaim—that the service of Hashem must be specifically with joy, and that the service of Hashem must be "in all your ways"—it follows that joy must be present in every single matter (and one should connect this with the Baal Shem Tov’s approach to the concept of Divine Providence, and according to what is explained in Chassidus, that every single action fulfills the intent of the Supreme Will). Thus, even when looking at one’s state of health, and even when writing about this matter, it is possible to serve Hashem. And according to what is explained in Chassidus—it is not hidden from you, nor is it far away; on the contrary, the matter is very close to you...
+
+May it be the will of Hashem that from here on you report good news, and not only for the reasons mentioned above, but because even you, and even your melancholy, will admit that one must be in joy.
+
+And according to the ruling of our Sages that one who prays for his fellow... may Hashem grant success for the improvement of your health and that of your wife—may they live—and may you report good news regarding this as well.
+
+With blessings,
+
+**M. Schneerson**
+
+#### ***307***
+
+**And I have already written:** See above, Vol. 9, Letter 2935, and in many other places.
+
+## 308
+
+B"H, 8 Menachem Av, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and meticulous in communal needs, a man of energy and many accomplishments, etc., etc., Moreinu Harav Moshe Pinchas, may he live, Cohen.
+
+Greetings and Blessings!
+
+It was a pleasure to receive your letter bearing good news and blessing, that you have arranged for your son, Ze’ev Yechezkel, may he live, Cohen, to study holy subjects throughout the entire day. You have taken part in organizing a department for this, which inherently becomes a matter of *zchus harabim*—concerning which our Sages have already ruled that "the merit of the many depends upon him." See *Iggeres HaKodesh*, Epistle 21, by our Rebbe the Alter Rebbe, the author of *Tanya*—the arbiter of the hidden dimensions of Torah—and the *Shulchan Aruch*—the arbiter of the revealed dimensions of Torah—where he explains that the act of the *Akeidah* itself is not considered as significant as the fact that Avraham Avinu performed it with wondrous alacrity, to demonstrate his joy and desire to fulfill the will of his Creator and to provide *nachas ruach* to his Maker. See there. And the Holy One, blessed be He, is guaranteed to fulfill His promise in our Torah, the Torah of life, that such conduct, as written in that *Iggeres HaKodesh*, protects and saves through its fruits in this world, etc.
+
+Indeed, in the aforementioned matter, the deed is performed many times over; for every single day that your son, may he live, studies holy subjects during the hours that would have been devoted to other studies, the act is performed anew. Consequently, the teaching regarding the "additional blessing that comes according to the abundance of the deed" applies to this as well. And may Hashem Yisbarach help both of you, the father and the mother, to fulfill the desires of your hearts soon, and to bring good tidings, *koh yiten v’koh yosif*.
+
+With blessings,
+
+**M. Schneerson**
+
+P.S.
+It is self-understood that you have permission to show this letter of mine, or to convey its content, to all those who have already done as you have, and all the more so to those who have not yet chosen the true good, and therefore the aforementioned has not yet come about for them in practice. There is a presumption regarding *ta'amulah* (outreach) that it does not return empty, especially when you add to it words that come from the heart—which enter the heart. And may the Holy One, blessed be He, grant you success in being a good *shaliach* in this lofty matter as well.
+
+## 319
+
+B"H, 8th of Mar-Cheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing and upright, involved in communal needs, R' Tzvi, may he live:
+
+Peace and blessing!
+
+After the long silence, it was a pleasure to receive your letter from Motzaei Shabbos, in which you write how the matters at the Talmud Torah and the arrangement of the various classes have been settled. I was very pleased with the various ideas you introduced to foster a "jealousy of scribes" (kinas sofrim) among the students. This will surely bear fruit in awakening the inner powers that exist within every Jew, so that they may be revealed in practice and influence their daily lives.
+
+Following this, your reasoning is very sound regarding organizing a minyan for them, as this provides an opportunity for the election of gabbaim and shamashim from among the boys themselves. It is well known how eager the youth in the United States are for arrangements that have the character of a "team," which consequently has a leader, captain, etc.
+
+Your plan regarding study with the adults, whom you have called to be "windows to Yiddishkeit," also makes a good impression. You have surely also seen the maamarim regarding tefillah and its components that were printed in *Talks and Tales*; even though they are written for the young, the point and foundation of these maamarim are true, and they will surely be of benefit to you in your own lectures.
+
+As I wrote to you in my previous letter, although one should not always highlight the point that follows, it must at least be a hidden goal: that from every meeting and lecture, the listeners should gain increased energy and knowledge regarding the performance of mitzvos in their actual daily lives. For ultimately, "this is the whole of man." It is also understood, all the more so and *kal v'chomer* from what is brought in Chassidus in many places, that the most sublime *haskalah* (intellectual comprehension) must lead to a "therefore" (*uvchein*), and that "therefore" must result in actual deed. Elaborating on this simple matter is surely redundant. Certainly, one must find a diplomatic way, if it is necessary, so that they do not feel the intent behind every lecture too strongly...
+
+With the blessing of success in the above.
+
+#### 319
+
+**R' Tzvi, may he live:** Schusterman. Additional letters to him—above, Vol. 4, 1398, and the references in the footnotes there.
+
+## 3
+
+B"H, 9 MarCheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, refined, and dedicated communal worker, etc.,
+Rabbi Shmuel, may he live and be well,
+
+Peace and blessing!
+
+...Regarding what you wrote in your letter of 18 Tishrei concerning the efforts to influence the *avreichim* in a direction contrary to Lubavitch: one of the strategies for this is to extend the duration of their stay at Tomchei Temimim in Paris and to increase the number of those traveling there. On the face of it, since there are many who wish to travel from Morocco in any case, it should be easier to facilitate their traveling to study for a period of time at Tomchei Temimim in Paris.
+
+Regarding your own travel here, we are awaiting instructions from you as to which documents and papers are necessary for us to send from here so that you can submit the application. You will surely write (directly to the Secretariat).
+
+With blessings for proper health and for success in all of the above, for you and for all that is yours,
+
+**M. Schneerson**
+
+#### ***3***
+
+**Rabbi Shmuel, may he live and be well:** Matossov. Additional letters to him: above, Vol. 9, letter 2840, and in the references noted there. Below, 383, 3123, 3165, 3350, 3370.
+
+## 311
+
+B”H, 9 Menachem Av, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...It is explained in our Torah, and especially in the teachings of Chassidus, that every individual among the Jewish people has a specific mitzvah and area of avodah in which he must be **more** careful. As the Gemara specifies—and see *Iggeres HaKodesh* by our Alter Rebbe, Epistle 7—this specific mitzvah and area of avodah serves as the gateway through which all of his Torah and mitzvah-related matters ascend from below to above, and through which all matters and influences are drawn down from above to below, which are necessary for him and for his entire household, may they live.
+
+This matter and mitzvah is not necessarily one of the most stringent of the stringent, as is proven by the Gemara there, which notes that [the Sage] was *more* careful regarding *tzitzis*, even though this is not a personal obligation [in the same category as others]... and see there in the Gemara. The Alter Rebbe explains in *Iggeres HaKodesh* that the choice of this mitzvah for each person is not based on intellectual reasoning or comprehension, but rather transcends the level of *da’as*, for so it arose in the Thought of the Holy One, blessed be He. Its parallel below is literally the concept of a *goral* (lot). It is understood of itself that in order to clarify the matter pertaining to a specific person, in the vast majority of cases, one sees how Divine Providence leads him and determines his field of avodah in a particular mitzvah or area—which is proof that this specific matter is his gateway and the conduit for [the flow] from below to above and from above to below, as mentioned above.
+
+It is also understood that the *sitra achra*—and in more specific terms, the *yetzer hara*—knows and senses that it is precisely in this specific matter and mitzvah that this person must be more careful, for they serve as the support for **all** of his Torah and mitzvah-related matters, as well as for his success in life, even in material affairs. The *yetzer hara* opposes this as well, for as our Sages of blessed memory state, he is the "prosecutor." Consequently, his primary effort with this person is directed specifically toward this matter and this mitzvah, to the point that he is willing to concede [the person's] meticulousness in other areas of Torah and mitzvah observance, provided that he succeeds in his battle against this specific matter and mitzvah.
+
+It is also understood that if a certain person is a *yarei shamayim*, the *yetzer hara* cannot come and reveal himself as he truly is, for then the person would not listen to him and would not even enter into a debate. But he is not deterred, and the path is paved before him. As per the saying of my father-in-law, the Rebbe (the father of my revered father-in-law, the Rebbe), that the *yetzer hara* sometimes disguises himself "in the garb of a righteous, pious, humble person with good character traits"—see *Hayom Yom* for the 23rd of Sivan, 5743. Hashem has bared His holy arm through the revelation of the teachings of Chassidus, which has exposed the tactics of the *yetzer hara* even in this regard, so that a person may understand the source and direction of these things and be even more cautious of them than he is of openly evil things.
+
+This is similar to what is mentioned in the commentary of the students of Rashi on *Berachos* (beginning of the first chapter) regarding the sin-offering (*chatas*) of a *danka* and the guilt-offering (*asham talui*) of two *selaim*. In the case of a *chatas*, one knows clearly that it is a matter of sin, and consequently the repentance is with a whole heart, so a sacrifice of a *danka* is sufficient. This is not the case with an *asham talui*, where even after the repentance and the bringing of the sacrifice, the *yetzer hara* calms him by saying that he surely ate [permitted] fat and not [forbidden] *chelev*, and therefore everything is fine; thus, he must bring the sacrifice in this manner [of greater expense].
+
+## 312
+
+B"H, 11 Mar-Cheshvan, 5715
+Brooklyn
+
+To the esteemed, G-d-fearing, and distinguished individual, engaged in communal affairs, R' Mordechai
+May he be well.
+
+Greetings and Blessings!
+
+I have received your letter—undated—and I was pleased to read therein that you are beginning to participate energetically in the affairs of Yeshivas Oholei Yosef Yitzchok Lubavitch in Melbourne. Hopefully, this energetic action and the necessary *hishtadlus* will bring the blessing of Hashem and success. If in all times and in all places it was necessary to have a center of Torah connected with *yiras shamayim*, then all the more so in our time and in such a place where the Jewish community is beginning to grow, one must invest the greatest efforts and engrave well in one’s mind and heart the statement of our Sages: "Whoever sustains one soul of Israel, it is as if he sustained an entire world."
+
+In the past, a *cheder* or *yeshiva* for a child saved him from being an *am ha'aretz* and made him a *yodei sefer*—and for a large portion of the children, even a *lamdan*. But in our time, unfortunately, one must think about saving children so that they remain Jews. In this, one cannot rely on the environment, etc.; rather, one must build fortresses for them—a *cheder*, a *yeshiva*—which provide the guarantee that they will remain Jews. Further elaboration on this is surely unnecessary.
+
+Regarding your question as to which stratum to draw from for the finance committee being established to support and expand the *yeshiva*, this depends on the character and capability of each individual concerned, and therefore it is difficult to provide a general answer. However, what is necessary is to guard against giving the *yeshiva* a political flavor or a partisan character. For the study of Torah is not connected with politics or parties. This was one of the foundations of the success of Lubavitcher *mosdos*: they have always been non-partisan. When one contemplates the deep meaning of this—that the Torah was given **simultaneously** to all six hundred thousand Jews, from the greatest of the great to the smallest of the small, and how all heard the *Dibros* simultaneously, "I am Hashem your G-d," "Remember the Shabbos day," "Do not covet"—one grasps the concept that Torah is for all Jews. That from "I am Hashem your G-d" one must arrive not only at "Remember the Shabbos day" but also at "Do not covet," and likewise, one cannot refrain from "Do not covet" if it is not grounded in "I am Hashem your G-d" and if one does not exert all efforts to fulfill "Remember the Shabbos day." Therefore, one must not mix in extraneous matters here, for sometimes people are frightened away by such extraneous matters—whether it is party or politics—and thereby lose the opportunity to connect themselves with the *Toras Chaim* and its *mitzvos*.
+
+You surely remember our conversation, and I hope it is unnecessary to repeat the request and to awaken you to act in the affairs of Yeshivas Oholei Yosef Yitzchok according to all your capabilities, and to utilize your influence to the maximum in this. And only according to the statement of our Sages, "One only urges the diligent," do I wish to arouse you once again in this, so that it may be added to your work.
+
+With blessings for success in all the above and in your personal affairs, awaiting good news.
+
+## 313
+
+11 MarCheshvan, 5715
+Brooklyn
+
+Greetings and blessings!
+
+I was pleased to receive your letter from the 7th of Cheshvan. I am even pleased by the fact that you complain that you are being asked to work for several institutions. If only such dissatisfaction—which is connected to educational institutions *al taharas hakodesh*, to matters of *tzedakah* in general, and to matters of proper education in particular—could be said of all Jews! Certainly, one must follow the instructions of a doctor who advises one to take care of one’s health, as this is the instruction of our holy Torah: "And you shall guard yourselves very carefully." However, when Hashem Yisbarach inscribed this in the Torah, He simultaneously inscribed the necessity to perform *tzedakah* and *chessed*. It is therefore certain that one can do both; not only will it not cause harm, but on the contrary, the pleasure one feels while doing a good deed strengthens and improves the physical health of a Jew as well.
+
+The same applies to you: surely, if you do not speak loudly, you will still be heard, and you will certainly find time to work for the institutions and matters that are *al taharas hakodesh*. As I have told you several times in our conversations, you must be *b’simcha*, as it is written, "Serve Hashem with joy"—specifically with joy. Since Hashem Yisbarach demands this of all Jews, and of every individual Jew, He—*Baruch Hu*—gives the strength to fulfill His demand.
+
+With *shevi'as ratzon*, joy, and pleasantness, I have passed on the draft you sent in accordance with the conversations we had here, and as you spoke—*bli neder*—at the *Tziyun Hakadosh* of my father-in-law, the Rebbe, *ztzukulleh"h nbg"m zi"e*. I hope that by the time you receive this letter, you have already received confirmation of this from the central office of Yeshivas Tomchei Temimim, along with an appropriate cover letter. May Hashem Yisbarach help you so that from now on you will be able to fulfill your heart's desires for the good. For a Jew, no matter how good he may be, always has the potential to be even better, and may Hashem Yisbarach help you in this as well.
+
+As is well known, there is the story my father-in-law, the Rebbe, told regarding his father, the Rebbe *ztzukulleh"h nbg"m zi"e*: When he turned four or five years old, on his birthday, he went to his grandfather, the Tzemach Tzedek, to receive a blessing. (His birthday was the 20th of Cheshvan, and that year it fell out during the week of *Parshas Vayeira*.) Upon entering his grandfather’s room, he began to cry. The Tzemach Tzedek asked him, "Why are you crying?" He replied that he had heard in *cheder* that week that "Hashem appeared to him [Avraham Avinu]," and he was crying because he, too, wanted to see Him—Hashem—and He had not appeared to him. The Tzemach Tzedek answered him: "A Jewish *tzaddik* of 99 years knows that he still needs to be circumcised (meaning that he still has more to attain, for he has not yet reached the level of *v'hayah tamim*—'and be whole'), and therefore he is worthy that Hashem should appear to him."
+
+The words of *tzaddikim*, even when spoken to a specific individual, and even when spoken to a child of four or five years old—since they have been passed down to us, and these are indeed the words of *tzaddikim*—contain a *horah* and *mussar*, a lesson for many, many of the Children of Israel, even in other places and at other times. The *nimshal* is understood.
+
+May Hashem Yisbarach help each of us to ascend in Torah and *mitzvos* with our entire will, and may Hashem give us the strength for this. We must always remember that we are still lacking, that we must strive to be "*v'hayah tamim*," and have *bitachon* in Hashem Yisbarach that "there is nothing that can stand before the will," and that when one truly desires, Hashem Yisbarach helps.
+
+With blessings for an increase in the performance of *mitzvos* and in fixed times for Torah study, for long days and good years.
+
+## 314
+
+B”H, 11 MarCheshvan, 5715
+Brooklyn, N.Y.
+
+Greetings and Blessings!
+
+In response to your letter of 28 Tishrei, which begins appropriately regarding the impression of the days of the month of Elul, the Yomim Noraim, and the days of the Chagim, you immediately break off from this subject without mentioning what your resolutions and good deeds are, etc. Yet, the demand of our holy Rebbes from all Anash, and from the Temimim in particular, is well known: that avodah must be internal and not merely superficial—all the more so when your letter does not even mention avodah on a superficial level. According to the saying of the Tzemach Tzedek, "As one sets oneself up, so it goes," if at the beginning of the year—or at the very least at the beginning of the process of "Yaakov went on his way" in matters of Torah and mitzvos—one connects the resolution to an actual deed, this is a good start for the order of the entire year. This is in contrast to remaining in the world of thought, for in this world, the world of speech is considered like the world of thought.
+
+It is understood that my intention here is not to preach, and it is not so much about writing to me, but rather about the practical application as mentioned above. When one reveals this to others—and all the more so when the other person is located in one’s immediate vicinity—it creates a greater obligation (it binds one) to fulfill one’s resolution in daily life. Further elaboration on this is superfluous.
+
+Regarding what you write about the conduct with your daughter, may she live, who refuses to listen to matters of shidduchim: it is obvious that the initial thought of threatening her and speaking harshly has no place at all. Aside from the fact that this is not the way of the Torah, whose ways are ways of pleasantness, we see tangibly that this approach achieves far less than a soft answer and an approach of drawing her near. Regarding her specifically, you must come forward with **specific** proposals, and it is best that she not know that the proposal came from you—surely a way can be found to manage this. Then she will certainly change her behavior. It may be said that a large part of her refusal is only on the surface, because she is disheartened that she has not yet become engaged. From the above, it is understood that you must strive for her to live in your home until the chuppah, in a good and auspicious hour.
+
+Regarding your daughter’s, may she live, travel: I was alarmed by the initial thought of traveling on a ship whose owners—and consequently all the profit from it—are Bnei Yisrael, as are the captain and the sailors, etc. In my opinion, there is no permission whatsoever to travel on it, and the only doubt is whether it is a rabbinic prohibition, or—due to the work performed on the ship, the public nature of it, and the chillul Hashem—also a Torah prohibition (see Responsa Chasam Sofer, Choshen Mishpat, sec. 198). It is surprising that those who bear the responsibility are not raising an outcry about this. Regarding the papers for her, you are surely receiving information about this from the Merkos L'Inyonei Chinuch.
+
+With blessings for good tidings.
+
+## 319
+
+B"H, 11 Mar-Cheshvan, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 6 Mar-Cheshvan: it goes without saying that I was not making a complaint in general, and certainly not against your daughter, *tichyeh*. Rather, I was expressing my distress regarding the approach to education that has resulted in such young people beginning to think about "the goal" [of life]—and not only thinking about it, but changing the order of their lives and their education within *anash* to resemble the assumptions of the world. According to the ruling of our Sages that "two or three times establishes a *chazakah*," since I have seen this trend in your daughter as well as in your two sons—*shichyu*—it is well known that "the talk of a child is that of his father."
+
+It is also understood that I did not come with a shout about the past, for "one does not shout about the past." My intention was only to rectify things for the future, at the very least so that they do not place the emphasis on the idea that a person’s perfection lies in having a clear calculation and certain knowledge of "in what he earns." (This is, in truth, the opposite of the teaching of our Sages that "a person does not know in what he earns." Our Alter Rebbe explains in *Iggeres HaKodesh*, Epistle 22, that this is analogous to the lack of knowledge regarding the coming of Moshiach; as the Alter Rebbe says, they are equated to one another. It is also the opposite of the verse, "Nor is bread to the wise," which our Sages interpret as applying even to the matter of *parnassah*.)
+
+And even though the Torah says, "And Hashem your G-d will bless you in all that you do," which implies that one must create a *keli* (vessel), it is explained that there is no contradiction in this. (See *Sefer HaMitzvos* of the Tzemach Tzedek, page 106, and *Likutei Torah*, *Ki Seitzei*, on the verse "And she shall shave her head and pare her nails.")
+
+If, at the very least, from here on out your sons will also feel that the purpose of the world depends on the *Ein Sof*—the Infinite and Limitless—and that He, *Yisbarach*, promises that "if you walk in My statutes," then "I will give your rains in their season," then those hours that your sons spend learning, and those qualities that you will seek in the proposals discussed with them, will be more in line with what they actually need, both materially and spiritually.
+
+May the *Ribono shel Olam* grant you success to see much *nachas chassidish* from all your children, with peace of mind and proper health.
+
+With blessings.
+
+***
+
+**"Two or three times":** See *Yevamos* 64b.
+**"The talk of a child":** See *Sukkah* 56b.
+**"A person does not know":** *Pesachim* 54b.
+**"Nor is bread to the wise":** *Koheles* 9:11.
+
+## 316
+
+B"H, 11 MarCheshvan, 5715
+Brooklyn.
+
+To the esteemed and distinguished individual, occupied with the needs of the community, R' Yosef, may he live:
+
+Peace and blessing!
+
+...You have surely seen several booklets published by Merkos L'Inyonei Chinuch that are written in Yiddish, as well as other publications by Merkos for the youth. I wanted to know if you could suggest a suitable person who would be able to translate them, or write similar material, in the Italian language. It is possible that in the beginning, one should not commit to calling it a monthly publication—which would necessitate publishing it every single month—but rather it could be titled as appearing from time to time, or something similar. Alternatively, at first, only practical booklets could be published, and depending on the public's response, a decision can be made as to how to continue. It is understood that the language must be appropriate for the target age group—meaning, not speaking in overly lofty terms—but on the other hand, it must be free of grammatical or stylistic errors, and the style should be one that captures the heart of the youth. This is a matter of actual, practical work, as I have a sum of money allocated for such matters.
+
+With blessings for success, awaiting good news.
+
+## 317
+
+B"H, 12 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+It is a great wonder that we have heard nothing from you, and an even greater wonder that you were not seen here throughout the month of Tishrei. Regardless of how invested one may be in matters of *parnassah*, one must know and not forget that *parnassah* is determined during the times of Rosh Hashanah and Yom Kippur **Above**, and that a Jewish person’s *parnassah* in *gashmius* is dependent upon their *parnassah* in *ruchnius*. And when one comes among *Chassidim*, one *frisht zich op* (refreshes oneself).
+
+With blessings,
+
+On behalf of the Rebbe Shlita,
+
+Secretary
+
+## 318
+
+318
+
+B"H, 12 Marcheshvan, 5715
+Brooklyn.
+
+To the committee of teachers...
+
+Peace and blessing!
+
+In response to your letter of the 2nd of Cheshvan which has just been received, I am writing back immediately, out of my great distress, without waiting for my turn. The reason for this distress is the content of your letter: since the administration of... owes money to the teachers, you have notified the administration that you will reduce the teaching hours until they begin to pay what is owed. The distress regarding this is understandable:
+
+a) From the reduction of teaching hours, the students—the sons and daughters of kosher Jews—suffer. Even if the administration of... has committed some injustice in this matter, there is no justification for punishing the students, especially with such a punishment, which cannot always be rectified. For time is a loss that cannot be recovered in general, and especially the educational hours of young boys and girls, where every hour during the time of their education is equivalent to many times that duration during a person’s adulthood, as is understood.
+
+b) I am certain that it is clear to you as well that the administration of... did not act out of malice. It is obvious that if there were funds in the treasury, or if it were easy to obtain funds, the members of the administration would also be satisfied to settle the debts. If there is room to speak of paying measure for measure, there is no room to speak of punishing intentionally for what someone did inadvertently or under duress...
+
+d) Most important of all is the destruction of the worldview of those being educated, when they see that for the sake of a material claim for a certain individual or a certain communal activist, an injustice is done to dozens of students. Since this is the conduct of their teacher and educator in matters of Yiddishkeit and good character, it is incomprehensible why the students would not conduct themselves in such ways—that "Tobiah sinned and Segud was punished." It is known regarding the matter of "Shaul sinned with one [transgression] and it was held against him, while David sinned with two and it was not held against him." This is because Shaul’s sin was in the matter that was his role and position—namely, in matters of kingship—whereas David’s sins, even though in and of themselves they were more severe, were not in his role, or in the language of Chassidus, the essence of his mission in this world. For this reason, it is also understood that the fact that you reduced the hours of secular studies makes no difference in the damage caused by this action. Furthermore, there is the matter that during the additional hours, the students will be idle, etc.
+
+It is my hope that these few lines will suffice, and that you will gladden me with good news by return mail that you are volunteering all the additional hours and doing so with a generous eye and a willing heart, for upon this depends the success in influencing the students.
+
+I await good news as mentioned above, and offer warm thanks for your promptness in this matter.
+
+P.S.
+In all of the above, I have not touched upon the halachic aspect regarding the matter of a teachers' strike in a Talmud Torah or Cheder, as this is not the place for it. The main thing is that I am certain you are not in need of this at all.
+
+***
+
+**Tobiah sinned:** Pesachim 113b. See also below, letter 3152.
+
+**Shaul sinned with one:** Yoma 22b.
+
+## 319
+
+B.H., 12 Marcheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from the 2nd of Cheshvan, I was pleased to read about the improvement in your health. Since you have already entered a sanitarium, you will surely conduct yourself in accordance with the instructions of a specialist doctor, for the Torah has granted the physician permission to heal. Regarding what you wrote about being distressed over the time [spent there], this is surprising, for you are among Jews, and there is no doubt that with appropriate outreach, they can be brought closer to Torah and mitzvos.
+
+If the descent of the neshamah into this world for 70–80 years is worthwhile for the sake of a single favor to one Jew, whether in material or spiritual matters—as per the well-known adage of the Baal Shem Tov—then how much more so is this true here: if you truly desire it, you will succeed in your outreach among those with you in the sanitarium, so that they may also be healed in a spiritual sense. The merit of this is great, as it increases the Siyatta Dishmaya in your own avodah—avodah in the sense of "tanned hides" (orodos avudim), as explained in Chassidus in several places.
+
+With blessings for success in all the above, and for good tidings regarding your steadily improving health.
+
+#### ***319***
+
+**As per the adage:** See also above, Letter 2,885, and the references in the footnotes there.
+
+**As explained in Chassidus:** See also above, Letter 2,896.
+
+## 223
+
+B"H, 12 MarCheshvan, 5715
+Brooklyn
+
+Greetings and blessings!
+
+In response to your letter of 27 Tishrei, in which you write about the situation in the home of your sister and brother-in-law—may they live and be well—which is not as it should be: It is understood that, as you requested, I will write in a manner intended to draw their hearts closer to your brother-in-law. However, he, for his part, and your family members in general, must explain to your sister—may she live and be well—that *kal v'chomer* (all the more so): When a husband is delayed at his business or in the office where he finds his source of livelihood and sustenance, no one complains about it. On the contrary, people are happy that there is a source of income and that the husband is working faithfully, which naturally ensures that his livelihood will be "secure." Even though all of the above relates only to intermediaries—that is, the owner of the office or the position itself, which are merely the channels through which the Ribono shel Olam, who feeds and sustains everyone, gives a specific person his livelihood and the sustenance of his household—if so, then how much more so should there be joy when the husband works faithfully regarding the primary and sole "Employer," whose livelihood a person requests during tefillah, which is the request for a person’s needs. The channels and vessels through which the Ribono shel Olam bestows livelihood are the matters of Torah and mitzvos. Just as your sister does not complain that her husband is at his workplace or engaged in his studies for several hours during the weekdays, *a-chach-v'chomer* (how much more so) should she not complain that on the day of Shabbos—which, in the language of the Zohar, is the source from which all the days are blessed—he extends his tefillah and his *hisbodedus* (seclusion) with the Ribono shel Olam. As is brought in the seforim, the tefillah of Shabbos includes the tefillos of all the weekdays, for the content of their middle blessings is not only "He who graciously grants knowledge to man," but also "Hear our voice," etc.
+
+What alarms me most is that you write that your sister is currently in her parents' home. To our great sorrow, we have seen tangibly that when people interfere between a husband and wife—even the closest relatives (and sometimes there is even more fear of damage, *chas v'shalom*, than of repair; specifically, close relatives, being a party and biased toward one of the aforementioned, have more potential to cause damage than the intervention of a stranger)—the lengthiness of this is superfluous. My hope is that these few lines, small in quantity, will act to repair the situation as soon as possible, and that you will bring me good tidings.
+
+Regarding what you wrote about yourself: that although it is difficult for you to have *kavanah* when reciting Tehillim during *Pesukei D'zimra*, etc., and you do not feel *chayus* (vitality) in the blessings of *Shemoneh Esrei*—you should delve into the teachings of the Baal Shem Tov, especially regarding the matter of *hashgacha pratis* and the *hiskashrus* and unity between every individual of Yisrael and the Ribono shel Olam, which are explained in many places in the teachings of Chassidus. By habituating yourself to these thoughts, it will be engraved in your soul—not only in understanding, but also in feeling—in the language of Rabbeinu HaZaken in the *Tanya Kadisha*, beginning of Chapter 41: that the *Ein Sof*, *Baruch Hu*, leaves the higher and lower beings and unifies His *Malchus* upon the people of Yisrael, and upon him specifically, etc., and "Behold, Hashem stands over him," etc., and guides him and bestows all his needs and the needs of his household. Then, it will be easy for you to have *kavanah* in the middle blessings, and *a-chach-v'chomer* in the first three and the last three.
+
+With blessings, awaiting good tidings.
+
+## 321
+
+B"H, 12 Cheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of Parshas Lech Lecha.
+
+I was astonished to read in your letter that although you were in Russia from 5675 and were in contact with anash, you still do not daven—as it appears from your letter—according to Nusach Ari. This is despite the fact that it is well-known that this is one of the ten merits that the Alter Rebbe counted regarding the Siddur Nusach Ari. Consequently, I see no room for doubt regarding your conduct in this matter moving forward; you must daven using Nusach Ari.
+
+Regarding your question about learning before davening: one of the essential studies must be the study of Chassidus. Regarding the study of Nigleh before davening, see Likkutei Torah, Devarim, page 96b.
+
+In accordance with your request, I will mention all those you wrote about at the Tziyun HaKadosh of my father-in-law, the Rebbe, of blessed memory. Everyone is in need of this, and it goes without saying that regarding a shidduch for your son, may he live, one must act energetically; when one acts, Hashem Yisbarach grants success.
+
+With blessings for parnassah and success in the above.
+
+#### ***321***
+
+**One of the ten merits:** Likkutei Sichos, Vol. 4, 5718, p. 2.
+
+## 322
+
+B"H, 12 Menachem Av, 5715
+Brooklyn, N.Y.
+
+Greetings and blessings!
+
+In response to your letter of the 3rd of this month, in which you ask regarding the possibility now of moving your business to a more central location, but that doing so will involve taking on further debt.
+
+In my opinion, despite this, the matter is worthwhile, in order to expand the vessels for parnassah, and then the verse is fulfilled: "Open wide your mouth and I will fill it." This is on the condition that you also expand the channels of parnassah—namely, through matters of hidur mitzvah, and in the conduct of all those who depend on the parnassah of this business, each according to their situation and standing.
+
+You should certainly explain to each and every one of them the great importance of hidur mitzvah in general, and especially in their current situation. May Hashem grant you success in your parnassah, with tranquility, in a kosher manner, and with abundance.
+
+Enclosed is a check from one of the funds of my revered father-in-law, the Rebbe, of blessed memory, the proceeds of which you should invest in the expenses of moving the aforementioned business, and may it bring added success.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+A. Quint
+Secretary
+
+#### 322
+
+Printed in Likkutei Sichos, Vol. 19, p. 487, and completed based on a photocopy of the letter.
+
+## 3223
+
+B"H, 12 Mar-Cheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing and refined, engaged in communal needs, R' Shimon, may he live:
+
+Peace and blessing!
+
+It is a great wonder that for a very long time, no letter has been received from you, nor from your colleagues in Tzeirei Agudas Chabad in Jerusalem, may it be rebuilt and established. You certainly should have written in detail and at length about how the days of the month of Tishrei were spent—both the Yomim Noraim and the joyous days. In all times, one is thirsty to receive good news, and all the more so in these days of ours. I hope that you will rectify this at the earliest opportunity. You should also urge your aforementioned colleagues that each one should write about his personal affairs, and even about general matters, so that it does not become a case of "a pot belonging to partners" [where no one takes responsibility].
+
+In continuation of the conduct during farbrengens—which is especially prevalent during the farbrengens of the month of Tishrei—I am copying here, in brief, a letter to the leaders of Anash in another location. It is a matter of the utmost necessity that the joy of Shabbos and Yom Tov should not be only in the beis medrash and the place of the farbrengen, but also in the home of every member of Anash.
+
+Consequently, the farbrengens should be arranged in such a way that there is time during the *eis ratzon* of Shabbos and Yom Tov to explain these matters to one's wife and children in a manner appropriate for them and in terms they can understand. Surely there is enough time during these days both for a proper farbrengen and to gladden one's wife and children as is fitting. It is understood that I cannot give specific instructions to each individual, as the matter depends on their personal nature, but certainly everyone can learn from this point a mode of conduct regarding himself and his home...
+
+It is understood that my intention in this is for all of Anash, and therefore you have permission to publicize the content of these lines among your colleagues. Furthermore, it is obvious that I do not mean at all that they should be immersed in the affairs of the world or the assumptions of the world. Certainly, a Chassidishe chinuch must and should influence the aforementioned matters—that is, the length of time spent in davening, at farbrengens, etc. But after all that, there is a possibility—and it is a necessity—that the wife and children should also participate, through their full agreement, in these matters. With a little bit of *hisbonenus*, one can find the right words to explain it to them...
+
+With blessing,
+
+**M. Schneerson**
+
+## 324
+
+324
+
+B"H, 12 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+After the interval, I was pleased to receive your letter from 3 Cheshvan, in which you write—albeit very briefly—about the activities among the military personnel in the weeks that have passed. Surely, in the future, you will write with more detail.
+
+(Perhaps there is room to suggest that, following your lectures, those who wish to may correspond with this office to clarify any questions that may be troubling them, etc. It is understood that you must also provide assurances [baveren] on the spot that there is no room here for fundraising, etc. It is also understood that all of this must be done on your own initiative, and not as a formal mission from here; simply mention that you know of several people who conduct themselves in this manner, and although the response is sometimes delayed, they do receive a response.) Also, if you find it appropriate, you may give a Tanya to some of those who excel in matters of Yiddishkeit, etc., among the military personnel, in addition to providing Tanyas for the camps' clubs or for the military personnel's libraries, if such institutions exist in the appropriate location.
+
+It is surprising that you do not mention anything regarding the health of your wife, may she live and be well; surely everything is in order and in peace.
+
+In the margin, you will find a list of the *Machanaim* booklets that were received.
+
+With blessings for success in all of the above.
+
+P.S.
+The following *Machanaim* booklets were received: Edition for 21 Menachem Av 5714, Menachem Av 5709-5711, Haggadah Shel Pesach 5708-5711. Weekly issues: 27-31, 34-37. Booklets for *Yemei Moadim* and *Chagei HaShanah*: 4-18, 23. *Sukkos* and *Kinos* - 5709.
+
+The booklets 1-26 have not been received until now.
+
+## 325
+
+B"H, 12 Menachem Av, 5715
+Brooklyn.
+
+To the esteemed and distinguished individual, etc., R' Nosson Dovid, may he live.
+
+Peace and blessing!
+
+In response to your letter, in which you write that you merited to know the Rebbe, the father of my father-in-law, the Rebbe, of blessed memory, in Rostov, etc., and that you also merited to be present at the Purim seudah in the year 5704—surely this memory has an effect upon you in matters of thought, speech, and action. For the sight of the faces of tzaddikim, and all the more so when one also recalls their words of Torah, penetrates and reaches the very point of the soul, before the heart.
+
+I am writing to encourage you to influence your surroundings in this regard as well—namely, to bring them closer to Yiddishkeit, with the primary focus being the fulfillment of mitzvos maasiyos in daily life. It is a well-known adage of the Rebbe, which we heard many times from his son, my father-in-law, the Rebbe, that it is a chazakah that propaganda [outreach] does not return empty. I look forward to hearing good news from you regarding the practical implementation of all the above.
+
+Furthermore, I am sure you will inform me of your family situation and how you came to be in your current place of residence.
+
+With blessings for success in all the above,
+
+On behalf of the Rebbe, shlita,
+Secretary
+
+P.S.
+As per your request, the Sefer Tanya Kadisha has been sent to you, along with some sichos, via regular mail. I am sure you will confirm their receipt.
+
+#### 325
+
+R' Nosson Dovid: Rosenblum, Buenos Aires. Another letter to him—see below, 322.
+
+326
+
+13 MarCheshvan, 5715
+Brooklyn
+
+To the Honorable Rabbi and Chossid, distinguished in Torah and fear of Heaven, engaged in communal affairs, etc., Rabbi Shlomo Yosef Zevin,
+
+Greetings and blessings!
+
+I have just received your letter from Erev Shabbos Lech Lecha, as well as your previous letter received a few days ago, and yesterday—the first volume of the Talmudic Concordance.
+
+At first glance, in some areas, a purely external, technical approach is felt, without entering into the inner essence of the matters. Among these are subjects that are matters of dispute (regarding the root of the words, interpretations, etc.) without any note being made of this. Perhaps the author explained all of the above in his previous concordance volumes—on the Mishnah and Tosefta—which I have not seen. However, it is understood that all this is insufficient, for in all times, and especially in our days, one cannot rely on the assumption that people will certainly search in other books for an interpretation of a difficult point. (And the rule is well-known, that the *Acharonim* must explain their own words.)
+
+It is understood that all the above is merely a complaint as to why things were not presented better than they were, but as a practical book for searching for a word or a statement of our Sages, there is, perhaps, an advantage to this approach, since the person searching does not always know the inner essence of the matters, and in our days, it is possible that he might not even know the meaning of the words and only the combination of the letters.
+
+In any case, many thanks to you for the trouble of purchasing and sending this book. "The wine belongs to the owner, but the credit goes to the one who pours it" (see *Sefer HaMitzvos* of the Tzemach Tzedek, *Mitzvah* Chapter 3).
+
+Moving from one subject to a similar one, I will take the liberty of troubling you with the following: It is surely known to you from what was discussed with the distinguished Chossid, engaged in communal affairs, Rabbi Avraham Aharon Gorodetsky, regarding the shipment of books from the Mosad Harav Kook publishing house. To this point, the matter has not been brought to fruition, even though Rabbi Gorodetsky told me that he wrote to the person with whom he spoke regarding how to bring the matter to fruition. And although they wrote to our relative, the distinguished Chossid Rabbi Refoel Zev Slonim, that he should take upon himself the trouble of packing the books, etc., and the shipping expenses (which, of course, will be reimbursed with many thanks), nevertheless, since there are many "prosecutors" between here and the Gichon River, etc., my hope is that you will find a suitable way to ensure that this matter is brought to actual fruition. Many thanks in advance.
+
+I was pleased with what you wrote regarding the efforts of the family of the late Rabbi Aharon Yosef Rablin to publish his manuscripts that have not yet seen the light of print. It is self-evident that this is a good deed, and surely they will arrange the matters so that they also have external beauty. In addition to the concept of "This is my G-d and I will beautify Him"—to beautify before Him, etc.—due to the circumstances of the time, this is the way to draw many of our Jewish brethren to also look at the face of the book and contemplate its content. For someone like you, elaboration on this is surely superfluous. It is understood that by "external beauty" I mean not only the externality of the externals—the print, the paper, etc.—but also the "ears for the vessel," such as cross-references, citations, etc.—the externality that is within the internality. Since they are apparently consulting with you, and you have influence over them, surely the above will also be arranged. In this regard, I would note that since his book *Oholei Yosef* has long been out of print, and on the other hand, there is not much trouble in reprinting it via photography, perhaps they could publish that book as well.
+
+Surely the family of the late Rabbi Aharon Yosef has the original manuscript in their possession as well. A few weeks ago, I received a gift from someone in the Holy Land—a page of his handwriting—and he writes to me that this is the original handwriting of the author of *Oholei Yosef*. When I asked how it came into his possession, he answered me that he bought it several years ago from a bookseller and does not remember the details.
+
+Regarding the matters of *Toras Emes*, I was pleased with what you wrote that the situation of the Yeshiva has improved, and in spirituality as well—both in matters of Torah and in matters of prayer and fear of Heaven. May it be the will of Hashem that the situation continue to improve and that you go from strength to strength in holiness. This itself will also expand the material matters, similar to what our Sages said regarding the "Land of the Deer" (*Eretz HaTzvi*), which refers to the Land of Israel in the physical sense. Since the physical is derived and comes from the spiritual, it is certain that this is through Torah and its matters, which are the Land of Israel in the spiritual sense...
+
+Regarding what you wrote about the *Chazit Datit* (Religious Front), it is understood that the matter is very worthwhile. As for your writing that you are among the "small of faith" in this, perhaps the situation has changed from what it was two years ago. Back then, there was pressure on the Charedi parties from within—meaning, the Charedim themselves—and consequently, the party leaders did not want to listen to this. This is not the case now, when the pressure and coercion come from the outside—meaning, from the leftists. There is more and more room for them to forgo the perceived profit of being a leader of this or that party, so as not to damage the religious situation in the Holy Land.
+
+Best wishes for *Mazal Tov* on your announcement that the sixth volume of the Talmudic Encyclopedia will appear shortly. May it be the will of Hashem to grant you great success in the continuation of the volumes, and may the merit of the many depend upon you.
+
+By the way, during the *Simchas Beis HaShoeivah* this year, I also looked at what you wrote in your book *HaMoadim BaHalacha* and the citations there, especially regarding the matter of the water libation (*Nisuch HaMayim*). I saw that you overlooked the *Shu"t Avnei Nezer*, Part 2, Siman 495 (and it is not like the emendation of the Gra in the Tosefta).
+
+I do not know clearly the benefit of what I am writing below, but nevertheless, I cannot restrain myself. It begins with the statement of our Sages, which is brought to practical law in the Rambam, that one should not permit three things—"the court calls it permitted" (*Avodah Zarah* 37a; *Mamrim* 2:8). In contradiction to this, everywhere one finds an article—and sometimes even in Torah journals—from the honorable Rabbi... it includes some sort of leniency, and sometimes a very surprising leniency. I do not know who can influence the aforementioned in such matters. Even if we were to say that all the leniencies he has published are one hundred percent clear, beyond the aforementioned statement of our Sages—which obviously speaks even of a valid and ordained court, and yet they forbade such conduct—it is possible, among one leniency and another, to also publish some letter of stringency or even prohibition, for it is impossible that there are no matters that he would forbid. Even the House of Hillel testified that in many things they are stringent.
+
+I said jokingly that because of his tendency and inclination toward leniency and permission, he has gone so far that he is the one who finds a leniency and a sort of permission... for the walking of Kohanim on the graves of the righteous, even though Rabbi Yehuda Leib of Yanovitch, etc., and also as far as I know from the Rebbes of Poland, did not find a basis for this permission.
+
+With blessings for success, and awaiting good news regarding all the above,
+
+**M. Schneerson**
+
+## 327
+
+B"H, 13 MarCheshvan, 5715
+Brooklyn.
+
+To the avreichim: ...
+
+Greetings and blessings!
+
+In response to your inquiry, conveyed through the esteemed Chossid, G-d-fearing, and dedicated communal activist, Rabbi Nissan Nemannov, regarding whether you should consider traveling to the United States or to another country:
+
+If you will listen to my opinion—which is consistent with what I have written in the past—you should contemplate the great kindness that Hashem has bestowed upon you, having granted you the merit to see the "good light" that is hidden within the Torah. This is the *pnimiyus* of the Torah, which in our generation is found and explained in the teachings of Chassidus, founded by the Baal Shem Tov, and specifically in the Chassidus Chabad teachings founded by our Rebbe, the Alter Rebbe, author of the holy Tanya—the *posek* in the *nistar* of the Torah—and the Shulchan Aruch—the *posek* in the *nigleh* of the Torah—who was the successor to his unique student and the successor to the source of the Baal Shem Tov, the Maggid.
+
+Consequently, you should utilize every moment at your disposal—that is, the time that, according to the yeshiva’s schedule, is not designated for the study of *nigleh*—to study, review, and delve into the teachings of Chassidus. And according to our Sages, "It is not the study that is the essential thing, but the deed"—to conduct yourselves according to its guidance and customs.
+
+From this, it is understood that thoughts of traveling and moving to any other place come from the *sitra achra* and the *yetzer hara*. Since the *yetzer hara* is an expert in his incitements and temptations, he cloaks himself in the guise of the *yetzer tov*, attempting to entice you by suggesting that the upheaval of travel and moving to another place will bring you benefit in your studies. However, *siyata d’shmaya* comes specifically to those who remain in the "tent of Torah," which is the wisdom of the Holy One, blessed be He. This wisdom does not provide any room for the temptations of the "old and foolish king" (provided that the person himself does not insist on it and provoke the *yetzer hara* against himself).
+
+Since we are not dealing with fools, I am confident that you will increase your diligence in the study of *nigleh* and the study of Chassidus, in the *avodah* of *tefillah*, and in the performance of *mitzvos* with *hiddur*. Then, within a short time, you will see, even with physical eyes, the good fruit of your labor.
+
+With blessings for success in Torah study and *yiras shamayim*.
+
+## 3228
+
+B"H, 14 MarCheshvan, 5715
+Brooklyn
+
+To the G-d-fearing, esteemed, and distinguished, whose work is the work of Heaven,
+Rabbi Chaim Mendel, may he live,
+
+Greetings and blessings!
+
+In response to your letter of the 8th of MarCheshvan, may it be the will of Hashem that you succeed in your work of Heaven—the supervision of the students of Yeshivas Toras Emes.
+
+It is already well-known that the responsibility of a *mashgiach* is many times greater than that of a *rosh yeshiva* or *maggid shiur*. For they must study Torah with the students and before them, and in this, there is not as much opposition from the *sitra achra*, since Torah is "bread from Heaven," and words of Torah cannot contract *tumah*; in their essence, they contain no dross. Furthermore, from the perspective of the learner, it does not always touch him as deeply, for if, Heaven forbid, he has not merited, it becomes for him [a potion of death], etc.
+
+Not so for the *mashgiach*. He must ensure that **"the Torah teaches him,"** as per the saying of our holy Nasi, that he becomes so identified with it that it is called **"his Torah,"** for the Torah and Yisrael are one. Against this, the *yetzer hara* fights—pulling the *nefesh habehamis* along with it—with all its might. But since, as our Sages have said, even the head of a small irrigation ditch is appointed from Heaven, he is certainly given the strength to fulfill this role, and the matter depends only on his good will. May Hashem grant that after a short time you will be able to say, "See the growth I have cultivated."
+
+With blessings, and awaiting good news.
+
+P.S.
+It is surely unnecessary to remind you that just as in the vitality of the physical body—even the vitality of the body itself—it is strengthened and increased through the revelation of the vitality of the *neshamah*, so too is it regarding the *gufa d'oraysa* (the body of the Torah) and the *nishmasa d'oraysa* (the soul of the Torah), as is understood.
+
+## 229
+
+B"H, 14 Menachem Av, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of the 10th of Menachem Av, thank you for the good news regarding your success in acting as a good shaliach to return [the individual]—may he live and be well—to his source and his root, by having him return to being a shomer Shabbos. According to our Sages of blessed memory and the ruling of the Mishnah, "one mitzvah leads to another," and certainly other spiritual matters will improve for the aforementioned individual, although it is understood that he, for his part, must conduct himself with extra caution in this regard until he is properly strengthened in the matter of keeping Shabbos.
+
+Regarding your question as to what he should do to strengthen this, it would be good to endeavor, in a diplomatic manner, to ensure that his Shabbos and Yom Tov days are filled with content through his participation in a shiur, or through visits from friends and acquaintances, etc. In addition to this, provide him with patients [to attend to], so that in his material ledger as well, he will see an increase. It is understood that this also includes going to the beis medrash, and it would be even better if his wife—may she live—also attends. It is already known the saying we heard from my father-in-law, the Rebbe, of blessed memory, in the name of the holy Rabbi, the Maggid of Premishlan: "When one is tied above, one does not fall below." From this it is understood that the more one's hiskashrus in matters of above increases, the more the aforementioned concern will diminish.
+
+With blessings for success in these matters in general, and regarding your efforts to travel here in particular.
+
+#### ***229***
+
+**Ruling of the Mishnah:** Avos 4:2.
+
+**Saying... of Premishlan:** Likkutei Dibburim Vol. 2, p. 571a.
+
+## 33
+
+B"H, 14 Mar-Cheshvan, 5715
+Brooklyn
+
+To the esteemed, G-d-fearing, and scholarly R' Yechezkel, the Shochet and Bodek, may he live.
+
+Peace and blessing!
+
+In response to your letter conveying the news of your son, Yisroel, may he live, reaching his fourth year.
+
+May it be the will of Hashem that, in accordance with what is written in Midrash Tanchuma—and see also the beginning of Hilchos Talmud Torah by our Alter Rebbe, as well as Shulchan Aruch Yoreh Deah, section 245, paragraph 5 in the Rema—after the fourth year, when "all its fruit shall be holy" as his father sanctifies him to Torah, "praises to Hashem," then from the fifth year and onwards, you will continue this holiness in his education. May you and your wife, may they live, raise him—along with all your children, may they live—to Torah, to the chuppah, and to good deeds.
+
+With blessing.
+
+## 331
+
+[15 Menachem Av, 5715]
+
+In response to your letter, as you requested, I will mention you at the Tziyun of my father-in-law, the Rebbe, of blessed memory, for a good shidduch, both materially and spiritually, in the near future. According to our Sages (Kiddushin 30b), "See life with the woman you love"—which refers to the study of Torah, while also not departing from the literal meaning of the verse—it follows that by increasing your Torah study, this increase will also hasten the matter of your shidduch. And although the fulfillment of mitzvos in general, and the study of Torah in particular, must be done with kabbalas ol, because this is the will of the King of Kings, the Holy One, blessed be He, it is nevertheless known that every single one of the mitzvos of the Torah has a unique segulah. And in this specific instance, there is the connection between the study of Torah and the aforementioned matter, as stated in Masechta Kiddushin there.
+
+#### ***331***
+
+Printed in Likkutei Sichos, Vol. 24, p. 455.
+
+## 332
+
+B"H, 16 MarCheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and learned, etc.,
+R' Avraham Sender, may he live, Shochet u'Bodek
+
+Peace and blessing!
+
+In response to your letter of 2 Cheshvan—you surely received my letter along with the booklet in due time—I also saw Hashgacha Pratis in that precisely during these days I happened to have a copy of a maamar by the Tzemach Tzedek. Since you wrote to me regarding the matter of "Do not cast us away" (see Shulchan Aruch Orach Chayim, beginning of 271; in Shulchan Aruch Admur HaZaken, end of 167) in our old age, I also came across an explanation of this in the aforementioned maamar there, and since you were the cause of this, I am transcribing these lines, and this is the gist of the matter.
+
+In Ohr HaTorah on Yisro, in the name of the Baal Shem Tov, it asks: Does one not need His help during our youth? The Tzemach Tzedek answers (in the maamar *V'Hashem Holech*) that it is based on the words of our Sages (Bava Kamma, end of chapter 8), "When I was young..." and Devarim Rabbah, Parshas Shoftim, chapter 7: "For Israel was a child, and I loved him"—in a child, there is more bitul than in a wise man.
+
+With blessings for a good Shabbos.
+
+***
+
+**332**
+
+**R' Avraham Sender:** Nemtsov. Additional letters to him appear above in 2884, and in the notes referenced there.
+
+**In the maamar *V'Hashem Holech*:** Ohr HaTorah, Beshalach, beginning of page 883.
+
+## 333
+
+B"H, 16 Menachem Av, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+Through your uncle, the esteemed Rav, G-d-fearing and scholarly, who is involved in communal needs, [Name] shlita, I was informed of the state of your health, along with a request for a blessing. Please G-d, when I visit the holy resting place of my father-in-law, the Rebbe, of blessed memory, I will mention you for an improvement in your health. It is surely unnecessary to remind you that Hashem is the Healer of all flesh and performs wonders, as per the phrasing established by the Anshei Knesses HaGedolah in the morning blessings. Since they established it as a blessing involving the mention of Hashem’s Name and Kingship—even though the rule is that in cases of doubt regarding blessings we are lenient—here there is certainly no doubt at all (and this is similar to what our Alter Rebbe, the author of the Tanya—who is the authority in the hidden aspects of Torah—and the Shulchan Aruch—the authority in the revealed aspects of Torah—writes in his Iggeres HaTeshuvah, chapter 11; see there). Consequently, when you strengthen your trust in Hashem, this in itself brings about an improvement in health, in addition to added success in medical matters. The conduit and vessels for this are Torah and mitzvos in general, and an increase in them specifically during times of need and distress. You will surely act in this regard in a manner befitting your standing and situation, and "whoever adds, is added to."
+
+You should certainly keep the three daily study portions that are incumbent upon every soul, as established by my father-in-law, the Rebbe, of blessed memory: 1) Reciting the daily portion of Tehillim—as Tehillim is divided for the days of the month—each day after Shacharis. 2) Studying the portion of the Chumash with Rashi’s commentary for the weekly parsha—on Sunday from the beginning of the parsha until the second aliyah, on Monday from the second aliyah until the third, and so on. 3) Studying the daily portion of Tanya—as the Tanya is divided for the days of the year. May Hashem grant you success.
+
+With blessings for an improvement in health, and awaiting good news,
+
+On behalf of the Rebbe, shlita
+
+## 334
+
+B"H, 16 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter from 2 Vayeira: Regarding your first question concerning what occurred to you and your wife, *tichyeh*, both you and your wife should each set aside a sum of twenty-six and two-thirds *sela* for *tzedakah* (you may clarify with a *kohen* how much a *sela* is in your local currency, as the *pidyon haben* is five *selaim*). It is understood that this does not mean you must give it all at once; it may be spread out over a month or even longer. There is a merit in giving in many installments, as explained in *Iggeres HaKodesh* by our Alter Rebbe regarding the interpretation of the Mishnah, "Everything is according to the amount of the deed" (*Iggeres HaKodesh*, Epistle 21).
+
+Regarding the forty meals—and it is understood that these do not need to be consecutive, day after day, but may also be spread out over several weeks—you should delay the meal by approximately twenty minutes. Your hearts should be confident in Hashem that you will be able to continue serving Him, *yisbarach*, with joy. It is well known that the service of Hashem is "in **all** your ways," as explained at length in Rambam, *Hilchos Deios*, Chapter 3, and in *Tur* and *Shulchan Aruch*, *Orach Chayim*, Section 231.
+
+Regarding the ruling of the Tzemach Tzedek that if, according to a doctor’s opinion, there is danger to the woman, it is permitted to use a *moch* (contraceptive barrier): it is understood that he does not need my approval. Since the doctor’s opinion is as stated—that it is harmful to her health—it is permitted to do so. Regarding what you wrote about purchasing certain devices and providing their names in English: their nature is not known here, but the point is that this should not change anything for the husband.
+
+Consequently, if it is a matter of a covering or the like, it should not, *chas v'shalom*, be placed on the organ, but rather inserted into the womb.
+
+This is an opportunity for me to urge you once again that it is essential for you to have a set time each day, if only for a few moments, to study the inner dimension of Torah, which in our generation has been revealed and explained in the teachings of Chassidus. It may well be that all of the above is an additional hint regarding the necessity of this study for you, and further elaboration is unnecessary.
+
+With blessings for good tidings regarding the above.
+
+## 335
+
+B"H, 18 Menachem Av, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I have recently learned that you have been meeting from time to time—and of late, quite frequently—with Mr. ..., and apparently also with his wife, may she live and be well. While it is certainly unnecessary to urge you to influence both of them in an appropriate manner, time and again, until their home becomes a Chassidishe home—as you surely recognize the immense importance of such a matter in general, and especially regarding the aforementioned individual, who himself has many people he influences, making this a matter that affects the many—nevertheless, since I have not heard anything from you regarding this for some time, I have come to stir and urge you once again, and yet again, regarding the necessity of this matter.
+
+As for the melancholy thought that perhaps the aforementioned might suspect that you are trying to influence him (and in truth, what is the harm if one is suspected of such things? On the contrary!), there are surely ways to minimize such suspicion. In any event, one must not lose the opportunity to bring the aforementioned closer to Chassidus, its guidance, and its customs, and even to Yiddishkeit in general, in which he also needs to fulfill his obligations. To my regret, this is not only regarding his views, where he lacks *der gantzer shtel* (a complete foundation), but also regarding practical matters. From what I gathered of his wife, even though I only saw her once, my hope is that she will not only refrain from opposing this, but will also help, at least in the course of time. In this, surely your wife, may she live and be well, can be of assistance, and perhaps even more so than you.
+
+I await good news regarding the above, as well as regarding your own personal matters.
+
+## 33
+
+B.H., 18 Menachem Av, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+It was a pleasure to receive your letter in which you finally write of your good deeds in your environment to bring them closer to Torah and mitzvos. Regarding your statement that you are doing this according to your meager strength, it is well known—as explained in the sefarim in general and in the sefarim of Chassidus in particular—that every single Jew is a shaliach of the Ribono shel Olam, the Creator and Guide of the world, to make for Him, yisbarach, a dwelling place through the dissemination of Torah and mitzvos. Rabbeinu HaZaken—the author of the Tanya, the authority on the hidden aspects of Torah, and the Shulchan Aruch, the authority on the revealed aspects of Torah—writes that in this regard, the ruling of our holy Torah applies: "A person’s shaliach is like him"—the "Supernal Man" upon the Throne, as it were (see Likutei Torah, beginning of Parshas Vayikra). Consequently, lofty powers have been granted to him. If only he would utilize them to their fullest, he would change his environment—slowly, perhaps, but ultimately to a very great degree. This depends on nothing but his own will.
+
+It is surely unnecessary to awaken you to the absolute necessity in our generation to also study the pnimiyus haTorah as explained in the teachings of Chassidus, for it is specifically through this that "the children of Israel will emerge from exile with mercy," as Rav Chaim Vital elaborated in his introduction to Shaar HaHakdamos, and as Rabbeinu HaZaken writes in his Iggeres HaKodesh, Epistle 26, and in many other places. Just like the rest of Torah, this part of Torah is also "not hidden from you, nor is it far away... but the matter is **very** close to you, in your mouth" (meaning the actual study), "and in your heart" (until it enters the feeling of the heart), "to do it" (adding vitality to daily life, even to practical matters). Since you are a rav in Israel, the merit of the many depends on you, for through you, many others will also be awakened to this study and these ways of conduct.
+
+As you requested, I will mention all those you wrote about at the holy resting place of my father-in-law, the Rebbe, of blessed memory, at an auspicious time.
+
+I await good news regarding all of the above.
+
+## 337
+
+B"H, 20 Marcheshvan, 5715
+Brooklyn.
+
+To the esteemed and distinguished individual, occupied with communal needs, R' Yitzchak Neta, may he live.
+
+Peace and blessing!
+
+...Regarding the question of your father mentioned above, as to whether he should relocate to a place of Torah and yiras shamayim as his wife requests, especially since his children are at the age of chinuch: This request is correct, particularly when it comes from the mother of the children, the pillar of the home. May He who sustains and provides for all with food, clothing, and shelter provide them with what they need in their new location.
+
+And last but not least, thank you for the precious pearl, the story from the Rebbe Rashab, of blessed memory, which was found in his father’s will. The timing is significant, as your letter was received on the eve of 20 Marcheshvan, which is the birthday of the Rebbe Rashab, and a word spoken at the right time—how good it is. And thank you if, as you concluded in your letter, you will transcribe the remaining stories found in the aforementioned will. It would be best if you could indicate in connection with each story from whom he heard it—whether from the person involved himself, etc.—if you have this information as well...
+
+With blessings for good news regarding all the above.
+
+#### ***337***
+
+**R' Yitzchak Neta:** Niv. Another letter to him appears later, 349.
+
+**His father:** R' Menachem Mendel Novikov.
+
+## 333
+
+B"H, 20 Marcheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 11 Cheshvan, in which you write that your financial situation is difficult and you attribute this to the fact that agriculture requires capital, etc.
+
+However, this is generally not understood, as in many cases in Eretz Yisrael (may it be rebuilt and established), one can manage in agriculture even without capital. It is a wonder that the truth is not seen, notwithstanding that I have already written several times to the people of the village in general, that according to the saying of the Tzemach Tzedek, "Aleph-Beis is unity, blessing," and the greater the unity—not only in spiritual matters but also in material matters—the greater will be the blessing of Hashem, not only in material matters but also in spiritual matters. And the very fact that achieving this unity is difficult is further proof that this is where the issue lies.
+
+It goes without saying that I do not wish to emphasize this regarding you specifically, but this is relevant to the affairs of the village in general, and consequently, it is relevant to every individual part of that collective. Therefore, it does not seem right to me that you should liquidate what you have received from the Agency, etc., especially after the difficult years have passed and they are already behind you...
+
+With blessings for success.
+
+339
+
+B"H, 20 Marcheshvan, 5715
+Brooklyn.
+
+To the G-d-fearing, esteemed, and distinguished, who engages in communal needs, R' A. Shklovsky, may he live.
+
+Peace and blessing!
+
+It was with pleasure that I received your letter from Parshas Vayeira, in which you write in some detail regarding the situation of the Chabad shul in Petach Tikvah. Although, as you write, there are certain details that still require improvement, we know the promise of Hashem: "Open for Me an opening the size of a needle's eye, and I will open for you an opening the size of a grand hall." If the gabbai and the mispalelim will make the effort from their side, Hashem will certainly grant success. This is especially true given that regarding every Jew it is said: "The second soul in Israel is literally a part of G-d above." The language of the verse (Iyov 31:2) is "a part of G-d above," and Rabbeinu HaZaken adds the word "literally" (*mamash*) so that this should manifest in actual practice—not only in thought and speech, but in action in daily life, and in all the matters you mention in your letter.
+
+As is stated in the sefarim, and as Rabbeinu HaZaken included in the Siddur, the preface to tefillah is "Love your fellow as yourself." If the gabbai looks at the mispalelim with this preface, and the mispalelim look at the gabbai according to this aforementioned preface, it is a certain path to ensure that there will be "Bless us, our Father," because "we are all as one," as is alluded to in Tanya, Chapter 32. And it should be, specifically as he concludes there, "with the light of Your countenance." The intention here is also that one should demand *ha'aras panim* (a shining countenance) from one to the other, for "as water reflects the face to the face, so does the heart of man to man."
+
+To add at least a note regarding the affairs of the Chabad shul, I have requested that they be given, as a gift from Kehot, several Sifrei Chassidus and Tehillim that were printed under the name *Ohel Yosef Yitzchak*, in the name of my father-in-law, the Rebbe, of blessed memory.
+
+As the month of Kislev—the month of redemption—is approaching for all of Israel for good and for blessing, you, as gabbai, should convey to all the mispalelim, their families, and all that is theirs, that it should be the will of Hashem that "He has redeemed my soul **in peace**." As the reason is stated: "for there were many with me"—that even when there is external friction, internally and in truth, "they were with me" (as is alluded to in Yerushalmi, Sotah, Chapter 1, Halacha 8), all of them complete in one opinion, for one Torah and for one G-d. This is explained in the teachings of Chassidus in many places.
+
+## Gimmel-Mem
+
+[20 MarCheshvan 5716]
+
+...And regarding the *agan hasahar* (the basin of the moon), which is like a half-round threshing floor with its face turned upward to cover and conceal, etc., from the *chitzonim*—and it, the essence and the core, is a point in the center—this will also be an *agan hasahar* in that the temperament will not lack the ability to aim for the point of the *halacha* without deviations due to the *yenika* (nurturing) of external matters. (See *Maorei Ohr*, system of *Agan Hasahar*, where it points to a path in the holy *Zohar* and *Zohar Chadash*; see also *Pri Etz Chaim*, *Shaar HaTefillah*, Chapter 5).
+
+See the translation of *Shir HaShirim* 7:2.
+
+#### ***Gimmel-Mem***
+
+Published in *Likkutei Sichos*, Vol. 24, p. 366.
+
+## 341
+
+B"H, 21 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of the 14th of MarCheshvan and the one preceding it, in which you write regarding the state of Chabad "activism" in various areas—to quote a saying, it is a common expression of the esteemed Chossid, etc., etc., Rabbi Sholom HaLevi Levitin: "When one finds even good excuses, in practice, nothing will come of it." And this is the case here as well. As I have written many times, for me, it makes little difference who is to blame and who is right, for the instruction of our holy Nasi is that we are **"workers of the day,"** to make things bright. And the essence of being a "worker" is to see to it and strive that the work actually gets done. Even if you were correct in all the claims you wrote in your first letter, you would still not be utilizing the possibilities available in Eretz Yisrael, may it be rebuilt and established. Especially since there are many responses to those claims.
+
+The main point—the essential point—is that each of them looks at the matters that need to be accomplished as if they are an outsider. Consequently, if they are invited, or at least if their instructions are followed in full, they participate. But if not, then what more is there for them to do? And they say, "I have saved my own soul."
+
+The parable is already well-known regarding the difference between an employee or a hired hand who does a task **faithfully**, and the involvement of a proprietor in that same matter. The former, since they work faithfully, do everything they can with their revealed powers, and then go to sleep in peace, calculating within themselves that they have **done their part.** Not so the proprietor—who cannot sleep in peace, even if he has done everything in his power. Consequently, hidden powers are revealed within him, along with various innovations, and so on. And in truth, I must say that the work of... for the time being—I do not see that they are working even as a faithful employee, meaning, to the full extent of their ability. I ask for his forgiveness for expressing my opinion without any embellishment.
+
+I was pleased by what you wrote regarding the dedication of... to the work in... However, I see from your letter that everyone is satisfied that the aforementioned is working with dedication, *and they grant him the entire reward—for himself alone.* And no one helps him. I have already grown weary of repeating, time and time again, that every single day that passes, *one lets slip opportunities to do for the Alter Rebbe, for the Mitteler Rebbe, for the Tzemach Tzedek, and for all our Nasi’im who fill their place.* And it is a loss that cannot be recovered.
+
+Since you do not mention anything regarding your health, nor the health of your wife, may she live, I assume everything is in order and peaceful. May Hashem, blessed be He, instill peace among Anash, and may this be a vessel not only to receive the blessing of the G-d of Heaven within it, but also to draw down the blessing of Hashem—to each one according to their needs, in body and soul.
+
+With blessings,
+
+**M. Schneerson**
+
+## 342
+
+B"H, 21 MarCheshvan, 5716
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter in which you write about the situation in your home regarding *shalom bayis*, continuing our previous conversation on this matter, and asking for my opinion in light of your current knowledge: In my view, it is clear that the situation depends on the goodwill of both parties. In the vast majority of cases regarding *shalom bayis*, it depends more on the wife than on the husband. Despite all the matters you write about, I remain firm in my previous opinion that with your goodwill, you can, together with your husband *shiy*, strengthen your home with the vessel that holds the blessing of the Ribono shel Olam—which is peace.
+
+Although our Sages have already said that the temperaments of people are not alike, we know the instruction of the Torah HaKedosha, the Torah of Life, that every person must overlook their own nature. When you take into account that your husband, the Rav, works hard to develop the... that he founded, and to grow it—which, under current conditions... is difficult work that exhausts both the body and the soul—it is no wonder if he is irritable and sometimes reacts to matters more sharply than necessary. If you, for your part, react to all his behaviors in a completely different way, there will be peace in your home. Consequently, blessing will also dwell there, regarding livelihood and regarding the upbringing and education of all your children, may they live to Torah, to the chuppah, and to good deeds. Since you write that some time ago you both visited Rabbi... together and the matter remained unresolved, in my opinion, it would be good for you to visit him again as soon as possible, and specifically both of you together. May it be the will of the Ribono shel Olam that through the multitude of counsel, you will find the way for peace to come to your home as soon as possible.
+
+The blessing of our Sages is well known: "If a man and woman are worthy (the plural form implies that the matter depends on both of them), the Shechinah dwells between them." The Ribono shel Olam has already promised: "Open for Me an opening the size of a needle's eye, and I will open for you an opening the size of a great hall."
+
+The conclusion from all of the above is that a woman, in Lashon HaKodesh, is called *akeres habayis*—the essence of the home—and the conduct of the home in general, and the quality of peace that dwells within it in particular, depends primarily on her. There is nothing that can stand before the will. I do not mean by this, as you expressed in your letter, to suffer tribulations—*chas v'shalom*—merely to remain married, but rather to overcome the incitement of the *yetzer hara* and to build a home together in a good and auspicious hour, full of peace and blessing, and to influence the environment in this direction as well.
+
+I look forward to hearing good news that you have decided with maximum resolve to do everything that depends on you to fulfill the above, and may the Ribono shel Olam grant you success.
+
+With blessings.
+
+## 343
+
+343
+
+B”H, 21 Menachem Av, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter regarding the differences of opinion you had with Anash with whom you spoke, concerning the understanding of concepts in Maamarei Chassidus. Specifically, regarding the concept of Tohu and Tikun, where your opinion is that it exists from the *rish kol hadragin* (beginning of all levels) until the *sof kol hadragin* (end of all levels), and you explain this with appropriate interpretations, yet not everyone agrees with this explanation.
+
+Indeed, in the vast majority of concepts that exist in general, they exist from the *rish kol hadragin* until the *sof kol hadragin*, for there is a *Seder Hishtalshelus*, where one thing evolves from another.
+
+It goes without saying that in every place and level of *Hishtalshelus*, it is in a manner that is appropriate and fitting for that place and level. Similar to Avraham Avinu, whose essence is the *middah* of *Chesed* of *Atzilus*, and yet he said, "And I am dust and ashes," where the difference is not only in quantity but also in quality.
+
+One can also derive an understanding of this from the statement of our Sages, "The light that was created on the first day, Adam HaRishon could see from one end of the world to the other," where the meaning is as it is literally understood. Chassidus explains the deeper meaning of this, that this refers to *b'alma d'isgalya* (the revealed world) and *b'alma d'iskasya* (the hidden world), which is an entirely different matter than the light below, with which one sees only with physical eyes and in this physical world. Both of these matters are included in the aforementioned statement of our Sages.
+
+See also the *Reshimot* of the Tzemach Tzedek to *Megillas Eichah*, page 26 and onwards, regarding the explanation of the concept of a lion in many different levels that are far from one another, from one extreme to the other.
+
+Nevertheless, one must not forget that when one studies a concept, one must first study it with its simple interpretation, and only afterwards think about how this concept exists in a higher world and in a lower world.
+
+The same applies to the concept of Tohu and Tikun. The simple interpretation of this part of the *Sod* (secret) of Torah is *Olam HaTohu*, which was destroyed, and this was in order to build *Olam HaTikun*, in which we currently find ourselves (although according to the *shita* of the Arizal, *Olam HaTohu* was not a physical world like the present one. And on this, the *shitos* of other *Mekubalim* differ, who hold that *Tohu* also was in the likeness of our world. See *Torah Or*, *Parshas Shemos* 51d, and *Toras Chaim* there). Thus, after studying the concept as the *pshat* (simple) part of the *Sod* in Torah, one can find the concept above this and below this. Especially regarding the *kochot hanefesh* (powers of the soul), see *Toras Chaim*, *Parshas Noach*, from page 67b at length.
+
+Surely you are aware of what is brought in many of the *sichos* of my revered father-in-law, the Rebbe, that the greatest *haskalah* (intellectual understanding) of Chassidus must bring about a "therefore" (*b'chen*) regarding *po'el mamash* (actual practice) in thought, speech, and action. And since it is not always easy to derive a *b'chen* from *maamarei haskalah* of Chassidus, especially in our generation, it is therefore a must to study *maamarei Chassidus* that are *avodah*-oriented. There, one sees the *b'chen* without extra effort, and therefore a significant part of your study is surely in *maamarei avodah*...
+
+With blessings for good tidings in all the above.
+
+## Gimmel-Mem-Dalet
+
+B”H, 22 Marcheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing and upright, involved in communal needs, R’ Yitzchak Zalman, may he live.
+
+Peace and blessing!
+
+...Your father-in-law, the esteemed Rav and Chossid, etc., R’ Sh. A., may he live, showed me your letter regarding a *paroches* inside the *Aron Kodesh*. You noted the discussion regarding this and the dispute between Tosafos and Rashi in *Megillah* 22b.
+
+However, the dispute between Rashi and Tosafos concerns only the *halachic* status of whether a *paroches* should be inside the *Aron Kodesh*, but it is not a dispute regarding the reality of the practice. Therefore, if anything, it serves as proof that such a custom existed—to hang a *paroches* inside the *Aron Kodesh*. Nevertheless, there is a concern in our times regarding hanging a *paroches* inside the *Aron Kodesh* now, even if there is also a *paroches* on the outside of the *Aron*, because this constitutes a change in the custom of the *beis knesses* of *Bnei Yisrael* in recent generations, at the very least. It is well known how much [our predecessors] were particular about changing customs, even in matters that did not involve any concern of prohibition or the like, and especially regarding the customs of the *beis knesses* in this country, which require **extra** strengthening.
+
+Since you did not indicate to which fund you are sending your check, it has been delivered to the *Lishkas HaTzedakah* (charity office), which is among the highest levels of the *mitzvah* of *tzedakah*.
+
+#### ***Gimmel-Mem-Dalet***
+
+**R’ Yitzchak Zalman, may he live:** Pozner. Additional letters to him appear above in Vol. 8, p. 419, and in the references noted in the footnotes there. See below, Gimmel-Kuf-Yud-Dalet and Gimmel-Reish-Samech-Tes.
+
+**R’ Sh. A.:** Kazarnovsky.
+
+**Paroches inside the Aron Kodesh:** In continuation of this, see below, letter Gimmel-Kuf-Yud-Dalet.
+
+## 3
+
+3
+
+B.H., 22 Mar-Cheshvan, 5715
+Brooklyn
+
+Agudas N'shei U'bnos Chabad
+Montreal Branch
+May Hashem grant them life
+
+Blessings and peace!
+
+I have received your letter and was pleased to read about the various discussions and conversations that took place during your meetings. It would be a good thing, provided there are suitable people available, if at every meeting there were also a discussion regarding the content of the weekly parsha in which the meeting takes place, as well as the parshiyos since the previous meeting, or the Haftorahs. Material for this can also be found in the talks and "shmuessen" from previous years. You should also endeavor to broaden the circle of participants in these meetings.
+
+Certainly, as we are now approaching the month of Kislev, in which the Yomim Tovim of the 10th and 19th of Kislev, as well as Chanukah, occur, the meetings of Agudas N'shei U'bnos Chabad will surely address the matters pertaining to these days. May the Ribono shel Olam grant that this be successful in all the aforementioned, which will bring success to each of the participants in their personal affairs.
+
+With blessings.
+
+P.S.
+
+In response to your question: Since there is a significant age difference among the members of N'shei U'bnos Chabad, it is self-evident that there is also a difference in the problems that interest them and the various questions they have. You ask for my opinion on how to manage this.
+
+In my opinion, there are general questions and matters that concern all members, and there are also questions and matters that are connected only to a specific age group. In accordance with this, you should arrange general meetings for all members, where general problems will be addressed, and where the weekly parsha or halachos that everyone needs to know should be studied. **In addition** to this, you should hold meetings for different groups of N'shei U'bnos Chabad, at which only the problems connected to the age of that group should be addressed. It goes without saying that if one of the older members is present at such a meeting, her presence also carries a responsibility.
+
+However, there must be general meetings of all the women together, and these should be held frequently.
+
+I hope that even those who have not come to the meetings of N'shei U'bnos Chabad until now, after they are convinced by attending the special group meetings, will also begin to come to the general meetings. Hopefully, this will all be done in ways of pleasantness and ways of peace, which will also bring success to the work.
+
+## 343
+
+B"H, 22 Menachem Av, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...It is brought in several sefarim that participating in a Pidyon HaBen is equivalent to [the atonement of] 84 fasts. This is discussed in the responsa *Shem MiShimon*, first edition, Yoreh Deah, siman 29 (the essence of which is that this is a tikkun for the blemish of the bris, which requires 84 fasts). However, for the time being, I have not found a source for this in the sefarim of Chabad Chassidus, but in any case, the aforementioned sefarim are reliable enough to be relied upon.
+
+## 3,247
+
+B"H, 22 MarCheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and industrious, engaged in communal needs, R' Shlomo Chaim, may he live.
+
+Peace and blessing!
+
+In response to your letter of the 12th of MarCheshvan: Thank you for at least writing about the schedules during the month of Tishrei, even if briefly.
+
+You mention in your letter that the study schedule runs from 6:30 in the morning until 9:30 at night, followed by dinner until 10:30. This requires further consideration, as on the face of it, it does not seem conducive to maintaining the students' health, given that only eight hours remain for Krias Shema al Hamitah, sleep, the morning blessings, etc. It is already well-known how much my father-in-law, the Rebbe, was particular about safeguarding the health of the students of Tomchei Temimim—and all the more so in our current times, when the generation has weakened physically, especially in Eretz Yisrael, may it be built and established. It would be worthwhile for you to consult among yourselves, and perhaps also with a G-d-fearing doctor who understands the conditions in your location, and arrange matters accordingly.
+
+Furthermore, it would seem there is room to say that it is worthwhile to leave at least a short amount of time at the students' own disposal, so that there may be room for "adding from the profane to the holy" of their own free will, and not necessarily from the yeshiva's fixed schedule—for "the jealousy of scribes increases wisdom."
+
+It is surprising that there is no mention in the letter from the yeshiva administration, nor in your letter, regarding the addition of students for the new term. Surely you are contemplating the situation in Eretz Yisrael, may it be built and established, that one must secure [students] well in advance, as the number of yeshivos is constantly growing, and it seems that they are "snatching up" students wherever they can.
+
+Regarding what you conclude in your letter about the reason for the lack of discipline: even if we assume the reason is accurate, it does not change the situation. It is well-known that discipline is a foundation for success in both study and conduct.
+
+In a separate package, I am sending you the *Mafteach* (index) to *Torah Or* which has just been published, and it will surely bring you benefit in your *avodah*.
+
+With blessings for success, and awaiting good news.
+
+## 3443
+
+B”H, 23 MarCheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and learned, engaged in communal needs, R’ Nissan, may he live:
+
+Greetings and blessings!
+
+I was pleased to receive your letter in which you write about the study schedule for the new term. Surely you are striving to increase both the quantity of the students—boys and girls—and the quality of their studies, especially regarding their conduct. And when one opens an opening the size of a needle’s eye, the Ribono shel Olam opens an opening like the entrance to the Ulam.
+
+I was pleased by what you hint at in your letter, that you have arranged to change the mikveh so that it will be via *hashakah* of rainwater, and not, Heaven forbid, via *vodaprovod* (piped water). Surely you will implement all possible *hidurim*, as is well known to be the practice regarding mikvaos. I would point out the Mishnah and the commentaries on the Mishnah at the end of Maseches Yoma, that the redemption of Yisrael is dependent upon *taharah*. See also the Beraisa at the end of Maseches Sotah: *taharah* leads to Eliyahu HaNavi.
+
+Is it possible to institute that all the students, boys and girls, study the *dinim* of the *halachos* required for daily life? This applies to Meknes and all other locations as well.
+
+With blessings for success in all the above, and to hear good news regarding communal matters and your personal affairs.
+
+P.S.
+In a separate package, I am sending you the *Maftechos* to *Torah Or* which has just been published. It will surely be of benefit to you in your *avodah*.
+
+## 340
+
+B"H, 23 MarCheshvan, 5715
+Brooklyn, N.Y.
+
+To the esteemed and distinguished, etc., Rabbi Yissachar Dov, may he live:
+
+Greetings and blessings!
+
+Following your long silence, your letter of 21 MarCheshvan has finally been received, although it, too, is written with extreme brevity.
+
+Regarding your question concerning parents who wish for the girls at Beis Rivkah to also be taught the craft of sewing: this is a correct approach. It is understood that there must be a teacher for this who is thoroughly proficient in the craft, and not merely in its basic aspects, but also in what is required for higher-quality sewing, as this also provides greater possibilities for earning a livelihood.
+
+I am certain that you are making preparations to utilize the auspicious days of the upcoming month of Kislev in an appropriate manner, both the days of 10 and 19 Kislev, as well as the days of Chanukah.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+Secretary
+
+#### 340
+
+Rabbi Yissachar Dov: Gurary, director of Beis Rivkah in France. Additional letters to him appear above in Vol. 9, 2802, and in the references noted in the footnotes there.
+
+## 350
+
+B"H, 23 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+Finally, your letter arrived, bringing the good news of your son’s *bris milah*. It is surprising that you delayed sharing this information for so long.
+
+I will read the *pidyon nefesh* enclosed in your letter at the holy *tziyun* of my father-in-law, the Rebbe, *ztzuklalleh, nebgam, zya*. It is puzzling, however, because I have written to you many times about the absolute necessity of being in a state of joy. Yet, in every letter I receive from you, the beginning and the end are written in the same old vein. The point is that everything is "not as it should be"—your health, your wife’s health, your children’s health, your livelihood, your nervousness, etc.—and this, despite the fact that you see open miracles with your own eyes. (Apparently, you do not want to remember what the doctors said at the outset, and how the entire matter of the pregnancy and birth unfolded in complete opposition to their words.) We are accustomed to the fact that in the time of *galus*, there is concealment and double and redoubled darkness, but surely even this darkness must have a limit. As far as you are concerned, everything they show you for the good seems to have neither touched nor affected you.
+
+While, on the face of it, this is your own business, it is painful to see a Jew tormenting himself over matters that have no basis, and thereby ruining his own health. Surely, it is impossible that this would not affect the health of your household, may they live, given that, as you write in all your letters, you are in great distress and worry.
+
+Regarding your request for a blessing, etc., one cannot negate a Jewish person’s free choice (since its source is in the fact that the *nefesh elokis* is a **literal** part of Hashem from above, where alone there is free choice without any compulsion; and consequently, this is also true for the Jewish person). If you wish to insist, against all reason, on seeing only what is "not as it should be" in every situation, and to completely divert your attention from everything you are shown from Above in manifest and revealed goodness, then who can tell you what to do?
+
+My hope is that despite all this, since our Sages have ruled (*Bava Basra* 12a) that whoever is shown goodness—it is for long days, that you, too, will be treated with such conduct. Nevertheless, examine this once again for yourself in the holy *Zohar*, Part II, page 184b, in the passage beginning *Ta Chazi*.
+
+It is already known that in the revealed Torah, the expression *Ta Shma* ("come and hear") is common, implying only hearing. On the other hand, it implies understanding. In the hidden Torah, the expression *Ta Chazi* ("come and see") is common—a vision that hearing cannot compare to, even if one does not always understand or grasp it.
+
+With the blessing that you will finally dedicate yourself to the instruction of the Baal Shem Tov and the *Nesi'im* who followed him—to serve Hashem specifically through joy and the proper health for yourself and your entire household, may they live.
+
+## 351
+
+B"H, 25 MarCheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, who engages in communal needs, R' Avraham, may he live:
+
+Peace and blessing!
+
+In response to your letters from the 1st and 12th of MarCheshvan—regarding what you wrote, that seemingly if one is not writing, I should be satisfied as it is a good sign that everything is in its regular order: based on the experience of recent years, to my regret, in the vast majority of cases, this is not the case. I only wish that from here on it will be as you write...
+
+Regarding what you wrote about printing the sichos and maamarim, I must dedicate time to this, which I do not have at all. On the contrary, from time to time, more burdens are added. And based on the above, there is another new burden that must be mentioned: sometimes it is necessary to inform [us] here of what is happening, rather than waiting until it is requested and then only reporting a general point, with the details being learned from others. Therefore, **do not** print my maamarim and sichos until I have edited them. As for newspapers and translation into another language—that is a different matter.
+
+Surely there are details of the entire gathering of Agudas N'shei U'Bnos Chabad in Kfar Chabad; please send me a copy. Thank you in advance.
+
+With blessing, awaiting good news,
+
+**M. Schneerson**
+
+***
+
+**R' Avraham:** Paris. Additional letters to him: see above, Vol. 9, Letter 2847, and the references in the notes there.
+
+**As for newspapers:** See also above, Letter 2889, and the references in the notes there.
+
+## Geneva
+
+B"H, 25 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...What will be regarding the *askanus* (communal activity) for the future? It seems that after all the "work" and after all the matters that were seen tangibly—and thank G-d, there were many matters that were good in a visible and revealed way—the division of hearts and the despicable politics have not been touched at all. And all the efforts of our holy Rebbes to draw down success in their work are not helping, for the time being at least, for the workers to understand that *es iz da Chassidus oif der velt* (there is Chassidus in the world), and that one must disseminate it even *chutza* (outwardly), and all the more so *bifnim* (inwardly). And the essential point of all points is that this is not merely a matter written in books that one must contemplate before *davening* or at special times; rather, it means them themselves, in actual practice. That is, regardless of the fact that *yada inash b'nafshi* (a person knows his own standing and situation)—and all the more so that our holy Rebbes know—they were chosen as *shluchim* to disseminate this Torah and its guidance in the land upon which the eyes of Hashem your G-d are from the beginning of the year to the end of the year.
+
+The moral lesson is well understood based on what is explained in *Iggeres HaKodesh*, Epistle 24: that in many generations from the time of the Giving of the Torah until our days, there were *tzaddikim* and souls that were extremely great and lofty, yet the King remained in the hiddenness of His strength in the innermost chambers, with many guards at the entrances, despite the fact that many were waiting to see His strength and glory. And in our generation and our time, when it arose in His will to be revealed, and He chose specific people so that they would reveal Him to all and show the glory of His kingdom and the honor of His great majesty, then one who pushes away this task with disdain for the sake of his imagined honor and matters of despicable politics—and all the more so one who exploits the task only for matters of *machlokes* (strife) and division of hearts—is akin to what is explained in *Tanya*, end of Chapter 24, regarding the parable of one who holds, etc., see there.
+
+And all the excuses along the lines of "I did not write this, but Yehuda the tailor wrote it"—it is well known the saying of my revered father-in-law, the Rebbe, that *Hashem nort men nit un layten nort men oich nit* (one cannot fool Hashem, and one cannot fool people either); one can only deceive oneself...
+
+## 353
+
+B"H, 25 Menachem Av, 5715
+Brooklyn, N.Y.
+
+Greetings and Blessings!
+
+Regarding the engagement of... surely he, as well as his future wife, may they live, will utilize their influence on... so that she establishes her home upon the foundations of Torah and mitzvos, as they are illuminated by the "light of Torah"—which is the teachings of Chassidus. Among the matters that must be secured in advance is the wearing of a *sheitel* (wig). My hope is strong that on the part of the groom, not only will there be no obstacle, but on the contrary, he will assist and be pleased [with this]...
+
+The necessity of this matter surely requires no explanation, especially in light of what is seen clearly: that young women who fulfill their obligation of covering their hair with a scarf or a kerchief do so only for a short time. Furthermore, even during that very time, the practice is frequently breached, and "that which is well-known requires no proof."
+
+And since they have witnessed the wonders of the Ribono shel Olam in the matter of... may she live, even with physical eyes, surely they will also prepare the vessels to draw down blessing and success through the aforementioned, as is brought in the holy Zohar, Vol. 3, page 126a, and also cited by later authorities. May the Ribono shel Olam grant them success, and there is a presumption regarding *ta'amulah* (outreach/propaganda) that it does not return empty.
+
+With blessings, and awaiting good news.
+
+#### ***353***
+
+**Sheitel:** See above, Letter 2990, and the references noted in the footnotes there.
+
+## 354
+
+B"H, 25 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...In response to your question as to whether to write to the Tzeirei Agudas Chabad in Eretz Yisrael regarding their activities in London: this is a correct course of action. In general, any matter that fosters a closeness of mind among Chassidim in particular, and among Bnei Yisrael in general, and strengthens the hiskashrus of one to another, is very right and good. This is especially true since it also serves to strengthen and inspire those in other places, so that they may know that every individual is obligated to act in their own place in matters of Yiddishkeit in general and in matters of Chassidus in particular—specifically in that very place where Divine Providence has brought them. For this itself is proof that they have the ability to effect change there, and consequently, they are obligated to do so for their own merit.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+Secretary
+
+#### 354
+
+**To write... in Eretz Yisrael:** In order to publish them in the "Bitaon Chabad" section, "From the Life of the Institutions."
+
+## 358
+
+B.H., 26 MarCheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I have received your letter dated 21 MarCheshvan, in which you write regarding the state of affairs in... and in response to your question: It is a well-known principle of our Sages that one should not be the only one awake among those who are asleep, especially in a matter that appears to be a leniency. Since all the shochtim wear long garments, he too must conduct himself like them.
+
+Regarding your question that even on Shabbos they rush through davening, and how you should conduct yourself since you are the one completing the minyan: You can begin with the other nine men and finish after them. In this way, there is a majority of the minyan present, and your davening also retains the quality of communal prayer, since you began together with them.
+
+It would be appropriate for you to explain to them the Iggeres HaKodesh in Tanya at the end of Kuntres Acharon.
+
+Surely you and the shochet... (may he live and be well) have arranged for the public study of Chassidus. If you do not make this study too burdensome at the outset—meaning, if the duration is not overly long—the other shochtim and mashgichim will certainly participate in this shiur as well. And who knows, perhaps this is the purpose of your coming to...: so that you may merit to cause some of our fellow Jews to become students of the teachings of Chassidus and to conduct themselves according to its guidance and customs.
+
+It is understood that these lines are also directed toward the shochet... (may he live and be well), so that you may consult together, for "in the multitude of counselors there is salvation."
+
+It would be appropriate for you to inquire and search for our fellow Jews in...; I believe there are some refugees there, as well as several Jews who are natives of the country. When you find them, you will surely also find a way to bring them closer to Yiddishkeit, to Torah and its mitzvos. May Hashem grant you success.
+
+Surely you are keeping the three daily shiurim that are incumbent upon every soul: Chumash, Tehillim, and Tanya. It would be best to study them in public, in order to publicize the matter and draw the others who are with you to keep these shiurim as well.
+
+I await good news, with blessings.
+
+## Genoa
+
+B"H, 26 Menachem Av, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, G-d-fearing and upright, involved in communal needs,
+Rabbi Mordechai HaKohen, may he live.
+
+Peace and blessing!
+
+These days, the esteemed Chossid, Rabbi Nachman Elboim, may he live—son-in-law of the well-known etrog merchant, Rabbi Dov Ludmir, may he live—is traveling from here. He carries a proposal to take seeds, as well as saplings and cuttings, of the Calabria etrog trees to plant and cultivate them in Eretz Yisrael, may it be rebuilt and established, in Kfar Chabad. In my opinion, this is a correct course of action. For although there is room to say that the precision regarding Calabria etrogs among anash, and their source from the Alter Rebbe, is not merely out of concern for grafted species—as explained in the Responsa of the Chasam Sofer, cited in Shaar HaKollel—but rather, there is the additional factor that we desire them to be from the "fatness of the earth." As explained in the Midrash Rabbah, "the fatness of the earth" refers to Italia of Yavan, which is the Calabria peninsula. (And there is a need to explain the necessity of the Sages' exposition on this, for seemingly it is difficult: After Yitzchak blessed Yaakov with "the dew of heaven and the fatness of the earth," how could he subsequently grant this same matter to Esav? See the commentaries on the Chumash and in Torah Or regarding this. And according to what is explained there, that this peninsula did not exist in the world at the time of Yitzchak’s blessing and only emerged when Shlomo married the daughter of Pharaoh, as explained in Shabbos 56b, the aforementioned is clarified.)
+
+Nevertheless, even if the latter quality will not be present in Calabria etrogs grown in Eretz Yisrael, may it be rebuilt and established, at the very least, the quality of the presumption of being non-grafted will be maintained. Since Rabbi Elboim is involved in this matter, and on the other hand, I am not familiar with the routes in Italy, I have spoken with him that he should contact you so that you may provide him with a letter of testimony and a form of certification for the seeds, cuttings, and saplings that he will take with him. It is understood that he will compensate you for your efforts, and as I explicitly told Rabbi Elboim, he must discuss this with you as well.
+
+I look forward to hearing good news.
+
+Furthermore, I have come in this letter to urge those who are already diligent, that since the situation of the Tomchei Temimim Yeshiva in France is strained, and they have sent a fundraiser to Italy—and certainly also to Milan—you will surely assist him with all your ability in an appropriate manner, and increase the success of this mission.
+
+With blessing,
+
+**M. Schneerson**
+
+## 357
+
+B"H, 26 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and learned, who engages in communal needs, R' Yisroel Abba, may he live.
+
+Peace and blessing!
+
+In response to your letter of the 19th of Kislev: I was pleased to read what you wrote regarding the development of the Yeshiva’s affairs. There is an additional point here, which is fundamental: the Yeshiva building must be a central location for all matters of Yiddishkeit, based on the purity of holiness and illuminated by the light of Torah—which is the Torah of Chassidus—and not exclusively for Yeshiva matters. This means that all shiurim should be held there, and those who attend should be inspired regarding matters of yiras shamayim. People should gather there at the necessary times to discuss communal affairs related to various aspects of yiras shamayim, and so on. And certainly, it is a simple matter that farbrengens of anash—and even of those who are not yet within the fold of anash—should be held in this building during the auspicious days of the month of Kislev, the 10th and 19th of Kislev, the month of redemption, and it will surely be successful.
+
+Regarding what you wrote about your daughter Rivka, may she live, and how she can influence her friends: surely, as one raised in a Chassidishe home, she possesses knowledge that is unknown to some of her friends. Likewise, there are surely girls who are younger than her, and consequently, there is room for her influence upon them in matters of Yiddishkeit in general.
+
+With appropriate contemplation, I hope that [Hashem] will show her the matters and ways to achieve this, and may the Ribono shel Olam grant her success.
+
+With blessings for good tidings in all the above.
+
+#### ***357***
+
+**R' Yisroel Abba, may he live:** Pliskin. Additional letters to him appear above in Vol. 5, p. 426, and in the references noted in the footnotes there.
+
+**The Yeshiva must be a central location:** See also above, Vol. 2, p. 400, and the references noted in the footnotes there.
+
+## 353
+
+353
+
+B"H, 27 Menachem Av, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...Regarding missing a day of wearing Rabbeinu Tam tefillin: one should ensure to have several chapters of Tanya memorized, and *bli neder* ensure that a day does not pass in which these chapters are not recited, or at least one of them is not contemplated during the course of the twenty-four hours, *bli neder*...
+
+## Janet
+
+By the Grace of Hashem, 28 Marcheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, learned, and involved in communal affairs, R’ Yehuda Leib HaKohen,
+
+Shalom u’Bracha!
+
+...I am enclosing herewith a copy of my letter to a certain individual, which he may publish or even read at a meeting of Tzeirei Agudas Chabad. May it be the will of Hashem that I merit and succeed in having these words achieve their intended effect. In truth, it makes no difference from whom the words come, as is known from the saying of the Sage: "Accept the truth from whoever says it."
+
+Regarding what you wrote about your work: based on the above, the absolute necessity not only to maintain Tzeirei Agudas Chabad but to expand it is understood. Consequently, anyone who has the ability to do something in this regard is obligated to do so to the best of their ability. And since your work within the framework of Tzeirei Agudas Chabad has been successful until now, the doubt as to whether you should continue your work or resign is incomprehensible, given that this work belongs to our holy Nasi.
+
+Regarding what you wrote concerning the proposal that they travel to **other** places to study Chassidus, not for the purpose of receiving a salary: this was not exactly my intention. I wrote that they should find students and mashpi'im **on the spot**. It is understood that in Tel Aviv, Haifa, Petach Tikvah, and the like, there should not be any difficulties with this; the matter depends solely on Tzeirei Agudas Chabad understanding that **this is their own affair**, and not that they are doing a favor for someone else by doing so. As for what you write, that in many places it is impossible to find someone to study Chassidus on the spot—if they exert themselves to the best of their ability, surely in a significant portion of these places, a mashpia of Chassidus will also be found. And until those places where it is impossible to find one under any circumstances are rectified, I would at least hope that for the time being, they bring about the actual study of Chassidus in all those places where there are mashpi'im on the spot.
+
+Regarding the publication of the periodical: I have already hinted at this, and also written explicitly many times, that in my opinion, it brings the greatest possible benefit. It is a source of great wonder why it has not yet been made an official periodical—meaning that it would be permitted to distribute it without restrictions, rather than as an internal newsletter. After the acquaintances that have been made in the appropriate offices, there should surely be no difficulties with this. (It is understood that this wonder also applies to the publication of the "Shmuessen.")
+
+Regarding what you wrote about the participation of the bochurim of the Lod Yeshiva in the outreach trips and the campaigns for Yud-Tes Kislev, Purim, and the like: it is a wonder to me that this is still a question, after I have written about it many times—that it is a very, very correct thing. Even though it is not always wise to turn a student into a guide or even a teacher—as this might make him feel that he has already finished his course of study—nevertheless, it seems that in the Yeshiva they do not doubt this at all. Yet, when it comes to the students knowing that they must donate one day or a few hours, as in the trips for Yud-Tes Kislev, Purim, etc., they raise mountains of doubts. And this, even though they surely know that the Rebbe, my father-in-law, of blessed memory, instituted such things even in the Yeshiva here, and the vast majority of the students participated in this according to his directive.
+
+On this occasion, I would like to add another question, from which you will see how they have not even touched upon several important areas of possible activities in Eretz Yisrael, may it be rebuilt. Rabbi Shapira from Tel Aviv visited me and told me about his work in organizing youth, regarding the "Tiferes Bachurim" that existed in our country in the past, and it seems from his words that he is succeeding in this. Even though he has no resources, and not even a party or any bloc to support him officially in this, he is simply interested and "fired up" about it, and consequently, he establishes and develops it. Furthermore, he wears out his shoes traveling to the United States, etc., etc. And as for the Tzeirei Agudas Chabad who are on the spot—until now I have not received even one proposal of this kind, at all!
+
+Except for the first point, it seemingly should have been written in a letter to Tzeirei Agudas Chabad in Tel Aviv. But since I do not have letters from them (and I do not know the reason), I request that you propose all the points—except for the first—along with the copy of the letter enclosed here, at a meeting of Tzeirei Agudas Chabad of Tel Aviv. And it would be even better if it were also done at a meeting of Tzeirei Agudas Chabad in Jerusalem, the Holy City, may it be rebuilt. They will surely discuss them with the necessary attention.
+
+With a blessing for success in all the above, which will consequently lead to success in your personal matters as well.
+
+## 360
+
+B”H, 28 Marcheshvan, 5715
+Brooklyn, N.Y.
+
+To the esteemed, G-d-fearing, learned, and distinguished individual, engaged in communal needs, possessing noble character traits, a scion of a noble lineage, etc., R’ Shazar, may he live:
+
+Peace and blessing!
+
+...Regarding the development of the settlement of Anash in the Holy Land (may it be rebuilt and established), as I wrote in my previous letter, it is desirable for several fundamental reasons that their settlement be in close proximity to the existing Kfar Chabad, though not within it. However—and I believe I noted this in my previous letter as well—if it is absolutely impossible otherwise, it will be necessary to agree upon a second location at some distance from the Kfar. But in addition to this, every effort must be made to ensure that the area adjacent to Kfar Chabad (1,400 dunams) is annexed to Kfar Chabad. My hope is strong that the number of settlers in this village will increase, provided the conditions are suitable. I am confident that no urging from me is necessary, as you are the one who conceived the idea of the village and have taken an active part in its cultivation and growth from the day of its founding, and "by your hand it shall be established" (in its entirety).
+
+Regarding what you write about the manuscripts of our Rebbes, the actual handwriting in *Toras Shmuel* is characteristic of the handwriting of the Rebbe Maharash. I do not have the *Sefer HaChassidus* by Werfel, and therefore I do not know which manuscripts he printed in his book. However, I fear that the manuscript of the Mitteler Rebbe was likely taken from what was printed in *HaTamim* (regarding the proposal for establishing settlements), and in my opinion, it is not so characteristic of the Mitteler Rebbe’s handwriting. I am enclosing a photocopy of one of his letters.
+
+As for the handwriting of the Alter Rebbe, of which I have seen photocopies in various books and places, there is almost no difference between them. Consequently, one should use what is found in the aforementioned book as well, especially since it is highly probable that it is a photocopy of the Alter Rebbe’s letter to R’ M. Meisels, which my father-in-law, the Rebbe, sent as a gift to the Chassidim and Anash in connection with my wedding.
+
+The handwriting of the Tzemach Tzedek and the Rebbe, the father of my father-in-law, the Rebbe, can be found in the *Responsa of the Tzemach Tzedek*, Part I, and in the *Kuntres Eitz Chaim*, which I have requested Anash to provide for you.
+
+Surely, as is your good custom to strive to give a gift to the village for the *Chag HaGeulah*, 19 Kislev—just as you did at the time regarding the electricity—you will also surprise them this year with a gift of this nature. Especially since they wrote to me that you visited the village at length, and they also presented you with a memorandum containing several points, as I saw in the copy they sent me.
+
+I do not know if the following was also your intention when you gave me your gift, the collection of blessings and prayers *Meah Brachos*, but surely there is Divine Providence in this as well. For this is akin to a *Siddur* printed for the *Anusim* (crypto-Jews), or perhaps even by them, after they arrived at a place of rest where they could conduct themselves according to their true desires in daily life and in the open. They even added certain prayers that apparently are found only in collections of this type. From time to time, when I look at this collection and the memory is renewed that it was brought to me by a person whose primary occupation is in the field of education, the thought naturally arises each time that, in truth, every single person is to a certain degree—and perhaps even to a significant degree—an *anus* (coerced). They do certain things because of the pressure of their environment, whether directly or indirectly. Or, at the very least, in the words of the great teacher (Rambam, *Hilchos Geirushin*, end of Chapter 2): "He is coerced by his evil inclination, yet in truth he wishes to be of Israel, wishes to perform all the *mitzvos*, and wishes to distance himself from transgressions."
+
+It is the duty of every educator to liberate the one being educated and influenced by him from any form of external coercion—and all the more so from internal coercion—and to unify his inner and outer self. Only then will the child (a child in years, or a child in knowledge) grow and live a happy life, without the fissures and constant wars between one inclination and another—or, in the language of Chassidus, between the *nefesh elokis* and the *nefesh habahamis*. And the measure of the Holy One, blessed be He, is "measure for measure," whereby through this action, the educator himself will also more easily win his own battle.
+
+Enclosed is the booklet of indices for the Alter Rebbe’s book *Torah Or*, which was recently brought from the bookbinder.
+
+The photocopies and the booklet were sent separately.
+
+With respect, appreciation, and blessing—awaiting good tidings.
+
+## 3061
+
+B"H, 28 MarCheshvan, 5715
+Brooklyn.
+
+To my dear friend, the G-d-fearing, learned, and distinguished Rabbi Ze'ev Dov, may he live.
+
+Greetings and blessings!
+
+I was pleased to receive your letter informing me of your safe arrival home. You should certainly convey my heartfelt regards to Anash in general, and to the students of the yeshivos in particular. It would be very good if you would also look for opportunities to visit Lod and Kfar Chabad to convey these regards there as well, and, most importantly, to write back here afterwards with good news regarding the situation you found there. It is known that our Sages ruled that "Love your neighbor as yourself" is a great principle of the Torah, and writing with good news is also one of the expressions of a fellow Jew’s love for his neighbor. The attribute of the Ribono shel Olam is "measure for measure," and may you always be able to bring good tidings, both regarding yourself and your entire family, may they live.
+
+In these days, Volume 1 of the Talmudic Concordance was received. Many thanks, many thanks for this gift of yours...
+
+As you requested, I will mention those you wrote about at the holy gravesite of my father-in-law, the Rebbe, of blessed memory, for whatever they need, as you wrote.
+
+With blessings for a good Shabbos,
+
+[The Rebbe]
+
+## 352
+
+B"H, 28 Mar-Cheshvan, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, G-d-fearing and learned, whose work is the work of Heaven,
+Rabbi Moshe Aryeh Leib, may he live and be well,
+
+Greetings and blessings!
+
+After your long silence, it was a pleasure to receive your letter of the 22nd of Mar-Cheshvan with the good news that the benches of the Yeshiva of our holy Rebbeim (may the merit of the righteous protect us) have increased in the study of Torah Emes. And most importantly, that there has been an increase in both quantity and quality in the study of Nigleh and Chassidus. And surely, according to the words of our Sages that "it is not the study that is the essential thing, but the deed," this increase is evident both in the avodah of tefillah and the performance of mitzvos with hiddur, and in the study itself in particular.
+
+May it be the will of Hashem that you go from strength to strength, and the words of our Sages regarding this are well known. And since the Alter Rebbe (Shulchan Aruch, Orach Chaim, beginning of siman 155) points to the Targum on Tehillim there, it is possible that his intention is also to hint that Torah requires a beis medrash before it and a beis medrash after it, just as it concludes there in the Targum: "May the light of their Torah be seen before Hashem, whose Shechinah dwells in Tzion."
+
+Thank you for your efforts in fulfilling my request to send here the Torah journals, *Ohel Torah* and *Toras Eretz Yisrael*, as well as the sheets you are printing with notes on the sefer *Ketzos HaChoshen*. Surely, you will continue to do so in the future, searching for and sending printed materials of this type and nature, and I thank you in advance.
+
+I will conclude with a good word in response to your news that a son was born, for good mazel, to your daughter, Mrs. Tzira Baila, may she live, and he was named in Israel, Chaim, may he live. May it be the will of Hashem that just as his parents, may they live, have brought him into the covenant of Avraham Avinu, so too may they bring him to Torah, to the chuppah, and to good deeds, and may you derive from all your descendants, may they live, an abundance of true Chassidishe nachas.
+
+With blessings of Mazel Tov.
+
+## 353
+
+B"H, 28 Mar-Cheshvan, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of the 28th of Cheshvan: I did not find in it an answer as to why, all this time, both you and your wife (may she live) have not been refreshing yourselves.
+
+Since there is no point in crying over the past, my intention here is only to rectify the situation, that you should remove the causes—or more accurately, the concealments and obstructions—that led to the aforementioned. From now on, you should remember that you merited to be a student in the yeshiva of my revered father-in-law, the Rebbe, of blessed memory, and consequently, the strengths of the Tzaddikim, which endure forever, have been implanted within you as well. You must utilize these strengths in accordance with the intent of our holy Nasi, of blessed memory—namely, to disseminate the "candle of a mitzvah and the Torah of light," and the "light of Torah," which is the teachings of Chassidus, its practices, and its guidance, both in your own home and in your "home" in the broader sense—meaning, throughout your entire environment, and especially in the shul where you daven.
+
+It is also understood that your wife (may she live) must act in these matters in a manner befitting the daughter of a Chassid and the wife of a Tmim. May Hashem grant you the merit to succeed in fulfilling this role.
+
+With blessings to hear good news regarding all of the above.
+
+## 3204
+
+B"H, 29 Menachem Av, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished individual, a man of fine character, of holy descent,
+Rabbi Shmuel Abba, may he live.
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your letters from some time ago. My response has been delayed until now, as for various reasons I was unable to make copies of the letters until yesterday. Since I wished to return the original letters to you (as they belong to you, having been sent to you), the response was delayed as well, for which I offer my sincere apologies.
+
+As we enter the month of Kislev, the month of miracles and redemption, and since miracles and redemption are connected with the dissemination of light and the source of light, may it be the will of Hashem that there be an increase in the light within each and every one of us, both in material matters and in spiritual matters. Indeed, in addition to the inherent effect of light, it also allows one to evaluate and distinguish between good and evil, and between falsehood and truth, in all matters of human life. Consequently, one can walk securely on the path of life.
+
+Thank you once again regarding the matter of the Sefer Torah. With heartfelt wishes that each of us may say during these days, with true desire and will—and not merely because of the commandment—"He has granted us life, sustained us, and enabled us to reach this time," and may this be done with joy, as is understood from the content of the blessing, which refers to good and joyous matters.
+
+I sign with a blessing for true health.
+
+P.S.
+Enclosed are the two letters, and I am sure you will acknowledge their receipt. Thank you.
+
+***
+
+3204
+
+Rabbi Shmuel Abba: Shapira. Additional letters to him are found above in 2866, and in the references noted there.
+
+Matter of the Sefer Torah: See above, ibid.
+
+## 355
+
+B"H, 29 Menachem Av, 5715
+Brooklyn.
+
+To the Administration of Agudas Chabad in Eretz Yisrael, may it be rebuilt and established,
+May they live,
+
+Peace and blessing!
+
+... In general, a list should be compiled among Anash to identify who is qualified to accept a rabbinical position in Eretz Yisrael, may it be rebuilt and established. If their number is very small, the deficiency must be addressed as soon as possible.
+
+Surely there are some among the avreichim, or even among the older bochurim, who are fit for that mantle, or who could receive semicha and practical experience (shimush) within a short period of time. In our current times, one must secure (baovarenen) every single matter well in advance.
+
+5) I recall that some time ago there was a proposal to assist with hachnosas kallah for certain people, and I am sure you will inform me regarding what has been done in practice.
+
+With blessings for success in your holy work, and awaiting good news very soon,
+
+**M. Schneerson**
+
+#### ***355***
+
+**Rabbinical position:** In continuation of this — see letter 399 below.
+
+## 305
+
+B.H., 29 Menachem Av, 5715
+Brooklyn.
+
+To the Women’s Group for Taharas Hamishpacha in
+Philadelphia
+May they live
+
+Blessings and peace!
+
+It was with pleasure and joy that I received the news of the founding of your group, as well as the commencement of your work in organizing a membership. Most importantly, that you have begun to take practical action—both in explaining the vital importance of observing Taharas Hamishpacha and regarding the mikveh, ensuring it is in proper order in all respects. It is a well-known saying of my father-in-law, the Rebbe, in the name of his holy ancestors, that it is a certainty that earnest propaganda leads to action, and that even one action is better than a thousand sighs.
+
+I hope to hear good news from you, that the circle of those participating in the group continues to grow ever larger and broader, and that, in general, the work is proceeding with success.
+
+This is especially relevant as we now enter the month of Kislev, in which the Yom Tov of Chanukah occurs. As our Sages of blessed memory relate, one of the decrees at that time was that Jews should not have mikvaos. Hashem Yisbarach performed the miracle, and all Jewish women did indeed have proper mikvaos and raised a generation of righteous descendants. May it be that just as in those days, so too in this time, your work will be met with extraordinary success in every detail.
+
+With blessings.
+
+#### ***305***
+
+**Earnest... action:** See above, Vol. 7, Letter 1876, and elsewhere.
+
+**Even... sighs:** See above, Vol. 9, Letter 2945, and elsewhere.
+
+## 3157
+
+B"H, 29th of Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your special delivery letter, in which you write that you have been in [city name] for several years already and see no hope for a good future as there should be, because the youth are not very connected to the Charedi community and the older ones are becoming increasingly weak, etc.
+
+In truth, this is a question you should have asked those who are in your city, rather than asking it in New York. For, knowing the *chazakah* that *te'amulah* (outreach) does not return empty, how is it that after five years of work in the city, the situation is as you describe in your letter? I believe that one of the reasons for this is that, unfortunately, you have looked at [city name] as a temporary position (a "job"), and each time you are barely waiting for the summer to arrive so that you can think about and look for a different city. It is human nature that when one considers something to be only for a few months, it does not elicit interest or the application of one's full strength, because one thinks that they will soon be leaving that place.
+
+It is well known what my father-in-law, the Rebbe, of blessed memory, used to say: that one must learn from the *Mishkan*. When they were in the desert, there were places where they stayed for only a day or a night, yet they set up the *Mishkan* with all its details exactly as they did in a place where they stayed for eighteen years. This is a *mussar haskel* (lesson) for every Jew to conduct himself in his activities for the *avodah* of Hashem and to fulfill his *shlichus* from Hashem in this world: that one should not look at the calendar, the clock, or make calculations—that if it is for eighteen years, one exerts effort, and if it is only for a day or a night, then why bother? For just as the Holy One, blessed be He, is eternal, so too are all the activities of a Jew that are connected to the Holy One, blessed be He, also eternal.
+
+Even if in a few minutes the Jew will be occupied with something else, the actions remain for eternity, as is explained in *Tanya*, Chapter 25.
+
+Regarding the practical matter: as far as I know, your husband, the Rabbi, has searched quite energetically for other positions, both this past year and in previous years.
+
+The fact that a suitable opportunity has not materialized should serve as proof that both of you still have work to accomplish in [city name] in the *shlichus* of the Creator, blessed be He. When the Holy One, blessed be He, gives a *shlichus*, He also provides the ability for the person to fulfill that *shlichus*, though we do not know the ways of Heaven. However, it stands to reason that the more you strive to fulfill the *shlichus* properly (and the *shlichus* of every Jew, and especially a Rabbi and *Rabbanit*, consists of *hafatza* of Torah and Yiddishkeit), the sooner you will be able to move to a place that has more advantages than [city name]. May Hashem grant you success so that you do this with *simcha*, in accordance with the instruction of the Baal Shem Tov for all Jews and in all matters: "Serve Hashem with *simcha*."
+
+With blessings.
+
+## 368
+
+B"H, 29 Menachem Av, 5715
+Brooklyn
+
+To the esteemed Chossid, G-d-fearing, and dedicated communal worker, Rabbi Aharon Halevi and his wife, the Rabbanit Chana, may she live and be well,
+
+Greetings and blessings!
+
+I was pleased to receive your letters, as well as the regards conveyed through the esteemed Chossid, G-d-fearing, and dedicated communal worker, Rabbi Ben Zion Shemtov, the shaliach. I hope that seeing how much can be accomplished with the energy invested thus far will only elicit from you further strength to accomplish even more from here on out, with greater intensity and with joy—for when one acts with joy, one accomplishes many times over.
+
+I was especially pleased to read in your letter about the work regarding Taharas Hamishpachah and the establishment of a women’s committee for this purpose. May Hashem help them to act with the seriousness and energy that this work demands, and it will surely be successful.
+
+You must ensure that the committee does not take on a political character—that is, it should not be affiliated with Agudah or Mizrachi, as this sometimes deters many women from participating. It is of the utmost importance that the number of members and active participants be as high as possible.
+
+With blessings,
+
+***
+
+**Rabbi Aharon:** Popack, Philadelphia.
+
+**Regarding the work:** See above, letter 366.
+
+## 366
+
+B"H, 29 Mar-Cheshvan, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and refined, who engages in communal needs,
+R' Dovid, may he live, Halevi
+
+Greetings and blessings!
+
+It is surprising that there has been no word from you regarding those matters about which you wrote in your *pidyon nefesh*, even though you have been prompted about this several times. For several reasons, it is appropriate that one should know what has transpired regarding this, even after the *pidyon nefesh* has been sent. May it be the will of Hashem that you be a good messenger to bring good news, *kesivah v'chasimah tovah*.
+
+Regarding what you wrote concerning the number of students, which is small: It would be worthwhile for you to speak with your colleagues, the administrators of *Torah U'Mesorah* or *Achai Temimim* in the outlying cities, about their methods of operation to increase the number of students. Surely, if it is successful in other places, it would be appropriate for your location as well—and this is *kal v'chomer* (all the more so). And since the financial situation is good, as you write in your letter, then *al achas kamah v'chamah* (all the more so) should you increase the number of students. There is a *chazakah* (presumption) that effort expended in *ta'amulah* (outreach) does not return empty, especially since the blessings of my father-in-law, the Rebbe, rest upon all the institutions that he founded and that are conducted in his spirit.
+
+With blessings to hear good news regarding all of the above.
+
+#### ***366***
+
+**R' Dovid, may he live:** Edelman. Another letter to him—below, 390.
+
+**The students:** In the *Achai Temimim* Yeshiva in Springfield.
+
+## 375
+
+B"H, 1 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I have just received your letter from 3 Kislev, along with its enclosure. May Hashem grant you merit and success, and may all the concealments and obstructions be removed. Consequently, there will also be *nastrayenie* (proper mood), and your good thoughts will be brought into action, and you will succeed in this *shlichus* of yours—in accordance with the saying of my father-in-law, the Rebbe, *ztzukulleh"h, navga"m, zya":* "Gather physicality and sow spirituality." As has been discussed many times, the phrasing implies that one is dependent upon the other.
+
+Consequently, there is room to say that not only is success in "gathering physicality" dependent upon "sowing spirituality," but conversely, the success of the sowing of spirituality is also dependent upon the first part. This is also understood in a simple sense, as these are matters that bring one person closer to another and provide an uplifting of the spirit for the one who needs to be, at the very least, a recipient of an eighth of an eighth regarding acceptance and absorption.
+
+Surely you explain, on appropriate occasions, to those you seek out, that we are entering the month of Kislev—the month of *geulah* and miracles—and that we are commanded to bless [Hashem] "in those days, at this time," even now, for a reflection of this is renewed every single year, as is explained well in many places.
+
+With blessings for success in all the above, and regards to all *anash*, may they live.
+
+***
+
+**Nastrayenie:** Mood.
+
+**As per the saying:** See also above, Vol. 8, p. 285, and the references in the notes there; Vol. 9, p. 632; below, 376.
+
+## 371
+
+B"H, 1 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 10/11, in which you write that you are a mother of six children and there is strife in your home, and furthermore, that the health of the household members is often not as it should be, etc.
+
+In such cases, one must first and foremost **be careful and meticulous** regarding the mitzvos of Taharas HaMishpacha (niddah, the days of hefsek and taharah, a kosher mikveh, and the like). Likewise, you should have the mezuzos in your home checked to ensure they are all kosher, and the husband should have his tefillin checked. The wife should give a few coins to tzedakah before lighting candles every Erev Shabbos and Erev Yom Tov, and the husband should do the same at least every Monday and Thursday before davening.
+
+It is also necessary to clarify whether, at the time of your shidduch and marriage, you infringed upon the honor of another Jewish man or woman (meaning, if you were previously engaged to someone else and subsequently broke it off).
+
+May the Ribono shel Olam grant you the merit and success to fulfill everything written above, and from this point forward, the situation regarding the matters mentioned above will improve.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+Secretary.
+
+## 322
+
+B"H, 3 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I received your *pidyon nefesh* in due time, and I mentioned it at the holy *tziyun* of my father-in-law, the Rebbe, of blessed memory, for a *kesivah v'chasimah tovah* in its proper time and season.
+
+Regarding your question as to whether you should join the group of those studying *Chassidus* in your neighborhood, given that you already study Gemara in a group, and the one who teaches *Chassidus* in that group is, in your opinion, not a good expositor:
+
+My words have already been stated according to the ruling of our Rebbes, of blessed memory. To explain and emphasize this matter further, I will add a parable: In *Maseches Shabbos* (31a, end of the page), it is stated that if someone has a *kor* of wheat but lacks a *kav* of *chumtin* (a measure of spice/leaven to make the wheat usable), they tell him: "If you have added the *kav* of *chumtin*, it is good; if not, Heaven forbid, it would have been better had you not brought it up at all." This is an extremely sharp and alarming expression. It is understood that the fact that there are people—including some *talmidei chachamim*—who turn a blind eye to this statement of our Sages, does not change the matter **at all**. To elaborate on this simple point would be superfluous.
+
+The description of the *kav* of *chumtin* as referring to the parts of *Chassidus* and *Kabbalah* in the Torah is explained in *Likutei Torah*, *Vayikra*, in the *be'ur* to the *maamar* beginning "Lo Tashbit" (Chapter 5). If this is the case for everyone, then how much more so for one whom *Hashgachah Peratis* has arranged to have studied the teachings of *Chassidus* for some time, for whom this command of our Sages is many times more severe. On the other hand, when one truly desires to succeed in this study, one succeeds much more than in the study of the *nigleh*, because it is called the "Tree of Life," where the *sitra achra* has no hold. This is explained at length in the *Iggeres HaKodesh* of our Alter Rebbe (Epistle 26) and in the *Kuntres Eitz Chaim* of the Rebbe (Rashab), even though the opposition from the *yetzer hara* is far greater (to the point that sometimes he will even concede on other matters, provided that one does not connect to the "Tree of Life"). The two are, of course, interdependent.
+
+I trust you are keeping the three daily *shiurim* that are incumbent upon every soul, as established by my father-in-law, the Rebbe—the *Chumash*, *Tehillim*, and *Tanya*—as is well known...
+
+With blessings.
+
+## 323
+
+B"H, 3 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 20 MarCheshvan (the birthday of the Rebbe Rashab, of blessed memory): As you requested, I will mention you, your wife, and your household—may they live and be well—at the holy gravesite of my father-in-law, the Rebbe, of blessed memory, at a time of favor. This is especially appropriate as we are in the third month from the beginning of the year, the month of miracles and redemption.
+
+May it be the will of Hashem that it be fulfilled for each and every one of you that you may say, "He has granted us life, sustained us, and enabled us to reach this time," with joy and a glad heart.
+
+I was pleased to read what you wrote regarding your activities in fulfilling the verse, "When you see the naked, you shall clothe him"—whether this refers to seeing with the physical eye or seeing with the eye of the intellect. Therefore, it is surely superfluous to remind you of the end of the verse, "and do not ignore your own flesh"—which refers to increasing one’s study of the teachings of Chassidus, the inner dimension of Torah. For within the Torah itself, this is closer to the concept of the "garments" of the Torah than to the "sustenance" of the Torah (see Tanya, Chapter 5, based on the explanation in the *Kuntres Limud HaChassidus* by my father-in-law, the Rebbe, that the study of the *nigleh*—the revealed Torah—is understood and grasped completely. This is in contrast to the study of the inner dimension of the Torah, where regarding the essence of spiritual matters, a person has no [complete] grasp; see there, Chapter 11 and onwards). I am certain you will not take offense at this remark, which is based on the command of our Sages: "One only urges the diligent."
+
+Regarding what you wrote about receiving the *sicha* concerning *dashan* (charity for the year's fund), you have deposited the sum into the *Malbish Arumim* (clothing the naked) society.
+
+While I commend your efforts in this, it seems you did not examine the *sicha* there, sections 2-4. Perhaps this is why you also contributed to the general fund afterward.
+
+As you suggested, I am enclosing a check from the general fund to the aforementioned society.
+
+I was pleased by your allusion to "And David made a **name**" (*shem*), especially since David and *Shem* are interconnected and are one and the same, as both relate to the *sefirah* of *Malchus*, as explained in many places.
+
+The candles for *Ner Chanukah* have just been received; thank you. I am enclosing a reference to *Zohar Chadash*, Vol. 3, 128a.
+
+With blessings for success in disseminating the teachings of Chassidus, its guidance, and its practices, within your surroundings and among those you influence.
+
+***
+
+**Dashan:** Charity for the year's fund, a coin for every day; in the year 5715 (a regular year), there were 355 days. See also below, letters 311 and 358.
+
+**In the sicha:** Simchas Torah 5715. See also *Likkutei Sichos*, Vol. 2, p. 652.
+
+**Reference to Zohar Chadash, Vol. 3, 128a:** "He needs to acquire it with a complete measure." See also below, letter 366.
+
+## 344
+
+B"H, 3 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I have received the request for a blessing on his behalf, as his health needs to be more robust than it is at present.
+
+Surely he is following the doctor’s instructions. For the **Torah** has granted permission to the physician to heal, and this includes the method of healing—which is the primary method: "I will place none of these diseases upon you, for I am Hashem, your healer."
+
+In this month of redemption and miracles, may he return to his full strength and increase his vigor in following the path of Chassidus—the "tree of life"—and its guidance, in addition to studying its teachings, while enjoying proper health in both spirituality and physicality alike. And regarding "the wolf that tears before it and behind it" (Mechilta, Yisro), may Hashem grant him success in his avodah as well, as explained in the beginning of Likkutei Torah, Toras Shmuel, 5686.
+
+With blessings for proper health and for good tidings.
+
+## 375
+
+B"H, 4 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from Rosh Chodesh Kislev, in which you write that you wish to travel to another location because you specifically want to be with your brothers, may they live.
+
+It is well known that the great teacher, the Rambam, rules in the Laws of Divorce, end of Chapter 2, that the true desire of every individual is to fulfill the will of Hashem, which He has revealed to us in His holy Torah—the Torah of life and the Torah of eternity.
+
+Since in your current location you have the opportunity to study the complete Torah—that is, the part of Torah referred to in the holy Zohar as the "body of the Torah," and the part of Torah referred to in the holy Zohar as the "soul of the Torah" (Zohar, Parshas Beha'aloscha, page 152a)—and if you were to move from there, it is almost certain that you would not have this opportunity, it is clear what your true desire is. It is to continue fulfilling the will of the Creator, may He be blessed, by studying both the revealed aspects of Torah and the inner dimensions of Torah. And if at times—to use the language of the Rambam—your yetzer hara compels you to abandon this study with various excuses, see the Rambam there. Every Jew has been given the strength to overcome their yetzer with the help of Hashem, and the matter depends solely on one's own will. May Hashem grant you success so that you do not provoke the yetzer against yourself, and may it cease to confuse you regarding this matter.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 3,176
+
+B"H, 4 Kislev, 5715
+Brooklyn
+
+Greetings and blessings!
+
+... I do not recall clearly whether I have already written to you regarding what follows. Therefore, I will write it briefly:
+
+You are surely aware that I am searching for books of various contents, and even in various languages, provided that they have a connection to Jews and Yiddishkeit (it is understood that this does not refer to rare books). The general procedure is that these are sent as a gift to the library under my auspices, or exchanged for items published by Kehot (and consequently, Chassidic books reach individuals and places where they otherwise would not be found). Often, books of this type are found in various shuls, brought there by the descendants of learned people, while their children have no knowledge of them, and the books lie there like a stone that no one turns over, at the same time that they are lacking Chumashim, Tehillim, and the like.
+
+Therefore, it is worthwhile that you be aware of this in a diplomatic manner. If you find books of this type, surely, in consultation with anash on the spot, you will find a suitable way to bring this to fruition...
+
+With blessings for the improvement of your health very soon, and for good tidings in "gathering material" and "sowing spiritual" matters, and in all the above.
+
+#### ***3,176***
+
+**Gift to the library:** See above, letter 2,865, and the references in the notes there.
+
+**Gathering material:** See above, letter 3,075, and the references in the notes there.
+
+357
+
+B”H, 4 Kislev, 5715
+Brooklyn
+
+Greetings and blessings!
+
+In response to your letter of 23 Mar-Cheshvan, in which you confirm receipt of my letter and immediately write that it made a staggering impression on you. It is strange, for as you surely know from our Sages, people’s opinions differ; I did not write my letter as a set of decisions, but only as a possibility and a question to clarify your position. Even if you interpret your first letter as one from which your position should have been clear, if I had wanted to point you toward a different position, there is no "clever" way to do it; I would not have needed to write that my intention was that it must be so-and-so, but rather to write about both possibilities and point out the concern regarding the second, as opposed to the first.
+
+In any event, I do not understand why there is any reason to be staggered by this.
+
+The main point of my position is this: when one is in Eretz Yisrael (may it be rebuilt and established) at this time—and the situation there is known and quite clear—where at every single moment there is an opportunity to save Jewish souls in a spiritual sense, and consequently also regarding life in this world, as our Sages have said, the obligation rests upon every single Jew (though it should be felt more by those who are G-d-fearing in their daily lives). This is especially true for Anash and the Temimim, who have heard many times about the matter of *ahavas Yisrael* and how it is a great principle in the Torah, as Rabbi Akiva stated, and as our Alter Rebbe explained, that it is a vessel for "you shall love Hashem your G-d," the foundation and root of the entire Torah. Consequently, everyone must take an active part in this—even those who are abroad, and certainly those who are in the palace of the King, King of Kings, the Holy One, blessed be He.
+
+It is understood that there are, as in every matter, two ways of *avodah*. There is *avodah* whose purpose will be realized only after some time, and *avodah* whose fruits are seen immediately. There is also another distinction: *avodah* that is called in human terms "minor matters," or in the language of those who use flowery speech, "gray matters," versus *avodah* in "great and hidden things," etc. It is also understood that everyone has more desire for the *avodah* that seems destined for great and hidden things, as opposed to daily *avodah* in matters called, in the aforementioned terminology, "minor matters," which require a significant degree of *kabbalas ol*. And even then, it is a question of whether they will perform these matters with the necessary energy, as is clearly seen.
+
+Since, regarding you, I have unfortunately not heard much regarding *avodah* in daily life, at a time when those capable of this *avodah* are few in number, no one has the right to exempt himself from it—especially those who have merited the light of the teachings of Chassidus, its guidance, and its customs. Therefore, I wrote in my previous letter—as mentioned, at least by way of allusion—regarding my outlook and my reaction to this in general, and regarding activities in the vineyard of Chabad in particular.
+
+It is understood that your explanation, that you are not involved with people, is not sufficient at all. In the meantime, tens of the youth are going to the left, and those who could have brought them close to Judaism in general, and to Chassidus in particular, are not doing so. What is the use of all the excuses? It is known that even if you were to say that it is a case of total *ones* (duress), and "the Merciful One exempts one who is under duress," we do not say "it is as if it were done." In any event, regarding the recipient of the action, it is worth nothing.
+
+It goes without saying that I do not intend to diminish the importance of that matter... but as mentioned, that is a matter whose effect and fruits will be seen after some time. In the meantime, one must and is obligated to act in his surroundings in daily matters, even if they are "gray" and "minor." Just as it is explained regarding the *mitzvah* of *tzedakah* in material terms, that every man and woman is obligated in it, so too is it regarding *tzedakah* in spiritual terms—for there is no Jewish person who cannot do something in this area, and furthermore, to do so immediately and in the present.
+
+It is also understood that I do not intend to preach morality, but rather I rely on the statement of our Sages, our holy Nasi’im: "We are workers of the day; we must make things bright." It is my duty, at the very least, to inform you of my outlook on this and to hope that you will choose the good. That is, that you will take an active part in matters whose fruits will be seen in a short time, and not be satisfied with the fact that you are preparing for a "great enterprise." Once again, I emphasize that in my opinion, this does not exempt you at all from the aforementioned activities. The ruling of our Sages is well known: "Do not sit and weigh the *mitzvos* of the Torah—which is light and which is severe." That is, even in a case where the Torah testifies that this is the lightest of the light and this is the most severe of the severe. And all the more so when it is a matter that depends on the judgment of human beings.
+
+My hope is that it is superfluous—after what was written at the beginning of my letter—to say again that I do not intend at all to depress your spirit, to stagger you, or even to weaken your energy in a matter that you seem to think so much of. For my only interest is to assist in the "building," and especially to awaken you to your duty toward your immediate surroundings, to spread within them the light of the Torah—this is the Torah of Chassidus, its guidance, and its customs. And there is nothing that can stand before the will.
+
+Thank you for sending the printed article regarding my father-in-law, the Rebbe, of blessed memory.
+
+With blessings for good news in all the above.
+
+## 3278
+
+B"H, 5 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 2 Kislev, in which you write the main points of your experiences, and that you are now serving in a holy capacity at the Linas HaTzedek synagogue.
+
+Surely you have heard the saying of my revered father-in-law, the Rebbe, which he said in the name of the Tzemach Tzedek in his address to a shammash: "Call to the sun (shammash) and light will shine — call to the sun and light will shine." My revered father-in-law, the Rebbe, explained this to mean that the work — the *avodah*— of a shammash in a shul must be to help others daven with heart, to learn as one ought, to recite Tehillim after davening, and to expand the *shiurei limud*, etc. When this is done, there becomes *ohr* — light — in the shul. And the attribute of the Ribono shel Olam is *middah k’neged middah*; when one brings light to the place that the Ribono shel Olam calls a "house of prayer," the Ribono shel Olam brings light into the homes of those who exert themselves in this. And as is explained in several *sefarim*...
+
+With blessings.
+
+#### ***3278***
+
+**The saying:** See also above, Vol. 8, Letter 2716, and the references in the notes there.
+
+## 337
+
+B"H, 5 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I recently received your response to my letter. However, even in your second letter, I cannot find the basis for your lack of simcha, nor for your writing that "suddenly everything fell apart." Since this is something without a foundation, it has no true existence—it came into being overnight and will perish overnight. You must simply avoid provoking such thoughts within yourself, as they are contrary to human nature and contrary to the instruction of our Torah, the Torah of life, which demands of every single person that the avodah of Hashem (which, in its truth, is possible and must be present in every single moment of a person’s life) be performed specifically with simcha.
+
+Surely you also know from experience that we see tangibly that if it is sometimes difficult to fight against a certain mood, the advised counsel is to divert one’s attention from that state. This should not be done through a process of fighting, but rather by occupying oneself with other matters and other thoughts. The general motto in this regard is: "Hashem made man upright, but **they** have sought many accounts." Since the matter comes from "they" (the *hemah*), those same *hemah* can easily nullify it.
+
+As you requested, I will mention those you wrote about at the holy resting place of my father-in-law, the Rebbe, of blessed memory.
+
+I will conclude with some advice, since you asked for it: divert your attention from all matters of *cheshbon hanefesh* (self-analysis) and walk your path in life with confidence, for *hashgacha pratis* accompanies each and every one of us at every single step. This is true not only in matters that appear to us to be of great value, but in every single detail of life, as is well known that this is one of the foundations of the teachings of the Baal Shem Tov, which was later explained at length in the teachings of Chassidus Chabad.
+
+Awaiting good news.
+
+## 353
+
+B"H, 5 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 27/11, in which you write about the weakness in your learning and that time is being frittered away:
+
+One of the pieces of advice is to learn *b'chavrusa*, at least with one other person. Beyond the fact that Torah is acquired through the bonding of friends, the very act of arranging to meet with someone else creates a stronger commitment. For this reason, it is understood that even if it is not always the same person—and certainly if it is not a group of people—at the very least, even if they change, it is better than being alone without this. And there is nothing that can stand in the way of will.
+
+Regarding what you wrote about the condition of your wife, *tichyeh*, I reiterate my blessing that Hashem should fulfill her days of pregnancy properly and with ease, and that she should give birth to a healthy child, at the proper time and in the proper manner, with ease.
+
+With blessings.
+
+## 351
+
+B"H, 6 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...It is surprising that it seems the study of Tanya is somewhat neglected, at least both in the yeshiva curriculum and in personal study. Although I do not know for certain what the arrangements were in Otwock and Warsaw, surely this study held its proper place there as well. And surely you will rectify this soon...
+
+## 3,282
+
+B"H, 6 Kislev, 5715
+Brooklyn.
+
+To the esteemed Rabbi, the G-d-fearing, Torah-learned, and diligent worker for the needs of the community, full of energy, etc.,
+Rabbi Yoel, may he live.
+
+Greetings and blessings!
+
+I received your letter with pleasure, in which you inform me of the *Melaveh Malkah* being organized during the days between 19 Kislev—the *yom hilula* of the great Maggid and the victory of the teachings of Chassidus with the redemption of our Rebbe, the author of the *Tanya* and *Shulchan Aruch*—and the days of Chanukah, the victory of the "light that is in Torah," as per the precise wording, "to make them forget **Your Torah**."
+
+May the inspiration from the *Seudata d'David Malka* (the meal of King David) serve as a catalyst, for "He has redeemed my soul in peace from those who battle me, for there were many with me." According to the interpretation of the *Yerushalmi*, even the men of Avshalom—the opposing side—were, in truth, "with me," in that each person should do their part in spreading the wellsprings of the Baal Shem Tov outward to the fullest of their ability. For in the inner dimension, "there were many with me" means that even those who openly oppose this, in the depths of their hearts, recognize the inner dimension of Torah, the *nishmata d'oraita* (the soul of the Torah). And when one opens an opening in a Jewish person, even as small as the eye of a needle, the *Ribono shel Olam* assists him and opens it as wide as the entrance of the *Ulam*.
+
+With respect and blessings.
+
+***3,282***
+
+**Rabbi Yoel:** Heilperin.
+
+383
+
+B"H, 6 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, who engages in communal needs, R' Shlomo, may he live.
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your letter from the 25th of Mar-Cheshvan and the 3rd of Kislev, along with the enclosures. I trust you have received my letter in response to your previous one, as well as the letters to the students enclosed therein.
+
+2) Surely one should consider the possibility of arranging that in all the students' classes (and there is room to say even for the female students), they should study the laws and halachos necessary for daily life.
+
+For ultimately, this is the whole of man, and the essential thing is not the study, but the deed. It is understood that my intention here is not only for Casablanca, but for all the institutions (if I had the strength, I would institute this in all educational institutions for the sons and daughters of Yisrael throughout the world). It would be appropriate for everyone to discuss this together and implement it in the Oholei Yosef Yitzchok schools in Morocco.
+
+Regrettably, there is not yet a booklet of specific laws such as these. However, one can select certain chapters from the Kitzur Shulchan Aruch, and within those chapters themselves, there are paragraphs that can be skipped. To strengthen the study of the aforementioned, it is worthwhile to conduct examinations specifically on the necessary laws, and I rely on your understanding.
+
+3) Regarding the city of Agadir, I have not yet received any information on this.
+
+4) Regarding the *Reshimas HaMaasar* (The Prison Diary): Your suggestion is correct to write at the top, "A compilation for the 4th, 5th, and 6th [of Kislev]," and in the middle of the title page, "Part I, II, III." It goes without saying that the dedication to the merit of the donor, which was found in the booklet printed here, has no place in the booklets printed by you.
+
+I do not know how many booklets you will need in Morocco, but it is worthwhile to print a quantity such that you can send 200 booklets to Eretz Yisrael, may it be built and established—as a gift in the name of Agudas Chabad, 22 Frug Street, Tel Aviv—and ten copies to here.
+
+Surely you are making the necessary preparations for the upcoming Yomim Tovim of 10 and 19 Kislev, which are approaching us and all of Yisrael for good, and may Hashem grant you success.
+
+With blessing,
+
+**M. Schneerson**
+
+## 3504
+
+B"H, 6 Kislev, 5715
+Brooklyn
+
+To the groups of young women,
+May they live,
+
+Blessings and peace!
+
+I have just received your letter from the 18th of Mar-Cheshvan. It gave me pleasure to read in its conclusion that you are continuing with your farbrengens, lecturing before them, and explaining matters that are not yet clear to them.
+
+It is understood and simple that I protest with all my might against the expression in the conclusion of your letter: "the sea of coldness that is already within us." And surely, even according to your own perspective, there is more of a poetic flourish here than an accurate description of the situation as it truly is.
+
+Nevertheless, I specify my protest even against the use of this expression as a figure of speech, since in most cases the *yetzer hara* that is in every person uses this claim to explain to them that there is little hope for them to change, given that their situation is such-and-such, and consequently, it is not worth fighting when victory is so distant and difficult.
+
+The basis for my protest is this: In all those who come from a Chassidishe Jewish home, or from a Jewish home in general, who in the very recent past stood in a movement of *mesiras nefesh* for several months—and certainly if they stood for several years—it is impossible that this should not be rooted in the soul. It is impossible that this should not pass over to the sons and daughters as well, for the traits of the parents—especially those that find expression and revelation in daily life for a prolonged period—are fixed in the soul of the sons and daughters and become a part of them. And even when they transition to other living conditions that do not require *mesiras nefesh* at every step, this is not felt openly, but in the interiority of the soul, it remains intact. For anything acquired through spiritual upheavals and difficult life conditions cannot be uprooted or eradicated, even by will. And certainly, it is impossible for it to be lost of its own accord.
+
+And all these things apply to you: Your parents stood for decades in a difficult struggle and emerged from it in complete victory. And a large portion of you—the women themselves—also took part in this struggle, not to be assimilated into the environment, whether actively or, at the very least, passively. These traits are engraved upon the tablet of your hearts and within the depths of your souls. However, after transitioning to more comfortable living conditions, where the imagination misleads one into thinking that there is no need to struggle now for one’s existence and the truth of one’s reality—since no one is persecuting you or forcing you openly to transgress your religion, *chas v'shalom*—then, as is the nature of human beings, the senses that warn a person when danger lurks for their existence fall asleep.
+
+Consequently, the danger of an enemy disguised in the garments of a friend is much greater. The same applies to your situation: If people were to approach you with open talk regarding the fundamentals of religion, you certainly would not even enter into negotiations or arguments; you would answer **no** simply and firmly. But since they begin with matters that are—in your eyes—minor, and with a slight deviation from the King’s highway—the King of the world, the *Ribono shel Olam*—there is room for people to deceive **themselves** and say, "For me, there is no risk in deviating slightly from the paved path, for this is only a slight deviation, and even in this, whenever I want, I will return to the path—the path of our ancestors, which is the path of Torah and *mitzvos*."
+
+The saying of my father-in-law, the Rebbe, is already known: When one finds a person from the capital city wandering in a dense forest full of wild beasts and human predators, he did not arrive at this state suddenly. It is impossible for someone who is in the king’s capital to find himself an hour later in a distant forest. The "order" is that first he left the city, and then he deviated from the King’s highway, the paved path, by a hair's breadth. And since he began with a deviation and walked in that direction, then, even without feeling it, he begins to deviate more and more, wandering from the road to the trail, and from the trail to the path, until finally, he finds himself far from any settlement or even from the ways of human beings, and he sees that he is surrounded by wild beasts and exposed to danger at every step.
+
+The analogy is understood.
+
+In these days before the bright day of 19 Kislev, the day of the liberation of our *Alter Rebbe*, who was imprisoned for the desire to disseminate the wellsprings of the Baal Shem Tov and the teachings of Chassidus, its guidance, and its conduct to every single man and woman of the Jewish people—whose liberation is also the victory of his approach—may it be the will of the *Ribono shel Olam* that you understand yourselves. Not your external garments, but your inner selves and the point of your soul, which is awake to everything holy in Israel, to the Torah and all its *mitzvos* and guidance. May you find enough strength in your souls not to be ashamed before the mockers, and to show in your entire way of life that you are proud of having been educated in Chassidishe homes and that you also behave accordingly in your **daily** life. And the matter depends on nothing but will.
+
+With blessings for success in this work—soon and speedily—which will also bring success in all your affairs.
+
+## Jaffa
+
+B"H, 7 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 26 Marcheshvan, the core point of which begins with the question: "Why does the way of the wicked prosper?" It is surely unnecessary to elaborate that this is an ancient question, dating back to the time of the giving of the Torah—and close to it—as cited in Berachos 7a. My sainted father-in-law, the Rebbe, wrote to one of the Temimim: "You, too, are mired in this question, 'Why,' etc." He concludes there in his letter that one must occupy oneself with fulfilling one's task, not with answering questions; the resolution to this belongs to the Ribono shel Olam. This is especially true since, for the time being, we have not seen anyone for whom contemplating this question has been of any benefit, whether in material matters or in spiritual matters.
+
+In response to your letter stating that you have no one with whom to consult, since everyone has a *peniyah* (personal bias)—you know that when consulting someone, you can certainly take that into account as well. Furthermore, in such matters it is said, "In the multitude of counselors there is safety" (Mishlei 11:14), for you are not obligated to accept the advice as a matter of *kabbalas ol*...
+
+With blessings.
+
+#### ***Jaffa***
+
+Published in Likkutei Sichos, Vol. 16, p. 568, and completed based on the secretariat's copy.
+
+**"You, too, are mired in this question":** See also above, Vol. 9, Letter 2891; below, 303.
+
+## G'fo
+
+B"H, 7 Kislev, 5715
+Brooklyn, N.Y.
+
+Greetings and Blessings!
+
+In response to your letter from the 3rd of Parshas Vayeira, in which you write that you have already arrived... and have begun your work. May it be the will of Hashem that everything should proceed properly and with success. It is surely superfluous to remind you of what is explained in the Shulchan Aruch of our Alter Rebbe and the Responsa of the Tzemach Tzedek, that a shochet in these times must be a G-d-fearing person to the highest degree.
+
+The dear friend, the G-d-fearing man, [name omitted], may he live, has surely shown you the letter I wrote to him regarding the necessity of engaging in the dissemination of Yiddishkeit in general, and the dissemination of Chassidus in particular, in your current location. You have surely seen the letter of my father-in-law, the Rebbe, of blessed memory, regarding the content of the verse, "The steps of a man are established by Hashem, and He delights in his way," and "According to the camel, the load." Since, according to your letter, there are three of you in your location now who have merited to taste the teachings of Chassidus Chabad, "by the mouth of two or three witnesses shall a matter be established"—the matter of this Torah, provided that you act upon it with the appropriate vigor.
+
+Regarding the laws of the festival, one must prepare in advance, in a manner appropriate for the upcoming days of 19 Kislev and the days of Chanukah. The victory and the revelation of the light within this Torah—this is the inner dimension of the Torah, as explained in the discourses on Chanukah in several places.
+
+I send my regards to all who are with you, and may you all gather together on the bright day, the day of our redemption and the liberation of our souls, the upcoming 19 Kislev.
+
+## 3,127
+
+B"H, 7 Kislev, 5715
+Brooklyn.
+
+To the esteemed and distinguished, etc., Rabbi Avraham, Shochet and Bodek,
+
+Shalom and Bracha!
+
+In response to your letter of 1 Kislev: One should not be discouraged by the fact that not everyone who promised to attend the Torah shiur is coming. It is already known from the ruling of our Sages (Berachos 5a) that there are three things that are acquired through suffering, one of which is Torah. However, there is a presumption regarding *ta'amulah* (outreach) that it does not return empty, and with appropriate *ta'amulah*, the number of participants in the shiurim will certainly increase.
+
+It is surely unnecessary to remind you of the appropriate preparation for the *yom habahir* (bright day) of 19 Kislev, the day of our redemption and the salvation of our souls—the liberation of our Alter Rebbe, and with him, the victory of the teachings of Chassidus in general and the teachings of Chabad in particular. Since Divine Providence has brought you to a place where you are, for the time being, one of the Chassidim of Chabad, you must also fulfill the task of *hafatzas hama'ayanos chutzah* (spreading the wellsprings outward). You are surely aware of what the Baal Shem Tov said, that this is the preparation and the vessel for the complete and true redemption of all Israel. May it be the will of Hashem that the *farbrengen* be successful and result in good resolutions for Chassidus for the entire year.
+
+Give my regards to everyone with you, and especially to the esteemed and distinguished Rabbi Chaim Herman, Shochet and Bodek (whose silence is surely a sign that all is well with him).
+
+#### ***3,127***
+
+**Rabbi Avraham:** Leifer, Asmara.
+
+## 3288
+
+B"H, 7 Kislev, 5715
+Brooklyn.
+
+To the esteemed and distinguished individual, occupied with the needs of the community, Moreinu Harav Yaakov Eliezer, may he live and be well,
+
+Greetings and blessings!
+
+It is surprising that since you wrote on the eve of last Rosh Hashanah, no letters have been received from you. Surely, in this new year as well, you are occupied with the work of Heaven—education in the purity of holiness—within various circles. It is already known from our Sages (Bava Metzia 85a) that "greater is he who teaches his neighbor’s son Torah, and greatest of all is he who teaches the son of an *am ha'aretz* Torah"—see there.
+
+It is surely unnecessary to arouse you to prepare for the arranging of a suitable *farbrengen* on the bright day of 19 Kislev, the day of the redemption of our Alter Rebbe, and "our redemption and the salvation of our souls," in the words of our holy Nasi. [I encourage you] to participate personally in this *farbrengen* and to extend the *farbrengen* into good resolutions from this "Rosh Hashanah of Chassidus" for the entire year to come. And when one opens [a path] the size of the point of a needle, Hashem opens [a path] like the entrance of a hall...
+
+With blessings for success in all of the above, and with regards to all who seek your welfare.
+
+#### ***3288***
+
+**Moreinu Harav Yaakov Eliezer:** Friedrich, Antwerp.
+
+## 389
+
+B"H, 8 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished individual, occupied with communal needs, R' Nissan, may he live:
+
+Greetings and blessings!
+
+Your telegram regarding his safe arrival was received in due time, as was your letter of Rosh Chodesh Kislev and the one preceding it. Many thanks for the good news contained therein. May it be the will of Hashem that, in accordance with the saying of my father-in-law, the Rebbe, he proceeds from good to better as soon as possible regarding the condition of... [may he live], and consequently, in the nature of the good news regarding him as well.
+
+It is somewhat surprising that, despite what I spoke to you about before you traveled—that you should not burden... [may he live] with matters of yiras shamayim, etc., etc.—and considering that the Torah has granted permission (which also means the power) to a physician to heal, and thus his instructions in this regard are by the power of the Torah, it nevertheless appears from your letter that you are not being careful in this. Surely this, too, will turn out for the best, but nonetheless, this is not the proper conduct at all. In any event, from here on in, you must listen to the physician’s instructions in this matter...
+
+With regards to all anash, I await good news,
+
+**M. Schneerson**
+
+***
+
+**R' Nissan:** Nemnov. Additional letters to him appear above in Vol. 9, 2741, and in the references noted there.
+
+See below, 391.
+
+**Regarding his safe arrival:** From his visit during the month of the holidays to the Rebbe.
+
+## 303
+
+B"H, 10 Kislev, 5715
+Brooklyn
+
+To the Administration of Agudas Chabad in the Holy Land, may it be rebuilt and established,
+May they live 
+
+Peace and Blessing!
+
+I trust you received my previous letter in due time and will confirm its receipt.
+
+2) Enclosed is an excerpt from my letter to an individual, which would be appropriate to read at a meeting of Agudas Chabad...
+
+3) I have already suggested and requested some time ago that you take an interest in meeting with those who visited me while they were in the United States, as there are several matters that the aforementioned individuals promised to address. It is understood that it would be of great benefit if they—the aforementioned individuals—themselves state that they made these promises, as then they will certainly fulfill their commitment promptly. Apparently, due to their silence, they have not done so until now. It is a pity regarding the past. In any event, they will surely endeavor to fulfill this in the future. It is understood that this includes, at least to some extent, a rectification of the past, since it is easy to find some pretext to visit those who were in the United States some time ago.
+
+In the middle of the conversation, steer the matter toward their visit here and the content of the discussion that took place here. Specifically, it is of interest to make an effort to meet with Mr. Ben-Zion Dinburg and with Mr. Burg. It goes without saying that it is highly necessary that they subsequently inform us here—in detail—about the meeting and the conversation...
+
+5) Although I am writing regarding this to the Village Committee as well, I am mentioning it in this letter too, due to the great importance of the matter. It is that one must take into account that those who settle in the village will also have an opinion regarding the management of the village and its affairs. Even if, prior to settling, they will certainly agree to all matters—or at the very least will not highlight the aspects in which they differ, as it is a Chabad village—nevertheless, as time passes, and in a relatively short time, it is impossible that this will not move from concealment to revelation. Consequently, one must address these matters in advance in an appropriate manner. From this, it is also understood that those who highlight from the outset that they do not agree with a Chassidic way of life, etc., should settle in peace and pleasantness in a place where peace will dwell between them and the other residents...
+
+6) It is appropriate to encourage Anash who have taken part in public communal work in general, and those in the vineyard of Chabad in particular, in our country in the previous generation, to record their memories while the matter is still preserved with them. Surely, over time, the collection of these memories will also be of benefit to the many.
+
+7) In continuation of the above, Rabbi Aharon Eliyahu Romanov-Gershuni is also interested, according to his letter, in such matters. It is appropriate that those who possess such records should be in contact with him, and together they will find a way to utilize the memories for the greatest benefit.
+
+With blessing,
+
+On behalf of the Rebbe, shlita,
+
+A. Quint
+Secretary
+
+## 3191
+
+B"H, 10 Kislev, 5715
+Brooklyn.
+
+To the esteemed Rabbi, G-d-fearing, distinguished, and learned, who engages in communal needs, Moreinu HaRav Yona, may he live:
+
+Peace and blessing!
+
+...Regarding what you wrote in your letter concerning the campaign for the study of Halacha, etc., I must express my astonishment at all those who are able to act upon what follows below, which is:
+
+In the vast majority of cases, there is a lack of knowledge regarding the Halachos required for **day-to-day life**. This means, quite simply, the Halachos of *brachos* (blessings on food), interruptions during *davening*, *muktzah* on *Shabbos*, and so on. To my great sorrow, and between us, the more a *bochur* or *avreich* increases his knowledge in Torah, the less he knows of the aforementioned matters. Yet it is a known ruling of the *Mishnah* that "it is not the study that is the primary thing, but the action," especially actions concerning matters that arise for a person every single day, where, in most cases, there is no time to look into a *sefer*, but one must decide on the spot. Despite all this, we do not see people exerting themselves in the study of these Halachos. Not only do they not exert themselves, but it has become a matter of "why should I," as if it were a part of Torah that belongs only to the unlearned or to women—even though it is well-known and publicized that this was among the first enactments of Moshe Rabbeinu: to study the Halachos of each *Yom Tov* before the *Yom Tov*, precisely for the reasons mentioned above. See *Shulchan Aruch* of our Alter Rebbe, beginning of *Siman* 429, and in *Hilchos Talmud Torah*, end of Chapter 1, and the language of our Alter Rebbe in the *Iggeres HaKodesh* at the end of the *Tanya*.
+
+May it be Hashem’s will that they begin this as soon as possible, for every single day has its own work.
+
+With respect and blessing.
+
+## 392
+
+B"H, 10 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+Your letter dated 25 Mar Cheshvan has just been received; it is surprising that it took so long to arrive. Regarding what you write—that for various reasons there is an inclination to postpone the wedding until after the month of Kislev—in my opinion, this is not correct at all. It is worthwhile to make every possible effort for the wedding to take place in the month of our redemption and the liberation of our soul, the third month from the beginning of the year. When you and your bride-to-be truly desire this, you will certainly find a suitable way to bring this to fruition through paths of peace and pleasantness.
+
+Regarding the manner in which the wedding should be conducted—whether to increase the number of guests, etc., which, according to your letter, would involve incurring significant debt—in my opinion, this is not advisable. The ruling of the Rambam in *Hilchos De'os*, Chapter 3, is well known: that the middle path is the straight and correct path. This is also understood through the explanation of Chassidus, that specifically the middle line is the *beriyach hatichon* (central bolt) that ascends to the highest heights.
+
+With blessings for good news regarding all the above, as soon as possible.
+
+***392***
+
+**Not correct:** See above, Letter 2873, and the references in the notes there.
+
+393
+
+11 Kislev, 5715
+Brooklyn
+
+To the esteemed Chossid, G-d-fearing, learned in Torah and diligent in his work, R’ Yehoshua Shneur Zalman, may he live.
+
+Peace and blessing!
+
+After a very long hiatus, I was pleased to receive your letter from Rosh Chodesh Kislev, in which you write about the current situation in the yeshiva. Regarding your question as to whether to force some of the students to specifically come to daven in the yeshiva as well: it is understood that coercion is not the way to go. While it is appropriate to speak about this during a time of favor and at a farbrengen—and it would be best if this were done not only by the yeshiva administration, but also by anash who are not part of the administration—one should not force them in matters where, if not done, etc. On the contrary, the approach of "the right hand draws near" will be much more effective than that of "the left hand pushes away."
+
+Regarding the study of Chassidus for the aforementioned students: in general, the point is as stated above. Since this matter is of greater consequence, the efforts in this area must be more frequent. You should explain these matters based on what is brought in the Zohar, Parshas Beha'aloscha 152a, regarding the concept of *nishmasa d'oraysa* (see Bach to Orach Chaim, 47), as well as what is explained in the *Kuntres Limud HaChassidus* of my father-in-law, the Rebbe, and the *Kuntres Etz Chaim*, etc.
+
+As for the well-known question in such matters—that if this is the case, what did they do in previous generations?—the answer is simple, based on what is explained in many places, including *Likutei Torah*, Bamidbar, in the discourse *Nachash HaNechoshes*, page 61d. It explains that according to the Torah, the Shema is sufficient, while according to the Sages, one must also recite two prayers every day, and **nowadays** they have established an obligation for Ma'ariv as well. Later, when hearts diminished and the darkness grew, Pesukei D'Zimra was added, and so on.
+
+It is understood and simple what the response would be if someone were to come and say that it is enough for him to conduct himself according to the custom of the tzaddikim in the days of the Beis Hamikdash, and consequently, he will daven without Pesukei D'Zimra and even without the blessings of the Shema, etc. All these points apply equally to the study of Chassidus. It is similar to what is brought in *Iggeres HaKodesh* in the name of the Arizal, that in **this** generation, it is a mitzvah to reveal this wisdom. From generation to generation, the necessity to reveal it more increases, which is why the teachings of Chassidus have spread further and have been clothed in terms that are understandable even to the human intellect. You will surely find the appropriate language suited to the sensibilities of the soul and the aforementioned students. As mentioned, begin the campaign during farbrengens, and at a time of favor, it is likely to bring the greatest benefit.
+
+Enclosed is a copy of my letter to one of the institutions of anash. Everything stated therein applies also to the anash in Australia, and you will surely find the words to explain it to them.
+
+Continuing with the above: regarding what you wrote about the lack of proper involvement due to the burdens of earning a living, it is explained in the teachings of Chassidus—and it is also understood by logic—that in matters of livelihood, there must be two parts: 1) That the livelihood be prepared Above. 2) That it be drawn down below, within "children, life, and sustenance."
+
+As explained at length in many places, including the *Kuntres U'Ma'ayan Mibeis Hashem Yetzei*, a person who says he has no time to engage in the first part because he is busy with the drawing down below, etc., has no logical basis for this. For the livelihood to be allotted to him Above, it is specifically through engaging in matters of Torah and mitzvos. This requires no explanation. This is especially true regarding anash and the Temimim, whom Divine Providence has sent to a specific country on a specific mission. What benefit will come from increasing the burden, since this increase diminishes, G-d forbid, the fulfillment of the mission, and consequently, also diminishes the allotment of livelihood Above, G-d forbid?
+
+There is no need to elaborate on a distressing matter.
+
+Regarding students coming from homes that are not yet so observant: it is understood that one must strive to draw them close as much as possible. There is no room for a question on this.
+
+Regarding bringing students and also a Rosh Yeshiva from Eretz Yisrael, may it be rebuilt and established: you must consult with those who know the Rosh Yeshiva and know his nature, as well as the students, and consequently, you will be able to advise them regarding the benefit they will bring to your country at this time.
+
+You will surely utilize the days of 19 Kislev and the upcoming Chanukah for these matters as well, and Hashem will grant you success.
+
+With blessing and regards to all anash.
+
+## 394
+
+B.H., 11 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+After the interruption, I was pleased to receive your letter of 8 Kislev, in which you write that your state of health is better. I am of the same opinion as the professor: that this stems from emotional distress, or to express it more accurately, it stems from a lack of sufficient strength in *bitachon* in Hashem Yisbarach. He is not only the Creator of the world, but also the Guide of the world, and He leads the world with *hashgacha pratis* over every single detail of a Yid’s life.
+
+When one contemplates this, and does so with strength, one arrives at the conviction that "Hashem is with me, I will not fear; what can man do to me?" To the point that Dovid Hamelech, even when finding himself in an improper situation, says, "I will fear no evil, for You are with me." Consequently, Dovid saw victories in all matters that were not as they should be.
+
+The fact that this narrative was placed in the Torah—and Torah is from the word *hora'ah* (instruction)—is to serve as a lesson for every Yid, in every place where he finds himself: that if he holds fast to the firm thought that "You are with me," it will bring about the end of the verse as well: "Surely goodness and kindness shall pursue me all the days of my life." May Hashem grant you success so that you reach this resolution as soon as possible, and may Hashem lead you, and conduct Himself with you, in a way that is good, both visibly and revealed, both in spiritual matters and in material matters. May you be able, with a calm mind and heart, to take part in *tzorchei tzibbur* for the strengthening of Yiddishkeit in the spirit of *Yisrael Sava* in your community.
+
+Enclosed is a *choveres* for 19 Kislev, which you will surely utilize in an appropriate manner to acquaint the members of your community with its content.
+
+With blessings.
+
+## 305
+
+B"H, 11 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and refined, involved in communal needs,
+R' Yosef Yehuda, may he live.
+
+Peace and blessing!
+
+...Regarding what you wrote about your good custom of completing the entire Book of Tehillim every day, and likewise on Shabbos, and your concern that because of this you might need to reduce your time set aside for Chassidus or diminish your avodah:
+
+In my opinion, you should continue with your good custom of reciting Tehillim as stated above. This is based on what is explained in the letter of my revered father-in-law, the Rebbe, regarding the great importance of reciting Tehillim. Since, aside from the night hours until chatzos, it is permitted to recite Tehillim throughout the entire day, if you do not have enough time in the morning, you can complete it during the other hours of the day. May Hashem grant you success.
+
+With blessing.
+
+P.S.
+In a separate shipment, I am sending you the booklet and the kuntres for 19 Kislev. Surely you will merit to share their contents with the public.
+
+## 397
+
+B"H, 11 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...In response to your question regarding traveling to study at the Yeshiva Tomchei Temimim in the United States: this is incomprehensible. Since Hashem Yisbarach has granted you the merit and success to be a shaliach to bring Chassidus to the students of the yeshiva in Manchester—thereby fulfilling the will of our Nasi that "your springs shall spread outward"—what more is needed, and what better avodah could there be that would make one want to leave it? Therefore, you must strengthen yourself in this avodah and perform it with joy and a glad heart, for then it will be with true success. It is well known the promise of Rabbeinu HaZaken that through this, one’s mind and heart become refined a thousand times over. May Hashem Yisbarach grant you success.
+
+Enclosed is the booklet for 19 Kislev and the kuntres for the upcoming 19 Kislev.
+
+With blessings.
+
+## 397
+
+[12 Kislev, 5715]
+
+...Regarding your question concerning the fulfillment of the mitzvah of *onah*, given that he is not, etc. It is surprising that such a question would even be asked, as this is an obligation of the husband and also a matter of *mitzvah*. See also *Torah Or*, *Megillas Esther*, page 92, end of side d.
+
+Following this, I am sure you will inform me regarding the *shalom bayis* that prevails within the walls of your home. I hope that you will bring good news in this regard as well, especially if you make the effort. For peace is great, as it is the vessel that holds the blessing of the *Ribono shel Olam* to fill everything that is lacking and in need of rectification...
+
+#### ***397***
+
+Printed in *Likkutei Sichos*, Vol. 21, p. 455.
+
+For its content, see also letter 331 below.
+
+## 398
+
+B"H, 12 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and meticulous in communal affairs, R' Shimon, may he live.
+
+Peace and Blessing!
+
+In response to your letter of 3 Kislev and the one preceding it: Even after your explanation in the letter, the reason for your long silence remains unclear, but there is no point in crying over the past.
+
+Regarding your question about the customs of Yahrtzeit—that one does not lead the davening on the Shabbos preceding the Yahrtzeit, etc.—if you are asking whether to prevent those who wish to lead the davening, I have never heard of such a thing, and I do not understand the benefit in it.
+
+Regarding placing drawings on the Amud, as well as various inscriptions: In my opinion, there is a concern here of distracting the one davening and causing a lack of kavanah during the tefillah, as what is written on the Amud and the Bima does not always align with the tefillah.
+
+As for the fact that in many shuls they are not careful about this, one could argue that their reasoning is that because of the familiarity with the inscriptions and drawings, they are not concerned that it will cause distraction, similar to the explanation regarding Nesias Kapayim, that if one is accustomed to it in his city, it is different. Nevertheless, in my opinion, this is only a partial justification, since those who lead the davening change, and among them are those who do not even daven in this shul and have not seen the drawings even incidentally. This requires further study; see also Orach Chaim, section 90, paragraph 23.
+
+Regarding your question about saying Barechu before Aleinu on the day of Krias HaTorah: I have never heard of such a custom, and surely you will explain it in greater detail, including whether this is intended for the Shacharis davening of Mondays and Thursdays, etc.
+
+Regarding the Selichos on Tzom Gedaliah: It seems to me—and this is how I have conducted it in the shul here—that "Zechor Rachamecha" should be recited according to the order of all the days of Selichos, and not as it is printed in the Selichos booklets, nor as it is done on Erev Rosh Hashanah.
+
+It is also understood that if they are recited during the davening, one should not repeat "Ashamnu," etc., according to the custom based on the Arizal, that it should be said only once.
+
+With blessing.
+
+## 399
+
+[12 Kislev, 5715]
+
+...You are surely preparing properly for the celebration of the auspicious day of Yud-Tes Kislev, which is approaching, and you will likewise utilize the days of Chanukah in this direction. As is explained in the *maamarim* regarding Chanukah, the opposition—and likewise the miracle of the pure, pressed olive oil—was directed against the **Maor** (the Luminary), the "Luminary of Torah," which in our generation has been revealed and explained in the teachings of Chassidus.
+
+#### 399
+
+Published in *Likkutei Sichos*, Vol. 15, p. 525.
+
+## 323
+
+B"H, 12 Kislev, 5715
+Brooklyn
+
+To the Administration of Tzeirei Agudas Chabad in the Holy Land, may it be rebuilt and established,
+Tel Aviv Branch,
+May they live,
+
+Peace and Blessing!
+
+In response to your letter of 3 Kislev, accompanied by the report of your activities during the past months of Elul and Tishrei (it is surprising that it was delayed so long, especially since even now it arrived in extreme brevity).
+
+Surely the esteemed Chossid, the diligent worker, R' Y.L. HaKohen, may he live, has conveyed the contents of my letters to him regarding the parts pertaining to Tzeirei Agudas Chabad in general. Based on what I wrote to him—that it is not proper protocol to reply to the administration of Tzeirei Agudas Chabad before receiving a letter from them directly—I am compelled to include this in my response to his aforementioned letter, even though it concerns all the members of Tzeirei Agudas Chabad. Consequently, this letter of mine follows the aforementioned, and surely your reply will address both that and this letter of mine.
+
+Enclosed is a check as a contribution and participation in the publication of the journal and the campaign for the upcoming 19 Kislev. If it is possible without undue difficulty, it would be worthwhile to utilize the days of Chanukah in an appropriate manner as well. This is especially so in light of what is explained in the *maamarim* of Chanukah: that the opposition was directed specifically against the "light of Torah." As the phrasing indicates, "to make them forget **Your Torah** and to force them to transgress the **statutes** of Your will"—with the addition of the *chaf* [in *chukecha*], specifically referring to *chukim*.
+
+In general, one must **seek out** opportunities for outreach.
+
+If it would be beneficial for your work to provide prizes from the publications of Kehot—naturally without excessive expense and in a symbolic manner—let me know the names of the books, the quantity, the manner in which you wish to use them, and the expected benefit.
+
+It is surprising that there is no mention of the assistance from the various offices, which you were working on some time ago.
+
+Surely you are aware of the "Chazon Yeshaya" organization, which, according to reports, is akin to the *Tiferes Bachurim* of our country in the past. It would be worthwhile for you to consider the possibilities of such work on your part as well; according to rumors, that organization is developing with almost no financial expenditure.
+
+I would certainly like to know the reasons—at least the overt ones—for the interference with the study of *Tanya* in the yeshivah...
+
+And have you spoken about this with...? I believe he is the influential figure there, having been in Rostov and merited to see the Rebbe (Rashab) and the Rebbe (Rayatz), of blessed memory. Consequently, it is hard to believe that he would oppose it.
+
+It would be worth considering whether there is benefit in publicizing your work in appropriate newspapers. Seemingly, there would then be room to mention the activists and local supporters, which would surely increase their desire and willingness to assist you in the future.
+
+With blessings for success in your holy work, especially in honor of the bright day of 19 Kislev. Because of that *mesiras nefesh* for the teachings of Chassidus, it was decreed in the Heavenly Court that in every matter of Torah, *yiras shamayim*, and good character traits, the hand of those who are connected to him and follow in his footsteps shall be uppermost (see *Kitzurim VeHe'aros LeTanya*, end of page 122).
+
+And with blessings for the specific matter.
+
+***
+
+**323**
+
+From a copy.
+
+**My letters to him:** Above, 319.
+
+**The journal:** *Chabad*, Issue 7, 19 Kislev 5715.
+
+**Akin to Tiferes Bachurim:** See also above, ibid.
+
+**Decreed in the Heavenly Court:** See also above, Vol. 8, Letter 2,395, and the references in the notes there. Below, 323.
+
+## 311
+
+B"H, 13 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and refined, engaged in communal needs,
+R' Shlomo Chaim, may he live.
+
+Greetings and blessings!
+
+...I was pleased to hear that the avreich... may he live, and likewise the avreich... may he live, are giving shiurim. Surely, the manner of their shiurim is such that it not only does not weaken their strength in the study of Gemara, Tosafos, and Poskim, but on the contrary, it will further assist them in ascending from level to level. Caution and supervision are required in this, as the distinction between the two paths—at least in the beginning—is subtle.
+
+Regarding your question about the charity for the number of days of the year, please deposit them into my Gemach fund, which is currently managed by Aguch.
+
+Certainly, the appropriate students from Tomchei Temimim will participate in the outreach efforts to be conducted on the auspicious day of 19 Kislev, as well as the days preceding and following it, and likewise in the future at appropriate times. The promise of Rabbeinu HaZaken at the beginning of his sefer Torah Or is well known: that one’s mind and heart become a thousand times more refined. Although it is understood from this that one must study and toil, at the same time, he promises that the toil of one hour will succeed like the toil of a thousand times that amount. This is not an exaggeration, as is understood from the glosses on this printed in Likutei Torah for the three parshios; see there.
+
+With blessings for the auspicious day, the Rosh Hashanah of Chassidus, may he and all those who assist in this holy work, and all his students and those he influences, be blessed. May you be inscribed and sealed for a good year in the study of Chassidus and the ways of Chassidus.
+
+***
+
+**R' Shlomo Chaim:** Kesselman. Additional letters to him—see above 347, and the references in the notes there.
+
+**Charity... of the year:** See above, letter 333.
+
+## 302
+
+B"H, 13 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...We are the "workers of the day," as per the saying of the Tzemach Tzedek, which we heard several times from my father-in-law, the Rebbe, that it is our task to awaken and create "day" (as it is written, "And He called the light Day"). When the students of the yeshiva persevere and are diligent in their study of the revealed Torah and in their study of the teachings of Chassidus—the words of the living Elokus, the light and the luminary of the Torah—this light will repel all the grasp of the *sitra achra* and the *le'u'z*, which, as our Alter Rebbe states (in the holy Tanya, Chapter 29), is nothing but arrogance and haughtiness, with brazenness and without reason or knowledge.
+
+These days are days of *segulah*, the days of the victory of our Alter Rebbe, the Baal HaTanya—the *posek* in the hidden dimensions of Torah and the Shulchan Aruch—the *posek* in the revealed dimensions of Torah—who went out to freedom with a high hand. And the deeds of the fathers are a sign for the children, that miracles will be performed for us as well, in those days at this time.
+
+With blessings for an increase in consistency of soul and consistency of time in the study of the revealed Torah and the study of the teachings of Chassidus.
+
+#### ***302***
+
+**And as per the saying:** See also above, letter 301, and the references in the notes there.
+
+## 3103
+
+B"H, 13 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished individual, who engages in communal needs, R' Betzalel, may he live, Shaliach.
+
+Greetings and blessings!
+
+I received your letter from the 3rd of Kislev. It is surprising that you are so brief in writing about the Yeshiva and its situation. Nevertheless, the main thing is that you increase your efforts regarding **actual practice**—to expand and develop it, both physically and spiritually, both in quantity and in quality. There is nothing that can stand before the will. This is especially true during these auspicious days, and on the bright day of 19 Kislev in particular. As is known from the ruling of the Heavenly Beis Din, because of that mesiras nefesh—of our Rebbe, the Alter Rebbe—for the Torah of Chassidus, in every matter of Torah, yiras shamayim, and good character traits, the hand of those who are connected to him and follow in his footsteps will be on top.
+
+Enclosed is my letter of response to Mr. ... and his daughter, may she live. Surely, you should explain to his daughter the magnitude of the privilege she has now, to be among those who "break through the fence" for the good—that is, the fence and custom of the "other side" [the secular environment]... regarding the covering of the head and the conduct of the home. It is in her hands now to bring merit to the many, and then the merit of the many will depend on her. According to what is explained in the Zohar, Parshas Naso 126a, it is understood that this also relates, in addition to the aforementioned matters, to matters of shalom bayis... The aforementioned matter in the Diaspora, when there is a breach, gives room for matters and concerns that in our country [the United States] in the past, there was no need to worry about due to the pressure and strain, etc...
+
+With blessings.
+
+***
+
+**3103**
+
+**R' Betzalel:** Wilshansky. Additional letters to him appear above, 2600, and in the notes referenced there.
+
+**The Yeshiva:** In Melbourne. See above, letter 3400, and the notes referenced there.
+
+**Ruling of the Heavenly Beis Din:** See also above, letter 3100, and the notes referenced there.
+
+**The booklet:** 19 Kislev (see also below, letters 3150, 3220).
+
+## 324
+
+B"H, 14 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from Parshas Vayishlach regarding what you read in the newspaper that I wrote to a certain Rabbi, and you expressed your surprise at this... Generally, my custom—based on what I saw from my father-in-law, the Rebbe, of blessed memory—is to answer all those who inquire, especially those who are *bnei Torah*, and especially when it is possible to prevent (*baovaren*) a public error through this, and perhaps even provide an opening for some rectification. I saw in his work a chapter discussing the events of recent years, and primarily regarding Eretz Yisrael, which they call *aschalta d'geulah*. I found an opportunity here to urge the author to cease saying this, because in my opinion, this delays the *ketz*, Heaven forbid. Furthermore, speaking about *aschalta d'geulah* at this time leads to leniency in the observance of *Torah u'mitzvos*.
+
+In general, it is not my way to publish such letters or to enter into *shakla v'tarya* with the various parties, and especially not with the Rabbis in Eretz Yisrael (may it be built and established), among whom there are also *chareidim* who are mistaken in their interpretation of the events of these years—may Hashem forgive them—and who interpret the situation as *aschalta d'geulah*. May it be the will of Hashem that each one of us merits to fulfill his part—and to emerge personally from the double and redoubled darkness—by inspiring others to emerge from their error. Especially those who "put darkness for light and light for darkness," meaning those who attempt to interpret the salvation of *Bnei Yisrael* by the Holy One, Blessed be He, in an inappropriate manner, including those who interpret it in the vein of "my power and the might of my hand," etc. As I wrote above, this reveals the realization that we are still in double and redoubled darkness, and consequently, *Yisrael* will only be redeemed through *teshuvah* and through an increase in the path of *Torah u'mitzvos*.
+
+In connection with the upcoming *Chag HaGeulah*, I am enclosing the booklet that was written at the time by my father-in-law, the Rebbe, of blessed memory, even though for various reasons he did not publish his name on it.
+
+With blessings,
+
+**M. Schneerson**
+
+## 325
+
+B"H, 14 Kislev, 5715
+Brooklyn
+
+To my dear relative, the esteemed Chossid, G-d-fearing, and learned man, who occupies himself with communal needs,
+Moreinu HaRav Azriel Zelig, may he live.
+
+Peace and blessing!
+
+I have received your letter of 7 Kislev. By the way, in this letter I request that you prompt the secretariat that the name "Mendel" should be written with an *ayin*, as explained in books on names, and primarily because this is how the Tzemach Tzedek wrote it (in gematria, Menachem Mendel). I am certain they will correct this in the *Kollel* publications.
+
+Thank you for the good news that you have succeeded in organizing a Chabad *minyan* in the Shaarei Chessed neighborhood. In addition to it being a place of *tefillah*, it will also be a place of Torah, with regular study *shiurim* in both the *nigleh* and the *Chassidus*. Surely, in the study of *nigleh*, there will also be a *shiur* on the *halachos* required for daily life, as is the case for *shiurim* in other Chabad *shuls*. For if I had the strength, I would institute this in every place where *Bnei Yisrael* gather, of whatever type, and especially in houses of prayer, as is known from the *drashah* of our Sages on the verse, "Hashem loves the gates of Tzion more than all the dwellings of Yaakov."
+
+Thank you for the information that you have received the books from Mosad HaRav Kook. Surely those involved will assist you in obtaining the permit, and you will send them here. I am certain there are also several people traveling from there to here, so that the shipping will be easier...
+
+Enclosed is a *kuntres* for the upcoming *Chag HaGeulah*, 19 Kislev, and surely you will merit to share its contents with the many.
+
+With blessings,
+
+#### ***325***
+
+**Moreinu HaRav Azriel Zelig:** Slonim. Additional letters to him: above, Vol. 9, 2852*, and in the references in the notes there. Below, 3242.
+
+**By the way, I request:** See above, Vol. 7, letter 1876.
+
+**On the halachos required:** See also above, letter 348, and the references in the notes there.
+
+**The books from Mosad HaRav Kook:** See above, letter 326. And see also above, 2865, and the references in the notes there.
+
+## 320
+
+B"H, 15 Kislev, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chassid, G-d-fearing and distinguished, involved in communal needs, etc.,
+Rabbi Yechiel Michel, may he live.
+
+Peace and blessing!
+
+I acknowledge receipt of your letter from 7 Kislev, which brings good news regarding the shiurim being taught in public. I have already expressed to many of anash that, in my opinion, it is correct and necessary to institute the study of halachos that are needed for daily life, in addition to other studies. After all, this is the whole of man: "Fear G-d and keep His mitzvos." In our generation, when hearts have diminished—and consequently, the time dedicated to studying shiurim has also diminished—one must teach from a sefer that contains laws relevant to practical application and clear, definitive halacha. One should begin with those halachos that are most common and frequent. If possible, one should skip the matters within those same topics that are not as relevant, and when Hashem grants success and they study them a second time, they should study them in order.
+
+Surely you will gather for the upcoming Chag HaGeulah, 19 Kislev, in the proper manner—that is, by making resolutions regarding practical action in the three pillars of Torah, avodah, and gemilus chasadim. May Hashem grant you success.
+
+With the blessing of Chag HaGeulah.
+
+#### ***320***
+
+**Rabbi Yechiel Michel:** Dobruskin. Additional letters to him appear above, Vol. 7, p. 229, and in the references noted in the footnotes there.
+
+**Halachos that are needed:** See also above, letter 344, and the references noted in the footnotes there.
+
+## 327
+
+B"H, 15 Kislev, 5715
+Brooklyn, N.Y.
+
+To all our brothers, the children of Israel, lovers and cherishers of Torah and Mitzvos,
+May Hashem grant them life,
+
+Peace and Blessing!
+
+In connection with the upcoming annual celebration of the Merkaz Yeshivos Tomchei Temimim Lubavitch, on Sunday, Parshas Va’era, 22 Teves, 5715, I send my greetings and blessing to all the activists, helpers, and supporters of the Yeshiva, that the promise of "It is a tree of life to those who grasp it, and its supporters are made happy" be fulfilled in them.
+
+The vital importance of yeshivos as the foundation of Jewish life is, B"H, recognized in all circles. The task of yeshivos in our current time, and especially here in America, is even more significant—for the yeshiva is the place where a Jewish child receives not only the necessary knowledge of Torah and Mitzvos, but is also educated to be a complete Jew, capable of leading a happy and harmonious life according to the instructions of our Torah, **Toras Chaim**—life in the literal sense, also in this physical world.
+
+It is known everywhere that the Lubavitcher Yeshivos Tomchei Temimim, with their many hundreds of students, may they increase, are one of the main pillars of Jewish life in America. They do not only fulfill the most important and beautiful tasks and purposes of a yeshiva in general, but in addition to this, they possess their own unique character through the spirit of Ahavas Yisrael and Mesiras Nefesh for Torah and Mitzvos that is planted within them. Thus, the students—the "Temimim"—feel and fulfill their responsibility and duty to Klal Yisrael, and are "lamps to illuminate," each one lighting up his surroundings with the light of "the mitzvah is a lamp and the Torah is light."
+
+Therefore, in the current financial crisis of the Yeshivos Tomchei Temimim, it is a holy obligation to sustain them through broad support, and also to enlarge and expand the Yeshiva and its branches.
+
+One should not be satisfied with merely helping the Yeshiva Tomchei Temimim to "exist." One must provide it with the financial means to maintain its natural growth and to expand, like every living thing that strives to grow constantly.
+
+We have the promise of our holy Rebbes, of blessed memory, that every person, man or woman, who takes part in sustaining and supporting the Lubavitcher yeshivos thereby creates for themselves the channels and vessels to receive Divine blessings and to enjoy them in their daily life. And the greater the participation, the greater are the channels and vessels for Parnassah with abundance, Nachas from children, and all good, both physical and spiritual.
+
+With blessings for all good.
+
+## 108
+
+B"H, 15 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 6 Kislev, in which you write that two years ago your wife—may she live and be well—gave birth in a maternity home, and unfortunately, she experienced distress following the birth; therefore, she says that now, too, she does not wish to go there.
+
+In my opinion, this has no basis, especially since, as you write, the situation and the supervision at the maternity home have improved. Therefore, it is advisable that when her days of pregnancy are complete and she is close to giving birth, it should be in the aforementioned home. May Hashem grant that it goes properly, easily, and at a good and successful time, with the birth of a living and enduring child. May you bring good tidings regarding this, as well as regarding your influence on your surroundings in strengthening and spreading the "candle of mitzvah and the light of Torah," and the light of Torah—which is the inner dimension of the Torah.
+
+With blessings for the appropriate awakening regarding thought, speech, and action during the days of the Festival of Redemption, the bright day of 19 Kislev, the festival of our redemption and the salvation of our soul through the victory of our Rebbe, the Alter Rebbe, the author of the holy Tanya—the authority on the hidden dimension of Torah—and the Shulchan Aruch—the authority on the revealed dimension of Torah.
+
+P.S.
+
+Regarding your question as to whether eating with desire lowers a person from his level, even according to the one who says "sanctify yourself with that which is permitted to you," it is not a Torah prohibition.
+
+Our Sages have already said, "The words of the Scribes are dearer to me than the words of the Torah," and "The words of the Scribes are more stringent than the words of the Torah." This is also understood based on what is explained in the holy Tanya, Chapter 7; see also the end of Chapter 30, that it is from the Torah, etc., and also that the words of the Scribes are more stringent than the words of the Torah, etc. This is also understood through simple logic: for one who eats with desire becomes a recipient from the food, which is of the vegetative and animal levels, and consequently, he lowers himself from the level of a "speaker" (human) to their level. And this is clear.
+
+## 320
+
+B"H, 15 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chassid, G-d-fearing, and learned, engaged in communal needs, R' Moshe Pinchas HaKohen, and the esteemed Chassid, G-d-fearing, and learned, engaged in communal needs, R' Avraham Yitzchak:
+
+Greetings and blessings!
+
+I was pleased to hear that you were the ones who took the initiative to send out letters of inspiration to organize farbrengens for the upcoming bright day of 19 Kislev, the day of our redemption and the liberation of our souls, marking the victory and redemption of our Rebbe HaZaken, author of the holy Tanya—the arbiter of the hidden dimensions of Torah—and the Shulchan Aruch—the arbiter of the revealed dimensions of Torah—for it is a certainty that such advocacy does not return empty-handed.
+
+Fortunate is the portion of all those who act and facilitate this. The interpretation according to Chassidus of the Mishnah, "Two are holding onto a garment," is already well-known—that one says, "It is all mine," and the other says, "It is all mine"—as explained in many places, including in *Kuntres Limud HaChassidus*, Chapter 12. This is the case here as well, especially since in truth, it is possible for it to be entirely the first person’s and entirely the second person’s, similar to the concept explained regarding "lighting one candle from another."
+
+May Hashem grant you merit and success in these matters in the future as well, and specifically in accordance with the interpretation of my revered father-in-law, the Rebbe, of blessed memory, regarding the expression found in our Sages' teachings, **"one who engages"** (*ha'osek*) in Torah and **"one who engages"** (*ha'osek*) in a mitzvah. This implies a business-like engagement, where the businessman does not sit and wait for business proposals to come to him, but rather pursues them with the appropriate exertion. May your conduct in this be the same, and then you are guaranteed that "you have labored and found" will be met with success.
+
+With blessings for the Festival of Redemption.
+
+***
+
+**R' Moshe Pinchas:** Katz. Additional letters to him: see above, Vol. 3, and the references in the notes there.
+
+**R' Avraham Yitzchak:** Kornblit. An additional letter to him: see above, Vol. 5, 1440 (erroneously listed there as Ziskind).
+
+**The interpretation is well-known:** See also below, letter 3163.
+
+**Specifically in accordance with the interpretation:** See also above, Vol. 8, letter 2669; Vol. 9, 2837, and in many other places. See below, 3144, 3227, 3232.
+
+## Jackie
+
+B"H, 17 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I hereby acknowledge receipt of your letter from the 11th of Kislev. Regarding what you wrote about the doctors’ opinions, it is a great wonder that my words are being distorted, and consequently, the *shtimmung* (mood) is not as it should be. I have said and also written that **you should follow** the instructions of expert doctors, and I have also said and written many times that **one should not be** *nispael* (emotionally affected) by their opinions. As is known, the *diyuk* (precise interpretation) of the Tzemach Tzedek is that the doctor is given permission **to heal**, and nothing more. Yet, in both of these matters, you are doing **the opposite**: you are not following the instructions of the expert doctors, and on the other hand, you are becoming *nispael* by their opinions. What can I do about this? After all, one cannot deny any Jewish man or woman their power of free choice. As explained in many places in *Chassidus*, and as is also implied in *Likutei Torah* (Parshas Emor 38b), free choice exists because we are rooted in the *Atzmus* (Essence), which is the only place where there is free choice without any compulsion. May the *Ribono shel Olam* grant success to you and your wife, *sheyichyu*, and if you follow the instructions in both of the aforementioned matters, the result will be, as soon as possible, in a way that is good, both visibly and revealed.
+
+Regarding what you wrote about studying *Tanya*: that since you do not know how to study it *panim el panim* (face to face), you are not studying it with the students at all. It is a wonder to hear such an answer from a *Tamim* (a graduate of Tomchei Temimim), for this is exactly the argument of all those who prevent themselves from studying the inner dimension of the Torah, as explained in the *Kuntres Limud Toras HaChassidus*. And generally, what comes of these arguments if, because of them, the study is lacking in practice? To say, as you write in your letter, that you are looking for how to study the *peshat* (literal meaning) on the spot—I was taken aback by such "humility." I would also point you to the introduction to *Tanya*: "And to them I make my request..."
+
+Great is the merit of the *Yom HaBahir*, the day of the *Geulah* of our *Rabbeinu HaZaken*, which is also our own *Geulah*, that each and every one of us should be redeemed from all the matters that confuse us—including those mentioned above, from the matters at the beginning of the letter to those in the lines preceding these. Consequently, you will study *Chassidus* in abundance, and teach others in abundance, and [achieve] a grasp and connection to the *Ilana D’Chayei* (Tree of Life), which is also *Ilana D’Chayei* literally, in the life of the body...
+
+With blessings for the *Chag HaGeulah* and for all its influences, which naturally include your household, *sheyichyu*, as a person is called the *baal habayis* (master of the house), and this title should not be taken as anything less than its literal meaning.
+
+#### ***Jackie***
+
+**Diyuk of the Tzemach Tzedek:** See also above, Vol. 9, Letter 2922, and in many other places.
+
+## 311
+
+B"H, 15 Kislev, 5715
+Brooklyn, N.Y.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, involved in communal needs, R' Nissan, may he live.
+
+Peace and blessing!
+
+My response to your two previous letters has surely been received by now. Just now, your letters of the 6th and 12th of Kislev were received. You are correct in your assumption that it is not always advisable to force students to accept the administration's decision. On the other hand, one must be careful that this not be interpreted as weakness or as yielding to pressure from their side; therefore, one must anticipate in advance which matters can be accepted and in what manner.
+
+Regarding our Sages' teaching that "a decree is not imposed upon the community unless the majority can abide by it," especially regarding matters that continue over a period of time—concerning which our Sages said, "Had they been beaten, Chananiah, Mishael, and Azariah would have..."—there is sometimes room to explain, regarding certain matters, that in truth, a specific issue should have been handled in an entirely different way. However, because they have not yet reached that level and are not yet ready for such lofty matters and such conduct, the order in that particular detail is not yet complete.
+
+Enclosed is the Kuntres for 19 Kislev. You are surely preparing properly for the celebration of the auspicious day of 19 Kislev, which is approaching. May you also utilize the days of Chanukah in this direction, as is explained in the Chassidic discourses on Chanukah: that the opposition, as well as the miracle of the pure, beaten olive oil, was **"for the light"**—which in our generation has been revealed and explained in the teachings of Chassidus.
+
+With blessings for success in all of the above and for good news very soon—despite the telegram—regarding the health of your son, Shalom DovBer, may he live, that he may return to his full strength.
+
+**M. Schneerson**
+
+***
+
+**R' Nissan:** Nemnov. Additional letters to him appear above, 309, and in the references noted in the footnotes there.
+
+## 312
+
+312
+
+B”H, 17 Kislev, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished, etc., R’ Schneur Zalman, may he live.
+
+Peace and blessing!
+
+It gave me pleasure to see the notes you sent to the Merkos L’Inyonei Chinuch, and you should certainly continue with them.
+
+You surely know how interested my father-in-law, the Rebbe, of blessed memory, was in collecting memories such as these. And since—as we have seen until now—various notes are eventually being printed, it is to be hoped that these, too, will be of benefit to the many in an appropriate manner. And a word spoken at the right time is good.
+
+In connection with the upcoming bright day of 19 Kislev, I am enclosing the Kuntres for 19 Kislev and a booklet, with the contents of which you will surely merit to benefit the many.
+
+With the blessing of Chag HaGeulah.
+
+#### ***312***
+
+Printed in Likkutei Sichos, Vol. 21, p. 556, and completed based on the secretariat’s copy.
+
+**R’ Schneur Zalman:** Bezpalov. Additional letters to him appear above, Vol. 9, 2901, and in the references noted there.
+
+**The notes you sent:** At the request of the Rebbe, shlita—see above, ibid.
+
+## 3113
+
+B"H, 17 Kislev, 5715
+Brooklyn.
+
+To the G-d-fearing, honorable, and distinguished, who engages in the needs of the community, R' Dovid, may he live.
+
+Greetings and blessings!
+
+Following your long silence, I was pleased to receive your letter from 1 Kislev, which brings good tidings of the birth of a son, may it be for good fortune, and he is named in Israel, Yosef, may he live. May it be the will of Hashem that just as you have brought him into the covenant, so too may you and your wife, may she live, bring him to Torah, to the chuppah, and to good deeds.
+
+With blessings of Mazal Tov.
+
+P.S.
+
+It is surprising that even in this letter you do not mention your activities in your surroundings to spread the "candle of a mitzvah and the Torah of light," and the light of Torah—which is the teachings of Chassidus, its guidance, and its customs. There is a special obligation in this regard for those who have engaged in secular sciences, in accordance with what our Rabbeinu HaZaken, author of the holy Tanya—the arbiter of the hidden dimension of Torah, and the Shulchan Aruch—the arbiter of the revealed dimension of Torah, wrote in his holy Tanya, end of Chapter 8, based on the ruling of our Sages that a vessel used with cold substances is rinsed with cold water, while a vessel used with fire must be purged with fire.
+
+I was pleased to hear the news that you are participating in the minyan of Tzeirei Agudas Chabad; may it be the will of Hashem that their borders expand, both in quantity and in quality.
+
+## 324
+
+B"H, 17 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and refined, involved in communal needs,
+Rabbi Yitzchak Zalman, may he live and be well,
+
+Greetings and blessings!
+
+Your letter was received. Regarding what you wrote about the matter of the *paroches* (curtain): it is puzzling that you did not interpret my intent as it was meant. For the point is not to bring proof that there was a *paroches* on the outside of the *Aron Kodesh*, as there is no dispute about that. Rather, what was needed was a source indicating that there is a place for a *paroches* on the inside of the *Aron Kodesh*. Consequently, all the places you cite as proof that there was a *paroches* on the outside are, as the saying goes, *shlogt zich in an opener tir* (knocking on an open door). What I wrote was that from Rashi, and even from the Tosafos in *Megillah*, it is evident that there was a *paroches* on the inside as well.
+
+Surely you will utilize the bright day of 19 Kislev, as well as the days of Chanukah, to instill in the students—both boys and girls, as well as those older in years and younger in knowledge—the moral lesson of these days as it pertains to daily life. And when one opens [a path] as small as the eye of a needle, Hashem opens [a path] as wide as the entrance of the *Ulam*.
+
+Regarding what I wrote, "in the later generations"—this means that then, the *paroches* was **only** on the outside.
+
+With blessings for the *Chag HaGeulah*.
+
+***
+
+**Rabbi Yitzchak Zalman, may he live and be well:** Poisner. Additional letters to him appear above, 344, and in the notes indicated there.
+
+**Regarding the matter of the *paroches*:** See above, ibid.
+
+## 319
+
+B"H, 18 Kislev, 5715
+Brooklyn.
+
+To the esteemed Rabbi, G-d-fearing and learned, Moreinu HaRav Yaakov Yitzchak, shlita,
+
+Peace and blessing!
+
+In response to your letter of 3 Gimmel Vayeitzei, in which you inquire about the custom of the Rebbe (Rashab) n.e. (and surely this was the practice in the Rebbe’s home generation after generation) to place enough oil in the Chanukah lamp so that it burns for at least fifty minutes, and you ask for the reasoning behind this.
+
+I have not heard the explicit reason for this. It is possible to suggest that since there are differing opinions regarding the time of lighting—whether it is before the Maariv prayer or after it—the custom of the *mehadrin* is to satisfy both opinions. That is, to light after the Mincha prayer, and to ensure there is enough oil in the lamps to last for the entire required duration even after Maariv. Time does not permit me to elaborate on this at length. See Pri Megadim, Orach Chaim 672, Eishel Avraham, subsection 3, and the Mishnah Berurah there. See also the *Seder Hachnasas Shabbos* in the Shulchan Aruch of our Rebbe (the Alter Rebbe).
+
+With blessing.
+
+Regarding the matter of "the laws of nature have changed" (*nishtanu hateva'im*): See the sources noted in Sdei Chemed, Klalim 9, 5.
+
+The customs of Chanukah in the Rebbe’s home—those that contain a novel practice—were recorded at the end of the booklet *Baruch She'asah Nissim* (Kehot, 5711).
+
+#### 319
+
+**Moreinu HaRav Yaakov Yitzchak:** Saltz, Tzfas. Additional letters to him appear above in 2998, and in the references noted in the footnotes there.
+
+**To satisfy both opinions:** See what is written on this in *Kunteres He'aros HaTemimim VeAnash*, Issue 2, pp. 125–128.
+
+## 3,116
+
+B"H, 18 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and refined, R' Schneur Zalman, may he live.
+
+Shalom u'Bracha!
+
+I hereby acknowledge receipt of the *pidyon nefesh*, which I will read at an auspicious time at the holy resting place of my father-in-law, the Rebbe, of blessed memory. Surely, all of *anash* will gather together on the bright day of 19 Kislev, the *Chag HaGeulah*. As my father-in-law, the Rebbe (the Rashab), of blessed memory, expressed it: it is the day of our redemption and the deliverance of our souls. May you continue this spirit into the upcoming days of Chanukah, for the two are interconnected. After all, the prosecution and the subsequent redemption concerned the revelation and dissemination of the "wellsprings of Torah" to the outside, as well as the miracle of Chanukah; the lights, too, were specifically of "pure, pressed olive oil for illumination" (*l'maor*), as explained in the *maamar* of *Tetzaveh* regarding the precision of the term *l'maor*.
+
+May Hashem grant each and every one of us the merit to fulfill our role in spreading the wellsprings outward, which is the preparation and prerequisite for meriting, together with all of *Klal Yisrael*, the complete and true redemption through Moshiach Tzidkeinu.
+
+With blessings for the *Chag HaGeulah*.
+
+#### ***3,116***
+
+**R' Schneur Zalman:** Vilkin.
+
+## G'kiz
+
+B"H, 18 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...Regarding your notification that you wish to change the knot of your tefillin to follow the custom of Rabbeinu HaZaken, the author of the Tanya—the arbiter of the hidden dimension of Torah—and the Shulchan Aruch—the arbiter of the revealed dimension of Torah—this is correct and good.
+
+As for your question regarding the reason for our custom to recite the 25th chapter of Tehillim during the *nefilas apayim*—see the commentaries on Shulchan Aruch, Orach Chaim, 131.
+
+## 3118
+
+B"H, 18 Kislev, 5715
+Brooklyn.
+
+To the esteemed Rabbi, a man of spirit, G-d-fearing, and occupied with communal needs, R' Hillel, may he live.
+
+Greetings and blessings!
+
+In these days of favor of the month of Kislev—the month of the Redemption, the third month from Tishrei in which the world was created—I am enclosing the booklet for 19 Kislev, which I am certain you will use to benefit the many. In truth, its content is **timely** throughout the entire year. And if this applies to the entire year, as per the words of our Sages regarding "I am asleep in the exile, but my heart is awake" to Hashem, His Torah, and His mitzvos, then how much more so does it apply during these auspicious days! When one opens—through appropriate *ta'amulah*—even a needle's eye in a Jewish person, Hashem opens [a gate] like the entrance of the Ulam. As explained in *Chassidus*, the precision here is that the Ulam had no doors, and thus it was always open, provided one made the effort to enter the *Ezrah*. Furthermore, there was no partition separating the *Ezras Yisrael* from the *Ezras Kohanim*, even though one had to ascend the steps from one to the other; the analogy is understood.
+
+With blessings for a joyous Chag HaGeulah.
+
+P.S.
+
+In your recent letter to the secretariat, you write that the *kashrus* of the *mikveh* in your location is maintained by a *bor* (singular) of rainwater. You are surely aware that in recent years, the custom has spread to construct two *boros*—in addition to the place where one immerses. It is already known that in a *mikveh*, one strives to fulfill the *rov rov* of the opinions on the matter*.
+
+This is also related to the concept of the upcoming Chanukah, as explained by several *Acharonim* that, in truth, they could have lit the Menorah with other oils in the *Heichal*, since *tumah* is permitted in a communal setting (*tumah dechuya b'tzibur*). However, Hashem wished to demonstrate the affection of the Jewish people, that the mitzvah should be performed in the most choice manner (and it can be said that this is precisely why the concept of *mehadrin min hamehadrin* exists specifically regarding the mitzvah of Chanukah). The same applies to *taharah* in general; one should be *mehadar* in this, as mentioned above.
+
+From this, one can also understand the allusion in the Rambam (end of *Hilchos Mikvaos*) regarding "good and bad opinions," which serves as an analogy for distorted opinions versus upright opinions. In this, too, one must be *mehadar* to the point of being *mehadrin min hamehadrin*—namely, the study of the *nigleh* of Torah, the study of the *razin* of Torah, and the study of the *raza d'razin* of Torah. It is explained in many places in *Chassidus* that since the Torah is the "betrothal" of the Husband—Hashem—to His wife—Knesses Yisrael—it contains three elements: *She'erah* (her food), the *nigleh* of Torah, which one grasps and internalizes, "Your Torah is within my innards" (see *Tanya*, Chapter 4).
+
+*Kesutah* (her clothing), the *razin*, which is the level of a *levush* (garment), since one does not enter and become fully grasped by it; on the contrary, the intellectual concept encompasses the intellect. And *Onasah* (her conjugal rights), the *raza d'razin*, as explained in the language of our Sages that one does not expound upon these matters except to an individual, and this is not the place to elaborate.
+
+## 319
+
+B"H, 18 Kislev, 5715
+Brooklyn
+
+To the avreich, the G-d-fearing, learned, and diligent, occupied with the needs of the community, R' Moshe, may he live:
+
+Peace and blessing!
+
+It gave me pleasure to receive your letter of 8 Kislev, in which you write regarding the order of study and the nature of the students in the various classes. May Hashem grant you success in fulfilling your role to bring the hearts of the children of Israel closer to our Father in Heaven through proper chinuch. It is already known the ruling of our Alter Rebbe that through this, their minds and hearts become a thousand times more refined.
+
+Regarding what you wrote about the study session on Friday night: if there is room for it, it should be arranged that they study the weekly parsha with the commentary of Rashi, the Kitzur Shulchan Aruch regarding the laws of Shabbos, and Chassidus that is appropriate to the students' level of comprehension. I have already shared my suggestion with several educational institutions—that they establish a shiur in the halachos required for daily life, beginning with the most pressing matters, such as the blessings on food (brachos), etc., for ultimately, this is the whole of man: to fear Hashem and keep His mitzvos.
+
+With a blessing for success in your holy work, in good health.
+
+## 3120
+
+[18 Kislev, 5715]
+
+...It is surprising that you do not mention that you study with the students the halachos required for daily life, in accordance with their level of comprehension. It is understood that one must begin with those halachos that they encounter most frequently, and before a Yom Tov, with the halachos of that Yom Tov. Surely this is merely an omission in your writing, but not in practice.
+
+#### ***3120***
+
+Published in Likkutei Sichos, Vol. 21, p. 349.
+
+**Halachos required:** See the previous letter, and the references in the footnotes there.
+
+## 3121
+
+B"H, 18 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, scion of holy ancestors,
+Rabbi Chaim Shimon Zev, may he live.
+
+Peace and blessing!
+
+The esteemed Chossid, G-d-fearing, man of many accomplishments, engaged in communal needs, Rabbi Moshe Pinchas Katz, may he live, conveyed to me his note regarding *Shaar HaYichud VeHaEmunah*, Chapter 2, of our Alter Rebbe, which states: "Although this nature in water was also created and brought into existence." His question is whether one should emend this to read: **"is not so much created and brought into existence."**
+
+In my opinion, this cannot be said, since, as mentioned above, this is the text in all the printings (that I have seen), and it is likewise in *Iggeres HaKodesh*, Epistle 25 (page 139). In my view, the explanation of the Rebbe’s words is that he is strengthening the *kal v'chomer* from the nature of the elements to the creation of *yesh me'ayin*, by stating that the nature of water to flow downward is itself created and brought into existence *yesh me'ayin* (after it was already created) within the water, and it is not **essential** to all existing things—unlike the nature of all existing things to occupy space, and the like. He brings proof for this from the fact that there are created beings that stand on their own without wind, such as a wall of stones. From this, he draws a *kal v'chomer*: if, regarding the suspension of a secondary nature, one requires something that constantly suspends this nature—precisely because it was already created and brought into existence—then how much more so is this true regarding a matter that is created and brought into existence as a primary nature. And this is clear.
+
+It is also worth noting *Pelech HaRimon* by the holy Rabbi Hillel of Paritch, page 52, column 3, which explains it in a slightly different manner, and it is worth looking into.
+
+Surely you participated in the *farbrengen* of the auspicious day of 19 Kislev. If throughout the entire year the words of our Sages apply, "I am asleep in exile, yet my heart is awake to Hashem, His Torah, and His mitzvos," then how much more so during these auspicious days, when—through appropriate *taamulah*—if one opens up in a Jewish person even an opening the size of a needle’s eye, Hashem opens up like the entrance of the *Ulam*. As is explained in *Chassidus*, the precision in this is that the *Ulam* had no doors, and therefore it was always open, provided one made the effort to enter the *Azarah*. And indeed, there was no partition separating the *Ezras Yisrael* from the *Ezras Kohanim*, even though one had to ascend the steps from one to the other. The analogy is understood.
+
+With respect and blessing.
+
+## 3122
+
+3122
+
+B"H, 18 Kislev, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished individual, occupied with communal needs, R' Nosson Dovid, may he live.
+
+Greetings and blessings!
+
+I was pleased to receive your second letter, in which you continue with your memories of having merited to see the Rebbe (the Rashab), the father of my father-in-law, the Rebbe, of blessed memory. Surely, these memories bring about an awakening of the Jewish heart—which is always alert and discerning—to draw this into daily life, in thought, speech, and action, both regarding oneself and one's surroundings.
+
+As you requested, I will mention you at the holy resting place of my father-in-law, the Rebbe, of blessed memory.
+
+Regarding the current day, I am enclosing the booklet for 19 Kislev, which I am sure you will merit to share with many others.
+
+With blessings.
+
+P.S.
+My father's name is **Levi Yitzchak**, son of Boruch Shneur, of blessed memory, and he is a direct descendant, son after son, of the Rebbe, the Tzemach Tzedek.
+
+#### ***3122***
+
+**R' Nosson Dovid:** Rosenblum. Another letter to him appears above, 3115.
+
+## 3123
+
+B"H, 19 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, engaged in communal needs, R' Shlomo, may he live:
+
+Peace and blessing!
+
+I received your letter of 14 Kislev, along with the enclosure. Regarding your question, it is appropriate to translate the words or concepts in the *Reshimas HaMaasar* that are not understood by our Sephardic brethren. You may do this at your own discretion, especially since the translation of the terms will appear in the footnotes. Naturally, you should choose expressions that are closest to their spirit.
+
+Regarding your question about traveling here—as to which time is most convenient—once there is clarity concerning the matters of *avodah* on-site that you mention in your letter, and also regarding the visit of the esteemed Rabbi and Chossid, R' Avraham Ber G., may he live, you will decide together regarding this as well. Surely you will consult with one another—that is, you and the esteemed Chossid R' Moshe, may he live, Lipsker, who also wishes to travel here—so that it will be in the manner most beneficial for your *avodah* in holiness at the *Oholei Yosef Yitzchok* Lubavitch in Morocco.
+
+Surely you are organizing a *farbrengen* in an appropriate manner on the bright day of 19 Kislev, and you will continue this during the days of Chanukah as well, both for the students and the female students. A *te'amulah* (campaign) is presumed not to return empty-handed. And when one opens—through appropriate *te'amulah*—even as much as the eye of a needle in a Jewish person, the *Ribono shel Olam* opens [a gate] like the entrance to the *Ulam* (the Sanctuary Hall). As is explained in *Chassidus*, the precision in this is that the *Ulam* had no doors and was therefore always open, provided that one makes the effort to enter the *Azarah* (Courtyard). And indeed, even between the *Ezras Yisrael* and the *Ezras Kohanim* there was no partition, even though one had to ascend steps from one to the other; the analogy is understood.
+
+Please be so kind as to distribute *Chanukah gelt* in my name, as in previous years.
+
+With blessings for the *Chag HaGeulah* and success in all your affairs,
+
+**M. Schneerson**
+
+## 3124
+
+3124
+
+By the Grace of Hashem, 19 Kislev, 5715
+Brooklyn, N.Y.
+
+Greetings and Blessings!
+
+In response to your letter from Parshas Vayishlach, in which you write that you were troubled by the first part of my letter (my response to your previous letter) regarding how it is possible that one who studies Torah, upon finding a contradiction in a book accepted within the fold of Yisrael, would dismiss what is stated in that book.
+
+I have already explained the reasons for this quite clearly in my letter. Even if the reasons were not known, this is something that occurs frequently, and even more so among students of well-known yeshivos whose studies lack the study of Pnimiyus HaTorah. They dismiss the opinions of books and authors among the Acharonim, and so on—and I do not wish to specify the names of those who dismiss them (what would be the benefit in that?)—even though they do so publicly. The types of authors they dismiss include the Magen Avraham, the Chasam Sofer, and so on.
+
+2) Regarding your confusion as to how one can determine the inner connection between the soul of the student and the Rebbe, and how one can be certain that he has found the right one—and in your opinion, it is possible that this inner connection comes only after there has been an external connection: Regarding the responsibility involved, we see something even greater **every single day** in the matters of shidduchim. It is explained in the Zohar (Vol. I, p. 85b) that the soul of the husband and the soul of the wife are halves of one single soul, which, upon its descent below, is clothed in two halves—one in the body of the husband and one in the body of the wife. It is understood that the union of two halves of one soul—without which one is but "half a body"—carries an even greater responsibility than the drawing of a private soul to its general soul. Yet, shidduchim are made every day. Therefore, it must be that the Ribono shel Olam is the One who leads the world and oversees it with Hashgacha Pratis, and when a person does everything incumbent upon him according to Torah, he is assisted from Above and led to his desired destination and his true purpose. The same applies to the connection between a student and a Rebbe, and a Chossid and his Rebbe.
+
+3) Regarding your question as to the way one should study Pnimiyus HaTorah: This question is also puzzling, for Pnimiyus HaTorah is a part of the Torah, and as its name implies, its study is similar to the study of all other parts of the Torah—namely, by prioritizing *naaseh* before *nishma* (which means understanding and comprehension, from the expression "for your servant understands"). Consequently, in the first few times, one only absorbs the surface level of the matters. When one studies not for the sake of contention, but with a sincere desire to understand the Torah of the Ribono shel Olam, then one is successful from Above to know and understand the matters in their true light. As our Sages say, to arrive at the halachic conclusion (*lasuka shema'ata aliba d'hilchata*) requires Siyata Dishmaya, and as our Sages say (Sanhedrin 93b), the Halacha follows him because "the Havayah is with him." The same applies in your case: study the Torah of Chassidus freely, and do not get stuck at the beginning of your study on the details of this, just as you did when you began to study Gemara. Then, in the course of time, you will succeed.
+
+4) It is surprising that you do not recognize that all your questions and debates are the incitement of the Yetzer Hara, coming from the *sitra achra*, which tries in every way to delay the time when you will merit to begin the study of Pnimiyus HaTorah, and consequently confuses you with questions and debates. As you write yourself in your letter, from then until now you are still "groping in the dark"—meaning that seven months have passed in which you could have studied at least a few lines of Pnimiyus HaTorah, the *ilana d'chayei* (Tree of Life), and instead you occupied yourself with debates about whether it is worth studying, whether it is possible to study, etc. May it be the will of Hashem that from now on you utilize your time as is proper and as is good before Him in truth.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+Secretary
+
+## 3125
+
+B"H, 19 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 11 Kislev: It is well known that the receiving of the Torah in its entirety was through the declaration of *Naaseh V’Nishma*. Our Sages explained that this was specifically through the precedence of *Naaseh* (we will do) over *Nishma* (we will hear—which implies understanding and comprehension, as in the phrase "for your servant hears"). This signifies the concept of *kabbalas ol* (accepting the yoke). This matter must be repeated every single day, as per the ruling of the Mishnah (*Berachos*, beginning of Chapter 2) regarding the mitzvah of *Krias Shema*, which one is obligated to perform twice daily, and whose essence is the acceptance of the **yoke** of the Kingdom of Heaven and the acceptance of the **yoke** of the *mitzvos*.
+
+The same applies to you and your peers. As upright *Bnei Yisrael*, your desire is surely to succeed in the study of our holy Torah, and there is no other path to this than by prioritizing *kabbalas ol*. This means listening to the administration of the holy institution where you study—after they have presented their reasons and justifications to you, you must then submit to their decision. **This is** the path to success. You should certainly convey all of this to your peers as well, and may it be the will of Hashem that you be a good messenger to bring me good news regarding all of this.
+
+With blessings.
+
+## 326
+
+326
+
+B"H, 19 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 5 Kislev, in which you write that you are experiencing disturbances in your davening and learning caused by some of the bochurim, and that the reason for this is that they have leveled false accusations against you:
+
+The advised counsel in such a situation is to increase your Torah study and davening, and to pay no mind to false accusations and distractions. It is appropriate that every day, after Shacharis, you should recite Tehillim—at the very least according to the daily portion for the days of the month—and likewise, you should have fixed shiurim in the study of pnimius haTorah, which is the Torah of Chassidus. May Hashem grant you success.
+
+See Gittin 7a: "Rise early and stay late for them," meaning "for them"—above them—specifically. See also Torah Or by our Rebbe the Alter Rebbe, page 32a.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 3127
+
+B"H, 19 Kislev, 5715
+Brooklyn.
+
+To the Avreich, Aharon, may he live,
+
+Greetings and blessings!
+
+In response to your letter of 14 Kislev, as you requested, I will mention all those you wrote about at the holy gravesite of my father-in-law, the Rebbe, of blessed memory, for whatever they may need, as you described.
+
+Regarding your question: It would be worthwhile for you to learn to speak the language of the country, since this will give you the possibility to influence and bring closer to Yiddishkeit even those among the youth who do not understand any other language. It is understood that I do not mean to learn every detail, but only what is necessary for the aforementioned, and therefore my hope is that this will not take much time.
+
+With blessings for success in your holy work of bringing the hearts of Yisrael closer to our Father in Heaven, and that the promise of our Rabbeinu HaZaken in the beginning of Torah Or—that one’s mind and heart become refined a thousand times over—be fulfilled in you.
+
+#### ***3127***
+
+**The Avreich, Aharon, may he live:** Serbranski, Melbourne. Another letter to him follows in 3330.
+
+## 3228
+
+B"H, 20 Kislev, 5715
+Brooklyn.
+
+Tzeirei Agudas Chabad in the Holy Land, may it be rebuilt and established,
+Branch of the Holy City of Jerusalem, may it be rebuilt and established,
+To them, may they live,
+
+Peace and Blessing!
+
+Following your long silence, your letters from 24 Tishrei and 12 Mar-Cheshvan were finally received—the transit time for which was longer than usual. Thank you for writing, albeit belatedly. Surely, in the future, you will write in due time and with the appropriate detail regarding your good works in spreading Yiddishkeit in general, and your labor in the field and vineyard of Chabad in particular. May Hashem grant you the merit to bring good news regarding the expansion of these matters, both in quantity and in quality.
+
+Surely you have utilized the auspicious days of 10 and 19 Kislev for the aforementioned activities, as well as the upcoming days of Chanukah. If the Sages' statement, "I am asleep in exile, but my heart is awake to Hashem, His Torah, and His mitzvos," applies to the entire year, how much more so does it apply during these auspicious days. When one opens—through appropriate *ta'amulah*—even an opening the size of a needle's eye within a Jewish person, Hashem opens [an opening] like the entrance to the *Ulam*. As explained in *Chassidus*, the precision in this is that the *Ulam* had no doors and was therefore always open, provided that one makes the effort to enter the *Azarah*. Furthermore, there was no partition separating the *Ezras Yisrael* from the *Ezras Kohanim*, even though one had to ascend the steps from one to the other. The analogy is understood.
+
+With blessing,
+
+P.S.
+Enclosed is some script as a symbolic participation in the expenses of your holy work.
+
+## 329
+
+B"H, 20 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...I was surprised by the information that reached me regarding an individual who, according to my instruction, was supposed to receive a gemach loan from you. He replied that he did not do so because your gemach operates on the basis of a *heter iska*, and he does not wish to involve himself in matters of *ribis*, even in such a manner. Since I, too, avoid such matters, it is a great wonder, for it is well known that in matters of *ribis*, it does not concern only the borrower and the lender, but also the witnesses and anyone who has any connection to it, etc., etc. Before proceeding in the aforementioned manner—a gemach with a *heter iska*—you should have obtained my consent. And as is the common expression in my letters—we do not cry over the past.
+
+May it be Hashem's will that this be rectified for the future... and thank you in advance.
+
+With blessings,
+
+On behalf of the Rebbe shlita,
+
+A. Quint
+Secretary
+
+## Jekel
+
+B"H, 21 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 18 Kislev, regarding your question as to whether you should continue your studies in France, given that you are being troubled by distracting thoughts and by your *yetzer* (evil inclination).
+
+I have already written several times that our Sages have ruled, "According to the camel is the load," and on the contrary, the study of Torah is the remedy for this. Regarding specific individuals for whom there may be secondary factors that necessitate a change of location, in such cases, it is incumbent upon the student—and upon *yeshiva* students in general—to present their situation to the *Rosh Yeshiva* and the *mashpia ruchani* of the *yeshiva*. Since *Hashgacha Pratis* has ordained that you receive your Torah influence through them, you should also be able to receive guidance regarding your personal matters through them. You should do so, and **listen** to the instructions you receive, and it will be good for you.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 3131
+
+B"H, 21 Kislev, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, G-d-fearing and distinguished, engaged in communal needs, R' Yitzchak, may he live.
+
+Peace and blessing!
+
+In response to your letter from Motzaei Shabbos, with the *pidyon nefesh* enclosed therein.
+
+Regarding your difficulty in understanding how it is possible that the holy ones who were in the land did not sense the matter of the *Churban* (destruction), given that through the *korbanos* (sacrifices) additional revelations of light were drawn down, and so on—this can be explained according to what is elucidated in *Likutei Torah*, *Parshas Shemini*, regarding the two types of *tzaddikim*, the *Leviathan* and the *Shor HaBar*; see there. And in the *be'ur* (explanation) to *Sos Asis*, Chapter 2.
+
+I was pleased to hear that you are strengthening the study of *Tanya*, and surely you are strengthening it both in quantity—that is, by increasing the number of participants—and in quality. May Hashem grant you success.
+
+Surely you gathered during the days of 10 and 19 Kislev, and you will continue this during the days of Chanukah, may they come upon us for good. And if the words of our Sages, "I am asleep in the exile, but my heart is awake to Hashem, His Torah, and His *mitzvos*," apply to the entire year, how much more so during these auspicious days when—through appropriate *ta'amulah* (outreach)—one opens up even a needle's eye in the Jewish person, and Hashem opens up an opening like the entrance to the *Ulam* (the Hall of the Beis Hamikdash). As is explained in *Chassidus*, the precision in this is that the *Ulam* had no doors, and consequently it was always open, provided that one makes the effort to enter the *Azarah* (courtyard). And indeed, there was no partition separating the *Ezras Yisrael* from the *Ezras Kohanim*, even though one had to ascend the steps from one to the other; the analogy is understood.
+
+With blessing and regards to your family,
+
+**M. Schneerson**
+
+***3131***
+
+Published in *Likkutei Sichos*, Vol. 10, p. 254; completed based on a photocopy of the letter.
+
+**R' Yitzchak:** Dubov. Additional letters to him appear above in Vol. 9, letter 2995, and in the references noted in the footnotes there. Below, 3133.
+
+## 322
+
+B"H, 21 Kislev, 5715
+Brooklyn.
+
+To the Executive Committee of the Pe'alim in the United States,
+May they live.
+
+Peace and Blessing!
+
+In response to your letter from this past Erev Shabbos, in which you inform me of the gathering you are preparing for the upcoming 26th of Kislev—a gathering whose purpose is to increase the membership of the *Chaver Pe'alei HaMachaneh HaTorati*.
+
+May it be the will of Hashem that you succeed in utilizing your strengths and talents to raise the banner of *Yisrael Sava*, both in your current location—the United States—and in our Holy Land, the land upon which the eyes of Hashem your G-d are from the beginning of the year to the end of the year, where a heaviness is felt in their work due to the weakening of the support they had been receiving from here until now.
+
+And during the days designated for your conference, which are the days of Chanukah—the essence of which is the miracle that allowed them to light the Menorah in the Beis HaMikdash with pure oil, without the touch of foreigners—this will surely strengthen the necessary resolve that every single man and woman of the Jewish people must illuminate their portion of the world only with pure oil, with the pure light and Menorah of *ner mitzvah* and *Torah Ohr*, and the *maor shebaTorah*, without the touch of any foreign matter. And even if, at first, those who resolve to do this with the appropriate strength are few, just as it was in those days, so too is it in this time: Hashem, in His abundant mercy, delivers the many into the hands of the few, and they are able to purify the *Mikdash*—that is, the environment of every single Jew—and light there the candle of *mitzvah* and the light of Torah, founded upon the *maor shebaTorah*, which is the *pnimiyus haTorah*, until they illuminate the darkness of the night with a light that constantly increases and ascends in holiness.
+
+With blessings for success.
+
+## 3133
+
+3133
+
+B”H, 21 Kislev, 5715
+Brooklyn.
+
+To the distinguished Rabbi and Chossid, learned and G-d-fearing, R’ Dovid Shlomo, may he live:
+
+Shalom u’Bracha!
+
+After a long hiatus, I was pleased to receive your letter in which you share news of your good health. May it be the will of Hashem that from now on, each of us will be able to share only good news with one another.
+
+Regarding the pamphlet enclosed in your letter concerning an individual suffering from schizophrenia and whether he is able to divorce his wife: The term itself encompasses several levels, ranging almost from one extreme to the other. However, the common denominator in the vast majority of cases, according to the testimony of physicians, is that they fall into the category of "sometimes sane, sometimes insane," especially after being treated with the new medications (excluding the two extremes: the hopeless case, G-d forbid, where medications are ineffective, or the positive side where one is in a state of melancholia or excessive joy, and nothing more). As is apparent from what you wrote at the beginning of the pamphlet, this is not the case under discussion here, and there is no need to elaborate, as the primary investigation and the medical opinion regarding the exact condition of the subject are missing. It also seems from your letter that this was not your intention—to engage in a halachic debate—but rather to clarify whether one should continue the efforts, investigation, and inquiry into this matter. Certainly, with patients such as these, there are good hopes for their recovery, even in their state during the illness, G-d forbid. Nevertheless, so that my letter does not appear empty, I will at least provide a few lines regarding the pamphlet:
+
+1) Regarding your observation on the Responsa of the Tzemach Tzedek, Even HaEzer, Siman 153, where you question his statement that Rav Huna’s ruling—that a person who exhibits one of the signs of insanity mentioned in Maseches Chagigah is considered a *shoteh*—is difficult, because the Gemara there concludes that it is only if he acts in a way that is clearly foolish, and we require that he manifest this in three ways: In my opinion, the intention of the Tzemach Tzedek is simple. In that paragraph, he sets out to clarify whether acting foolishly in one matter causes one to be considered a *shoteh* in all matters—a point of dispute between the Rambam and the Tosafists. The discussion there proves that if it is impossible to find a reason for his behavior, even in one matter—meaning, were it not for the reason that he is acting in a way to allow a spirit of impurity to rest upon him, or similar—he would be considered a *shoteh* even in one matter.
+
+2) Regarding your bewilderment there that he does not cite the words of the Tvuos Shor in his comparison of the views of the Rambam and the Tosafists: In the aforementioned Responsa, as well as in the Responsa of our Rebbe HaZaken, they write that the Tvuos Shor is very strained in his interpretation of the words of the Rambam. Since they do not agree with his premise, they naturally did not elaborate further.
+
+3) Regarding what you wrote in the pamphlet concerning *bal tashchis* (the prohibition against wanton destruction) and the Rambam’s language of "a path of destruction": You should examine the precision of the language of our Rebbe HaZaken in his *Shulchan Aruch*, at the end of *Hilchos Shemiras Guf V’Nefesh*, paragraphs 14 and 15. It is based on the words of the Rishonim. Similarly, one could say the same regarding one who commits a transgression—that even though it is because a spirit of folly has entered him, it has a connection to calming his inclination and his wrath.
+
+4) Regarding your conclusion to the Responsa of the Tzemach Tzedek: This is also discussed in his Responsa, Siman 159, and in his *Chiddushim* on the Mishnayos of Maseches Chagigah and Maseches Gittin, Chapter 7.
+
+5) Regarding the citations at the end of the pamphlet to the later authorities who discuss this law: You should also examine the *Sdei Chemed*, in the section *Asifat Dinim*, *Ma’areches Gerushin*, Siman 1, and the books cited there.
+
+With respect and blessing.
+
+Regarding your observation in *Shaarei Teshuvah*—by the Mitteler Rebbe—*Shaar HaYirah*, end of Chapter 5, that "the persecutions have ceased and will no longer occur," and the difficulty posed by the decrees of 5408 (and those of our own generation):
+
+You should examine the text there, as it refers to the persecutions that came to rectify the idol worship of the First Beis Hamikdash and the souls that existed then—that all those who sanctified Hashem’s name during the Middle Ages were from those souls. Regarding this, the Arizal said that in his time they ceased, etc., because the matter was rectified and the souls ascended, etc.
+
+Incidentally: It is brought there that the Ibn Ezra sacrificed his life for the sanctification of Hashem’s name. As of now, I have not found this elsewhere.
+
+***3133***
+
+**R’ Dovid Shlomo:** Shapiro, Milwaukee.
+
+## 3134
+
+B"H, 21 Kislev, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I hereby acknowledge receipt of your letter from the eve of 11 Kislev. As you requested, I will mention all those you wrote about at the holy resting place of my father-in-law, the Rebbe, of blessed memory. This is especially pertinent as these days are *yemei segulah* (days of spiritual auspiciousness) and an *eis ratzon* (time of Divine favor), in accordance with what our Alter Rebbe writes at the end of *Iggeres HaTeshuvah* (10a): these are days when one recites a blessing with Hashem’s Name and Kingship, with the simple certainty that there is no doubt whatsoever that He performed miracles for our ancestors in those days **and in this time**—and in many places in *Chassidus* it is explained that "in this time" refers to our own time and our own days.
+
+Regarding what you wrote at the end of your letter about whether to consult a more expert doctor than Dr. ..., and your concern that he might have a different opinion, and how then to decide:
+
+This concern can be addressed when the time comes, as in any case, one cannot escape the realm of doubt. In such matters, the decision rests either on the feeling of the person asking himself—in accordance with the ruling of the *Shulchan Aruch* that in matters such as these, "the heart knows its own bitterness"—or by presenting both opinions to a neutral doctor. May Hashem guide you on the path that is good before Him.
+
+Enclosed is the *kuntres* published in connection with the auspicious day of 19 Kislev; surely you will merit the public through it.
+
+And if the words of our Sages, "I am asleep in exile, but my heart is awake to Hashem, to His Torah, and to His *mitzvos*," apply to the entire year, how much more so during *yemei segulah*. When one opens (through appropriate *ta'amulah*) even a needle-thin opening in a Jewish person, Hashem opens [a gate] like the entrance of the *Ulam*. As is explained in *Chassidus*, the precision in this is that the *Ulam* had no doors; consequently, in addition to the increase in quantity, there was an increase in quality, as it was always open—provided one makes the effort to enter the *Ezrah*. Indeed, there was no partition separating the *Ezras Yisrael* from the *Ezras Kohanim*, even though one had to ascend steps from one to the other. The analogy is understood.
+
+With respect and blessings.
+
+## 325
+
+B"H, 24 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing man, whose work is the work of Heaven,
+Rabbi Chaim Moshe, may he live.
+
+Shalom u’Bracha!
+
+In response to your letter of the 8th of Kislev, in which you write regarding your appointment by the administration of Yeshivas Toras Emes to serve as a Mashgiach for Chassidus (it is surprising that your letter regarding this matter was delayed for so long).
+
+May it be the will of Hashem that you succeed in instilling true yiras shamayim in those you influence—meaning that their inner selves should match their outward appearance. This is so that not only will their garments be the garments of a Yerushalmi (as explained in Chassidus in the discourse *U’bau Ha’ovdim... Ha’nidachim... V’hishtachavu...*, but that within them, too, there should be the concept of the "Holy Mountain in Jerusalem," as explained there). May this be in accordance with the intent of its true founders and directors, our holy Nesi’im, may the merit of their righteousness protect us. And the measure of the Holy One, blessed be He, is measure for measure: that through "v’shinantam l’vanecha"—these being the students—you will merit the fulfillment of the commandment "to your children" in its literal sense, your own children.
+
+Surely you utilized the days of the month of Kislev, the month of Geulah, and specifically the days of the 10th and 19th of Kislev, for a Chassidishe farbrengen and for the acceptance of good resolutions regarding practical application in daily life. Please inform me of this in appropriate detail.
+
+With blessings for success in all of the above.
+
+P.S.
+Surely you have received my previous letter to you, as well as the letter to the group of avreichim.
+
+## 330
+
+B"H, 24 Kislev, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chassid, G-d-fearing and learned, involved in communal needs, etc., etc.,
+Rabbi R. Sh. Y. (may he live and be well),
+
+Shalom u’Bracha!
+
+In connection with the bright day of 19 Kislev, I am enclosing the Kuntres published for this festival of our redemption and the liberation of our souls.
+
+Rabbi Hutner (may he live and be well) visited me these past few days, and we spoke at length and in brief regarding the Talmudic Encyclopedia and his other plans. I told him my opinion, which concurs with yours: that if they engage in writing the entries here as well, even if they are subsequently sent to you, there is room to argue that not only will it not lighten the workload, but on the contrary, it will cause confusion due to conflicting opinions, etc. I saw that he did not accept this. However, since he did not tell me his inner reasoning—which relates to the assistance connected with the arrangement mentioned above—I did not dwell on this matter.
+
+Incidentally, the aforementioned mentioned to me that it is possible they will have to consider a second printing of the Encyclopedia.
+
+I noted to him that it is necessary, in my opinion, for the paper and the binding to be of higher quality than they have been until now, and that this is an expense that serves to increase revenue...
+
+With respect and blessing,
+
+**M. Schneerson**
+
+***330***
+
+**R. Sh. Y.:** Zevin. Additional letters to him—see above 326, and the references in the notes there.
+
+## 3137
+
+[24 Kislev, 5715]
+
+...It is well known what our Sages said regarding Chanukah: that this Yom Tov is connected to the heroic Jewish women and their conduct during that era, despite all the difficulties and the various decrees they had to overcome. Therefore, Chazal say, "They, too, were part of that miracle," and even more—that it was through them that the **miracle** occurred. It is well known that every year, that era repeats itself in the sense that it is an *eis ratzon* (a time of special favor) to strengthen oneself and increase one’s good conduct, similar to the conduct of the Jewish women of that time—*bayamim haheim bazman hazeh* (in those days, at this time). According to the teaching of Chazal—that when a person purifies and sanctifies themselves below, they are given even more capabilities from above. And according to the expression of my father-in-law, the Rebbe, *ztzוקללה"ה nbg"m zy"a*: one must listen to what the little lights—the *neros Chanukah*—are telling us. May Hashem Yisbarach grant you success in hearing and internalizing this, and in translating it into actual deeds in your daily life.
+
+#### 3137
+
+Published in *Likkutei Sichos*, Vol. 10, p. 301.
+
+**According to the expression:** See also below, Letter 3141.
+
+## 3138
+
+B"H, 25 Kislev, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+Regarding what you wrote about the students who are breaching the boundaries: the point is well known that the benefit of the many overrides the benefit of the individual. However, one must do everything possible so that the individual is also not pushed away, as our Sages of blessed memory said, "The right hand should always draw near." It is my hope that when you speak with them during a farbrengen and in a manner of drawing near—and also through their friends and the like—they will change their behavior...
+
+With blessings.
+
+#### ***3138***
+
+Published in Likkutei Sichos, Vol. 22, p. 407.
+
+## 329
+
+B"H, 25 Kislev, 5715
+Brooklyn, N.Y.
+
+Greetings and blessings!
+
+In response to your letter of 4 Kislev:
+
+The charity funds should be distributed using regular currency. What I wrote to you regarding the *selaim* for *pidyon haben* was only to determine the equivalent amount in your country’s currency.
+
+2) Regarding charity in general, and specifically the charity we discussed, it is better to distribute it among several causes rather than giving it all to one cause or one person (*Eruvin* 63a). However, the charity I spoke of should be in addition to the charity you were accustomed to giving anyway, and should not be used to fulfill existing obligations to charity funds.
+
+3) Regarding what you wrote about the expert physician’s opinion concerning methods of contraception, you should turn to rabbis who are experts in *hora'ah* (halachic ruling) and present the situation to them.
+
+4) Regarding what you wrote in response to my suggestion to establish a regular *shiur* in Chassidus—that you are studying *mussar* and Gemara, etc.: The Torah has many parts, and by engaging in any of them, one fulfills the *mitzvah* of *talmud Torah*. However, beyond that, there are specific qualities to the different parts of the Torah, where one part is not like the other. This is similar to what is stated in the *Shas* regarding dividing one’s study into *Mikra*, *Mishnah*, and *Gemara*. It is also similar to the words of our Sages, that one who wishes to become wise should study *dinei mamonos* (civil law), and in order to know the One who spoke and the world came into being, one should study *Aggadah*. The same applies in our case, regarding the unique benefits of studying the inner dimensions of the Torah, which cannot be attained through the study of other parts of the Torah. May Hashem grant you success and bring you good tidings in all the above.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+Secretary
+
+## 3140
+
+B"H, 25 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and meticulous in communal affairs, R' Nissan, may he live:
+
+Peace and blessing!
+
+In response to your letter of 18 Kislev, I was pleased to read that you visited several places in Morocco, both in the city and in the villages. The great necessity of this is surely superfluous to explain to those who are on the ground, and therefore my hope is that you will continue to do so in the future, only more frequently. Consequently, your presence will be felt by those working there, as one who comes and goes.
+
+I was pleased by what you wrote, that you hope to complete the construction of the mikveh soon. Here, it has begun to be the practice in many places to have two reservoirs of rainwater (in addition to the one that serves as a reserve to fill the *otzar*): one for *hashakah* and the second for *zeriyah*, through which the water flows into the mikveh used for immersion. Even though this was not the custom in our country in the past, since in a mikveh one must fulfill all opinions as much as possible, if there are no difficulties in the matter, it should be done in your location as well. You will surely consult among yourselves, and also with the esteemed Rav, Chossid, G-d-fearing, and meticulous in communal affairs, Rabbi B.A. Gorodetsky, may he live, who has seen the mikveh on site.
+
+I am certain that you held an appropriate *farbrengen* on the auspicious day of 19 Kislev, and that you will continue this during the days of Chanukah as well.
+
+If the words of our Sages, "I am asleep in exile, but my heart is awake to Hashem, His Torah, and His mitzvos," apply to the entire year, how much more so during these auspicious days. When one opens—through appropriate *ta'amulah*—even an opening the size of the eye of a needle in a Jewish person, Hashem opens [a gate] like the entrance to the *Ulam*. As is explained in *Chassidus*, the precision in this is that the *Ulam* had no doors. Consequently, in addition to the increase in quantity, there is also an increase in quality, in that it was always open—provided that one makes the effort to enter the *Azarah*. And though there was no partition separating the *Ezras Yisrael* from the *Ezras Kohanim*, one still had to ascend the steps from one to the other; the analogy is understood.
+
+With blessing.
+
+#### ***3140***
+
+**R' Nissan, may he live:** Pinson. Additional letters to him appear above in 3044, and in the notes referenced there.
+
+**Two reservoirs:** See also the letter above, 3118.
+
+## 3121
+
+B"H, 25 Kislev, 5715
+Brooklyn
+
+To the Administration of the Nusach Ari Chabad Synagogue 
+in Dorchester and all the congregants,
+May Hashem protect them and may they live,
+
+Peace and blessing!
+
+It was with pleasure that I received, through the esteemed Chossid, G-d-fearing, and faithful communal worker, Rabbi Yehuda Leib Halevi Hurwitz, your contribution for *kinder hilf* and *yeshivos*, as per the enclosed receipts. I am certain that this is evidence of your constant interest in supporting these most vital *mosdos*.
+
+And just as with every living thing, your interest will surely grow—in the words of our Sages, "we ascend in matters of holiness." This is especially true as we find ourselves in the days of Chanukah. The decree then was an attempt to "make them forget Your Torah and force them to stray from the laws of Your will." Therefore, according to the words of my father-in-law, the Rebbe, of blessed memory, who said in the name of his holy ancestors, "one must listen to what the Chanukah candles are telling us," we must apply this to our *avodas Hashem*. Ultimately, it was the Yidden, through their *mesiras nefesh*, who were victorious, "purifying Your Sanctuary and kindling lights in the courtyards of Your holiness." We were commanded to do this—to kindle lights during the days of Chanukah—and in such a way that it should be "increasing and growing," meaning that each night more light should be added. This is a *horah klalis* (general instruction) for the conduct of a Yid in matters of Torah and *mitzvos*: one must create light even at night, and not only inside the house, but also, as the Gemara states, "at the entrance of his house, on the outside." And the *middah* of the *Ribono shel Olam* is *middah k’neged middah*, that He brings light into everyone’s home with abundant children, life, and sustenance.
+
+With blessings to each and every one of you and your households, may they live.
+
+#### ***3121***
+
+**According to the words:** See also *Iggeres* 3117.
+
+## 3142
+
+B"H, 26 Kislev, 5715
+Brooklyn.
+
+To the esteemed and distinguished, etc., R' Yaakov Asher, Shochet and Bodek,
+
+Shalom u'Bracha!
+
+After a long interruption, I was pleased to receive your letter of 21 Kislev and to read therein that you are continuing to teach Tanya to baalei batim, and that you are participating in the farbrengens of anash as well as in the support of the mosdos. May Hashem help you to go from strength to strength.
+
+Especially in light of the lesson from the days of Chanukah, where the acronym of Chanukah is "Eight candles and the halacha is according to Beis Hillel," meaning that we increase and continue—that from day to day we make things brighter—this serves as a lesson for every Yid to make each day brighter through the "candle of a mitzvah and the light of Torah," and through the "light of the Torah," which is the pnimiyus haTorah.
+
+With blessings for success in all the above, and regards to all those who participate in the shiurim.
+
+#### ***3142***
+
+**R' Yaakov Asher:** Teller, London.
+
+## 3143
+
+B"H, 26 Kislev, 5715
+Brooklyn
+
+To the esteemed, G-d-fearing, and distinguished R' Meir Mattisyahu Halevi,
+
+Shalom u’Bracha!
+
+In response to your letter from Parshas Vayeitzei (which was received with some delay), in which you write regarding the logic and suggestion to mandate that those writing in the spoken language should do so using the letters of Lashon HaKodesh—presumably referring to Ashuris script—and you cite as an example the way Arabic was written during the time of Rav Saadia Gaon or the Rambam using Ashuris script.
+
+In truth, this is not the case. They did not write in Ashuris script. Furthermore, even the Yad HaChazakah, which was written in Lashon HaKodesh, was written in a script other than Ashuris. This was done intentionally, as they did not wish to use Ashuris script except where absolutely necessary. How much more so, then, that they did not wish to use it for mundane matters (it is for these reasons that Rashi script, Ksav Meshita, etc., developed; it is only in our generation that the permission has become widespread to use square letters for all matters).
+
+Therefore, your aforementioned suggestion does not seem correct to me. Furthermore, in general, in these days we must utilize every moment and every possibility to instill yiras shamayim and the fulfillment of practical mitzvos into the environment, and to make the acceptance of these instructions as easy as possible for the listeners and those in the environment. It is obvious that we should not make it more difficult for them. Since reading text in English letters will be easier than if it were written in Ashuris (square) letters, it is not worthwhile to waste time on learning a new way of reading; rather, we should utilize the time to provide them with additional knowledge in Torah and mitzvos. Fortunate is the portion of each and every one who works in this with the appropriate energy.
+
+You are surely aware of the three daily shiurim for every person, established by my father-in-law, the Rebbe, of blessed memory: 1) Reciting the daily portion of Tehillim—as Tehillim is divided for the days of the month—each day after davening Shacharis. 2) Studying the weekly parsha of Chumash with Rashi’s commentary, on Sunday from the beginning of the weekly sedra until the second aliyah, on Monday from the second aliyah until the third, and so on. 3) Studying the daily shiur of Tanya, as Tanya is divided for the days of the year, and keeping them. May Hashem grant you success.
+
+With blessings,
+
+## 3144
+
+B"H, 26 Kislev, 5715
+Brooklyn
+
+To the esteemed and distinguished, etc., R' Yitzchak Yaakov, may he live.
+
+Shalom and blessing!
+
+In response to your letter of 24 Kislev: It is surprising that you do not mention anything regarding what was done on the bright day of 19 Kislev, the day of the redemption of our Alter Rebbe, founder of the Chabad Chassidic path, which is, by extension, our own redemption and the liberation of our souls. Since in such matters one must fulfill the obligation as much as possible even after the fact, if you did not hold a farbrengen on that day, it is worthwhile to do so on one of the coming days.
+
+Regarding what you write, that you cannot find even one person to assist you in your activities, etc.: You are surely aware of the explanation given by my revered father-in-law, the Rebbe, of blessed memory, regarding the Talmudic expression **"one who engages"** (*ha'osek*) in Torah, **"one who engages"** in a mitzvah. This must be understood in the manner of someone engaged in business—they do not wait for someone else to initiate things on their own. Furthermore, one is not discouraged if they approach someone and they are not interested, because one knows that they are not doing a favor for others, but rather it is for their own benefit. Such an attitude must be applied to the dissemination of Torah and mitzvos. It is already known that our Sages ruled that the poor person does more for the householder than the householder does for the poor person. This applies both to material charity and to spiritual charity. There is a presumption that outreach does not return empty, even if sometimes a significant amount of time passes between the sowing of the seed and the growth of the crop.
+
+With blessings for success in all the above, in good health.
+
+## 315
+
+B"H, 26 Kislev, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing and distinguished, etc., R' Avraham Dovid, may he live:
+
+Peace and blessing!
+
+... With blessings and thanks for the Havdalah, and may we merit, through the eight Havdalahs (Pesachim 104a; Sefer HaMitzvos, Mitzvah 5), to reach the time of the "eight strings."
+
+***
+
+**R' Avraham Dovid:** Rosenblatt.
+
+## G'kmo
+
+B"H, 3rd of Chanukah, 5715
+Brooklyn, N.Y.
+
+Great peace to the man, the illustrious Rav, G-d-fearing, whose light shines, who sits in judgment, a man of vitality and many accomplishments, who leads his congregation with integrity, illuminating and shining through his words and his ways, a descendant of holy ones, etc., the honorable Rav Meir Abuchatzira, shlita.
+
+Peace and blessing!
+
+It was a pleasure for me to learn of the farbrengen that took place on Yud-Tes Kislev, the Chag HaGeulah of our Rabbeinu HaZaken, the Baal HaTanya (the authority on the hidden aspects of Torah) and the Shulchan Aruch (the authority on the revealed aspects of Torah). Surely you utilized the opportune moment of the farbrengen—and according to our Sages, "great is the drink that brings [people] close"—to bring the participants ever closer to Torah and mitzvos.
+
+And if our Sages' statement, "I am asleep in exile, but my heart is awake to Hashem, to His Torah, and to His mitzvos," applies to the entire year, how much more so does it apply during these auspicious days. When one opens—through appropriate outreach—even a sliver in the heart of a fellow Jew, Hashem opens [a gate] like the entrance of the Ulam. As is explained in Chassidus, the significance of this is that the Ulam had no doors and was therefore always open, provided that one makes the effort to enter the Azarah. Indeed, there was no partition separating the Ezras Yisrael from the Ezras Kohanim, even though one had to ascend the steps from one to the other; the lesson is understood.
+
+With respect and blessing.
+
+#### ***G'kmo***
+
+A portion was printed in Likkutei Sichos, Vol. 15, p. 514, and in its entirety in *Nesi'ei Chabad U'Bnei Doram*, p. 150.
+
+**Great peace... Abuchatzira:** Additional letters to him—above, Vol. 7, 1885, and in the references noted in the footnotes there.
+
+## 3247
+
+B"H, 28 Kislev, 5715
+Brooklyn.
+
+To my dear friend, the observant and G-d-fearing, etc., R' Avraham Dovid 
+May he be well.
+
+Peace and blessing!
+
+It has been a very long time since we received any news from you, and may it be Hashem’s will that this is a clear sign that all is well and in peace.
+
+In your last letter, you also mentioned [the name of an individual]—may he be well—and surely you have remained in contact with him since then, and you encourage him from time to time regarding the inner point that is within him. It is already a well-known saying of my father-in-law, the Rebbe, regarding why Bnei Yisrael are called "a garden spring, a well of living waters" (Shir Hashirim 4:15). For the Holy One, Blessed be He, says, "For you shall be a land of desire" (Malachi 3:12)—as is known, that in every place in the land, living waters are to be found. However, there are places where they bubble up to the surface of the land on their own; there are places where they are found beneath the land, but not at a great depth, and it is easy to uncover them and bring them from concealment to revelation; and there are places where they are found in the depths, and one must remove stones, earth, and so on, in order for them to be revealed upon the land. The analogy is understood.
+
+Surely you participated in the farbrengens of the month of the new redemption, the month of Kislev, and specifically on the bright day of 19 Kislev. May it be Hashem’s will that you draw that joy throughout the entire year.
+
+With blessings, awaiting good tidings.
+
+#### ***3247***
+
+**R' Avraham Dovid:** Yanovsky.
+
+**Land of desire :** See also letter 3296 below.
+
+## 3148
+
+B"H, 29 Kislev, 5715
+Brooklyn.
+
+To my dear friend, the G-d-fearing, learned, and distinguished, who engages in communal needs, R' Yehuda Leib, may he live and be well,
+
+Shalom u'Bracha!
+
+I was pleased to receive your letter of 22 Kislev, in which you write about the farbrengen on the auspicious day of Chag HaGeulah, 19 Kislev—the redemption of our Alter Rebbe, which is also our own redemption and the salvation of our souls. Surely, resolutions were also made regarding practical action, specifically for the dissemination of the wellsprings outward and for Torah and mitzvos. Since this day is a day of segulah, the hisorerus felt during this time of ratzon is more easily translated into action, and surely you will report on this at the next opportunity.
+
+Regarding your question about the permanent location for a farbrengen—whether it should be in the shul or in the home of one of anash—"from this and from that, do not withdraw your hand," for both are extremely necessary. This question was already asked of my father-in-law, the Rebbe, of blessed memory, and he answered along these lines. In general, one must take into account the local conditions and the manner in which the advantages of a farbrengen in a public space—that is, in the shul or beis medrash—can be utilized, as well as the advantages of a farbrengen in a private home, which serves to bring holiness into that home as well. The way to do this is to alternate, but it is impossible to set hard and fast rules, as is understood.
+
+With blessings for true health and for good tidings.
+
+#### ***3148***
+
+**R' Yehuda Leib:** Slonim.
+
+**This question was already asked... and he answered:** See Igros Kodesh of the Rebbe, Vol. 5, p. 422.
+
+## 3140
+
+B"H, 1 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, G-d-fearing and upright, engaged in communal needs,
+Rabbi Mordechai Hakohen, may he live.
+
+Peace and blessing!
+
+In response to your letter from Motzaei Shabbos, the eve of 24 Kislev: Regarding what I wrote concerning the Calabria esrogim, it is well known that the hiddur in this matter stems from the fact that even since the days of the Baalei Tosafos, they would take esrogim from there, as is brought in the Responsa of the Chasam Sofer and cited in Shaar HaKollel (it is understood that the reasons according to the nistar are a matter unto themselves). Therefore, one must endeavor to take the saplings and cuttings from that same district, and it is best if they come from the same field from which the esrogim have been taken throughout the years. It is even better if it is not from a pardes—that is, a plot tended by human hands—but rather from a forest. Surely, such areas can be found.
+
+Regarding what you wrote concerning the matter of orlah: Rabbi N. Elboim, and primarily his father-in-law Rabbi D. Ludmir, have experience (praktik) in this, as they say. Consequently, you will be able to learn from them the details of how to take the tree with the rock, and in a manner that ensures it is sufficient.
+
+I trust that at the farbrengen of the auspicious day of 19 Kislev, you also participated in the completion of the Shas, and primarily in making good resolutions regarding practical application in daily life. It is a pity that, judging by your silence, such matters are not being printed in the Italian periodical, even though one could find someone qualified for this in his location, even after the departure of the avreich, [Rabbi] Naeh.
+
+With blessing and regards,
+
+On behalf of the Rebbe, shlita,
+
+A. Quint
+Secretary
+
+#### ***3140***
+
+Partially printed in Likkutei Sichos, Vol. 12, p. 215, and partially in Vol. 11, p. 573; completed according to a photocopy of the letter.
+
+**Rabbi Mordechai:** Perlov. Additional letters to him appear above, 3056, and in the references in the footnotes there.
+
+**Regarding what I wrote:** Above, letter 3056.
+
+**Are not being printed... Naeh:** See above, Vol. 8, letter 2880, and the references in the footnotes there. Above, 3116.
+
+## 3050
+
+B"H, 1 Teves, 5715
+Brooklyn
+
+To the esteemed, G-d-fearing, and learned R' Yitzchak, may he live.
+
+Shalom and blessings!
+
+In response to your letter of the auspicious day of 19 Kislev—the day of the redemption of our Rebbe, the Alter Rebbe, author of the holy Tanya (the arbiter of the hidden aspects of Torah) and the Shulchan Aruch (the arbiter of the revealed aspects of Torah).
+
+In it, you write that you are organizing religious lectures—that is, on matters of Torah—on Shabbos, and that these lectures are helping to improve the religious situation in your city. There are those who object to this, as there are also Torah study shiurim taking place in the city's shuls at that time, and they fear that participation in those Torah shiurim might be weakened by these lectures.
+
+Now, when faced with a certainty (*bari*) versus a doubt (*shema*), the certainty takes precedence. It is a certainty that these lectures on Torah matters are helping to improve the religious situation, and the number of participants is large; consequently, they should be strengthened and expanded as much as possible. As for the aforementioned fear of "perhaps," beyond the merit of "extracting the precious from the base" (*Bava Metzia 85a*), these lectures contain both Torah and yiras shamayim—meaning, study for the purpose of immediate action. Without such study, the action itself is left in doubt, and therefore they have priority.
+
+Especially since, with a little effort, the time of the shiurim held after Shacharis can be changed, as the people in question are those who wish to learn and do not require much persuasion to do so.
+
+Regarding what you write about the club, where there is mixing of boys and girls even though it is called a religious club: experience has shown that with appropriate effort—using pleasant ways, but with firm resolve—one can succeed in abolishing the mixing. The matter depends solely on the will of those working on it.
+
+With blessings for success in your holy work, to save Jewish souls from a difficult exile in both material matters and in all the labor that breaks the soul and sinks it into the building of matters of which our Sages, of blessed memory, said: "little by little it crumbles" (*Sotah 11a*). And if one who sustains a single Jewish soul is considered as if he sustained an entire world, how much more so when it concerns many souls. May Hashem grant you success.
+
+On behalf of the Rebbe, shlita,
+Secretary
+
+## 3151
+
+B.H., 1 Teves, 5715
+Brooklyn
+
+To the esteemed and distinguished individual, who engages in communal affairs, R. Chaim Zusia, may he live:
+
+Greetings and blessings!
+
+Your letter from 13 Kislev, along with its enclosure, has been received. It is surprising that it took so long to arrive.
+
+Regarding the distribution of Kehot publications: It is surprising that you do not mention anything about sales to bookstores. Beyond the publicity generated by having the books available in various locations, it is also understood that anyone looking for a book turns to a bookstore, and consequently, the potential for distribution increases.
+
+There is no contradiction between this and selling to anash, yeshiva students, and the like, since yeshiva students outside of Tel Aviv will certainly not travel to buy from a bookstore—especially since you offer them payment terms, whereas a bookstore requires immediate payment.
+
+It is a great pity that the books have been in Eretz Yisrael for several months now, and the distribution is still in its infancy.
+
+Furthermore, one should have endeavored—for several reasons—to have newspapers publish favorable reviews of the various books and kuntresim. This awakens a desire, even among those who are currently distant from anash, to see the book or kuntres itself. One should also have endeavored to post advertisements for the books and kuntresim in places where many people gather, and so on. It is surprising that this seems to be handled with negligence and without consideration for how to increase distribution.
+
+I was pleased with what you wrote regarding the Agudas N'shei U’Bnos Chabad, but it is surprising that so much time passes between one meeting and the next. Regarding actual decisions—the delay in implementation is even greater.
+
+As for what you wrote regarding the difference between a sheitel and covering with a tichel: It is simple that when the head covering is a tichel and one meets a friend or an acquaintance who is not covered, the tichel often slips off (glitsh zich arop) or even disappears entirely into a pocket. This is not the case with a sheitel, where it is impossible to do so. Consequently, the habit eventually becomes second nature.
+
+Regarding what you wrote about the situation in the village and the situation at Beis Rivkah: It seems that I have not yet merited to derive satisfaction from these matters, even though the matter is simple and depends only on their own will. It seems that the same applies to the matters of the Reshet, which should have developed and grown; the pride and the entire "greatness" is merely that it does not decrease (or that it decreases only slightly) compared to what it was until now.
+
+Regarding what you wrote about the blessing for the year: It is surprising to me, as it was sent months ago. And as for what you write about settling in the village, that you do not want it as a profession—I do not know the reason for this desire. The concept of "I dwell among my own people" and being in a Chabad environment needs no explanation; it is very, very great.
+
+As you requested, I will mention those you wrote about at the holy gravesite of my father-in-law, the Rebbe, of blessed memory. May it be Hashem's will that you bring good news regarding your success in both general and personal matters. Especially since the spreading of the wellsprings outward is growing, and one of the ways to achieve this is, of course, the distribution of the aforementioned printed materials.
+
+With blessings for success.
+
+## 3,152
+
+B"H, 1 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 15 Kislev—and surely you have received my second letter in the meantime—regarding what you wrote: that you perceive my first letter as a form of severe rebuke. I have written many times that I see no benefit in rebuke, etc. Rather, my heart aches to see how the success that is being granted from Above, which is beyond the natural order, is not being utilized; on the contrary. This is the case in the present matter: even if we were to assume that you are one hundred percent correct in your claims, I have already written that "the good man sins and the scoundrel is beaten"—meaning, you have claims against so-and-so, and the schools are suffering because of it...
+
+I do not wish to dwell once again on every detail and sub-detail. For someone like you, the general point mentioned above should suffice: that you should view this matter as your own, something that concerns you and your household, with kindness and mercy. In doing so, you will naturally come up with more and better ideas and solutions. As is known, the Rebbe Maharash told a story regarding the study of the *sugya* of the *amah ha'ivri* in the Gemara, and the profound reasoning applied to it by the Tannaim, Amoraim, and the early and later authorities. The *amah ha'ivri* acts in accordance with these reasonings, even though her intellect is not at all comparable to the aforementioned scholars. He said that the matter is simple: when a subject truly touches a person, even an *amah ha'ivri* will grasp the reasoning of the later and earlier authorities, and even far beyond that...
+
+I await good news regarding all of the above, as well as regarding the content of my previous letter.
+
+#### ***3,152***
+
+**I have already written:** See above, letter 3,108.
+
+## 3153
+
+B"H, 1 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I was alarmed to receive reports that he is conducting himself in unconventional ways and paths, even though the paved path that our holy Rebbes—may their merits protect us—have paved for us is known to all. This is true both in the revealed Torah, as explained in the Rambam in Hilchos Deios that the path of moderation is the correct and good path, and even more so in the teachings of Chassidus, which emphasize that the avodah of Hashem must be with joy. "You shall surely help with him" (Azov ta'azov imo)—meaning to serve the Ribono shel Olam together with the body, and not through self-affliction and fasts. This matter has already been explained in many places, and at length in the sichos as well.
+
+This is especially true when Hashem grants success and one builds a home in Yisrael according to the law of Moshe and Yisrael; that is, in addition to one's personal responsibility, one takes on the responsibility for another neshamah from Yisrael. Specifically through this, if they are worthy, the Shechinah dwells between them. It is therefore obvious that one must guard one's health in order to fulfill the husband's obligations to his wife in the three areas, and to serve Hashem with joy and a good heart. This also includes simple joy in the home, through conduct in ways of pleasantness. It is unnecessary to elaborate on such a simple matter.
+
+If he will listen to my opinion, he should walk the "king's highway" that our Rebbes, our leaders, have taught us, and refrain from fasts, self-affliction, isolation, and the like. May Hashem grant him success in serving Him with his soul and body together, and may the joy of a mitzvah break through and remove the barriers and limitations that prevent this.
+
+With blessings for Chassidic conduct in daily life, and awaiting good news regarding the above.
+
+P.S.
+Surely he has fixed times for the study of the teachings of Chassidus, in addition to keeping the three daily shiurim instituted by my father-in-law, the Rebbe—may his merit protect us—in Chumash, Tehillim, and Tanya, as is well known.
+
+## 354
+
+B"H, 1 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi, G-d-fearing, learned, and distinguished, R' Yehuda Zarchia Mordechai Leib Chaim, may he live:
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your letter from the 2nd of Vayeshev, with the good news that you have purchased an apartment in the place of your holy service. May it be the will of Hashem that just as you have acquired a physical home, so too may you acquire your spiritual home—for an acquisition is effected through money and *chazakah*, and in the case of movable property, also through *meshichah*. This matter is explained in the *Sefer HaMitzvos* of the *Tzemach Tzedek*, in the mitzvah regarding laws of commerce. A home in the spiritual sense is explained in *Likutei Torah* at the end of *Parshas Devarim* and at the end of the *Hemshech* "Mayim Rabim" 5636.
+
+It is surprising that you do not write regarding your participation in the *farbrengen* of the auspicious day, the 19th of Kislev, the liberation of our *Rabbeinu HaZaken*, the author of the holy *Tanya*—the arbiter of the *nistar* (hidden) dimension of Torah—and the *Shulchan Aruch*—the arbiter of the *nigleh* (revealed) dimension of Torah.
+
+With blessings for success.
+
+#### ***354***
+
+**R' Yehuda Zarchia Mordechai Leib Chaim:** Segal, Tel Aviv.
+
+## G'kana
+
+B"H, 2 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, involved in communal needs,
+Rabbi Moshe Eliyahu, may he live.
+
+Peace and blessing!
+
+I have received your *pidyon nefesh* on behalf of Mrs... may she live. It is surprising that you do not mention her state regarding *yiras shamayim*, etc., even though I have requested several times that those who write regarding such matters should also include this information.
+
+It goes without saying that my intention in this is not to search and scrutinize, but rather to find the instruction and hint in a specific event that requires a blessing. That is to say, if for the time being there is a lack—and any lack in any matter for a son or daughter of Israel surely has a connection to a lack in spirituality—it is simple.
+
+As you requested, I will mention the aforementioned person at the holy *tziyun* of my father-in-law, the Rebbe, *ztzukulleh"h, nbg"m, zy"a*. In any event, you should encourage the mother of the aforementioned person, who is in your camp, to encourage her daughter regarding improvement in matters of *mitzvos*.
+
+It is surprising that there is no news from you regarding the *farbrengen* of the auspicious day, the 19th of Kislev, and the main point of making practical resolutions for the entire year. Surely you will fill this in at the next opportunity.
+
+With blessings.
+
+***
+
+**Rabbi Moshe Eliyahu, may he live:** Gerlitzky. Additional letters to him – see above, Vol. 1, 28, 64.
+
+## 3rd of Teves
+
+B"H, 2nd of Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I acknowledge receipt of your letter from Erev Shabbos Vayeshev. It is surprising that you wait to share news until some matter manifests in a way that is visibly and revealedly good. It would be much better to follow the custom of the Torah—whose ways are ways of pleasantness—and inform me immediately when you have joyful news; this itself is helpful in matters that are still among the "hidden kindnesses."
+
+At a time of favor, I will mention you at the holy resting place of my father-in-law, the Rebbe, of blessed memory, regarding all the matters you mention in your letter. You surely know my perspective, as is brought in many places in the holy seforim, that in order to remove the obstacles of vows—where one’s word to the Almighty is like a formal delivery—one should not set conditions, such as "I will see the kindness of Hashem in a visibly good way, and only then [will I do] the aforementioned." The Holy One, blessed be He, is guaranteed to fulfill what is due, even when one does not link it to conditions.
+
+It is surprising that you do not mention anything regarding the farbrengen of the bright day, the 19th of Kislev—the day of our redemption and the liberation of our souls—and the acceptance of good resolutions for the entire year ahead.
+
+And if, regarding the entire year, we rely on the words of our Sages, "I am asleep in exile, but my heart is awake to the Holy One, blessed be He, to His Torah, and to His mitzvos," then how much more so is this true during these auspicious days. When one opens—through appropriate ta'amulah—even a needle’s eye in the heart of a Yid, the Holy One, blessed be He, opens a gateway as wide as the Ulam. As is explained in Chassidus, the precision in this is that the Ulam had no doors; consequently, in addition to the elevation in quantity, there was an elevation in quality, for it was always open, provided that one makes the effort to enter the Azarah. After all, there was no partition between the Ezras Yisrael and the Ezras Kohanim, even though one had to ascend the steps from one to the other. The analogy is understood.
+
+With blessings for success and for good tidings.
+
+## 3,157
+
+B"H, 2 Teves, 5715
+Brooklyn.
+
+To the esteemed and distinguished individual, who engages in communal needs with faith, R' Chaim, may he live.
+
+Shalom u’Bracha,
+
+I was pleased to receive your letter from the 4th of Chanukah, and the resolutions you mentioned in your letter are enclosed.
+
+I am surprised that you do not write in detail regarding the farbrengen of 19 Kislev, stating only that the funds you sent in this letter were collected at that time. You surely remember what we have spoken about several times: that Hashem demands, in accordance with the instruction of the Baal Shem Tov, that one serve Him with simcha throughout the entire year. This demand is even stronger during days of simcha such as 19 Kislev and Chanukah. When Hashem makes such a demand, He also provides the kochos and the possibilities to conduct oneself in this manner. It depends solely on one’s own ratzon. Regarding what you wrote—that there were few people present—firstly, the entire Jewish people originated from one person, as it is written, "Avraham was one," and the verse continues, "and his seed shall inherit the land." Yidden and Yiddishkeit do not depend on kamus (quantity); rather, it is a matter of the connection with Hashem, who is Kol Yachol. Consequently, every Yid can build up an entire neighborhood, an entire city, and an entire country. One only needs to know that one is going on a shlichus of Hashem, whose will is "to make for Him, may He be blessed, a dwelling place in the lower worlds," and this work He has entrusted to Yidden, etc., as is explained at length in Tanya, particularly in Chapter 37.
+
+I hope that it is only the writing to me that is lacking, but that in actual fact you did farbreng. You should do the same in the coming days—Shabbos Mevarchim, Rosh Chodesh, etc. As I have already told you, when Hashem sees that one is in simcha, He increases it and strengthens the person’s affairs, so that he may see, even with physical eyes, that there is reason to be joyful. May Hashem grant you success in reporting good news regarding all of the above, and it goes without saying that you should influence your surroundings in this spirit as well.
+
+With blessings,
+
+## 3,158
+
+B"H, 2 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and learned, who engages in communal needs, Moreinu Harav Mordechai Tzvi, may he live.
+
+Peace and blessing!
+
+It was with pleasure that I received your letter of 24 Kislev, in which you bring good news regarding the improvement in the situation of those you influence, the studies, and, most importantly, regarding the practical application. Certainly, you will continue to emphasize that the deed is the essential thing, as per the ruling of the Mishnah; therefore, it is of the utmost necessity to study the halachos required for daily life. It is worthwhile to seek appropriate methods—through special examinations, the awarding of prizes, and the like—to ensure that those you influence are proficient in them. My intention is simple: the study of the laws of *brachos* (blessings), interruptions during *tefillah*, and the like.
+
+I was pleased by what you wrote regarding your visit to several settlements and the results that the visit achieved. Surely you remain in contact with them even afterward, so that the plowing and sowing of your visit may yield fruit throughout the entire year. And although a face-to-face visit is not the same as writing, after the visit, much can be accomplished through writing as well. Especially since we do not know clearly what is "great" and what is "small"—in addition to the words of our Sages, "Do not sit and weigh the commandments of the Torah."
+
+Surely you participated in the *farbrengen* of the auspicious day of 19 Kislev and in the acceptance of resolutions regarding their practical implementation, among them participation in the *chalukas haShas*. May the Ribono shel Olam grant you the merit and success to bring these resolutions into practice with peace of mind, health, and livelihood.
+
+My letter to your father-in-law, the esteemed Rav and Tzaddik, a scion of holy lineage, shlita, has surely been received.
+
+With a blessing for success.
+
+#### ***3,158***
+
+Published in *Likkutei Sichos*, Vol. 23, p. 494, and completed based on the secretariat’s copy.
+
+**Moreinu Harav Mordechai Tzvi, may he live:** Greenwald. Additional letters to him—above, Vol. 6, 1,814.
+
+**Study of the halachos required:** See also above, letter 3,040, and the references in the notes there.
+
+**My letter to your father-in-law:** Above, 3,121.
+
+## 325
+
+B"H, 3 Teves, 5715
+Brooklyn, N.Y.
+
+To the esteemed and distinguished individual, occupied with communal needs, etc., Dr. Y. Burg, may he live:
+
+Peace and blessing!
+
+I was pleased to receive your letter following your arrival in Eretz Yisrael, may it be rebuilt and established, along with the two issues of the weekly publication *Machanayim*. Thank you for your thoughtfulness; it strengthens my hope that our conversation will yield tangible results regarding the various matters we discussed. As I said to you before we parted, it is a teaching of my father-in-law, the Rebbe, that when two Jews meet, beyond the benefit to each of the individuals involved, one must endeavor that good should also come of it for a third party, and how much more so for the many.
+
+Incidentally, in the *Machanayim* issue for the week of 19 Kislev, a transcript was printed of what was said here at the *farbrengen*, and it is a pity that there is a mix-up of topics and a significant lack of precision in the transcription and the order of the points.
+
+Knowing your interest in the teachings of Chassidus in general, and the teachings of Chassidus Chabad in particular, I am enclosing here the 19 Kislev booklet published some time ago—a booklet that was written at the time in the spoken language, *mame-loshon*, by my father-in-law, the Rebbe, and later translated into Lashon HaKodesh.
+
+Surely you will not withhold the good of informing me of the positive results of our meeting, and I thank you in advance.
+
+With respect and blessing.
+
+***
+
+**Dr. Y. Burg, may he live:** See another letter to him below, 326.
+
+**Teaching:** See also above, Vol. 8, letters 2432, 2592.
+
+**In *Machanayim*... a transcript:** See also below, letters 362, 380.
+
+## 320
+
+B"H, Tuesday, 3 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chassid, G-d-fearing and learned, occupied with communal needs,
+Rabbi Ephraim Eliezer, may he live, HaKohen
+
+Greetings and blessings!
+
+Your letter was received. According to what is brought in various places (Shaar Yissachar, Kislev, subsection 142)—that Chanukah is connected to the matter of gematrias and calculations—it was received on the third candle, which is the day that is "three times three" (three comprised of three, where each is comprised of three) in the third month from the beginning of the year (in *Ohr Chozer*—*Likutei Torah*—of the Arizal, Parshas Vayeitzei).
+
+Regarding the enclosures: 1) The check from Rav Kahana for the sum of three times five (for Mattisyahu Kahana rectified the fifth sefirah—Hod. Chanukah is in Hod. See *Shemen Sasson*, end of part 3, regarding the resolution of the contradictions therein). 2) The check from the "small sanctuary" (*mikdash me'at*—these are the synagogues)—pure, for the sum of three times twenty-five (through which *chanu*—they encamped—in Chanukah).
+
+And "wine for the master and goodness for the one who pours," especially when the one who pours is also a master, which is surely the case in the matter at hand.
+
+Regarding what you noted concerning the language of the Zohar Chadash (103b)—which is also brought in the introduction to the Tanya—*le'fum mah d'mesha'er b'libei* (according to what he estimates in his heart): the explanation there is provided alongside it, "according to his own measure" (*le'fum shiura dilei*), from the language of estimation (*sha'arah*) and measure (*shiur*). It is understood that this does not negate the allusions that exist in this matter, including that which you conclude in your letter, which is through the "gates of Binah" (*sha'arei binah*) that draw down from the mind to the heart. See there in the Zohar.
+
+With respect and blessings for good tidings.
+
+***
+
+**Rabbi Ephraim Eliezer:** Yalles. Further letters to him—above 2886, and in the references noted there.
+
+## 3161
+
+B"H, 4 Teves, 5715
+Brooklyn, N.Y.
+
+To the esteemed and distinguished individual, who occupies himself with communal needs, a man of noble character, a branch of a thick-leaved tree, etc., R' Shneur Zalman, may he live.
+
+Peace and blessing!
+
+I have just received the shocking news that one of the finest students of our yeshiva in Lod, may Hashem avenge his blood, was found murdered in an orchard near Sefaria. I am awaiting the details of this tragedy, may we be spared. What prompted me to write to you immediately is my concern regarding the alarming impression this terrible tragedy will make, especially upon the women, and how it will further highlight the economic shortcomings and hardships, etc., of the village, which could lead to negative consequences, etc. It is necessary to do everything possible to calm the spirits. I hope that to a certain extent this could be achieved through a special approach from the appropriate offices, although I do not know in what manner this would be expressed, as I do not have all the information regarding this. You, being on the scene, surely know how to manage the matter.
+
+What seems to me to be one of the measures in this direction is increasing the number of settlers in the village.
+
+...I feel compelled to emphasize this matter once again at this time, for in my opinion, if the villagers receive word that a vigorous effort has begun to increase the number of settlers, this will be enough to bring some measure of calm, at least partially, to the turbulent spirits. It is unnecessary to add that I would be very grateful if you would inform me of good news regarding this.
+
+With respect and great blessing.
+
+My previous letters were surely received in due time, and I trust you will honor me with a response to them as well.
+
+***
+
+**R' Shneur Zalman:** Shazar. Additional letters to him appear above in 3160, and in the notes indicated there.
+
+**Found murdered:** The Temimim Yisrael Aryeh Drovskin, may Hashem avenge his blood, by Arab infiltrators, while he was on his way to fulfill his duty as a mashpia at the vocational school in Kfar Chabad. See also below, letters 3190, 3194-5, 3661-2, 3698.
+
+## 3262
+
+B"H, 4 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and dedicated communal worker, R' Avraham Chanoch, may he live and be well,
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your letters, as well as the two books, *Be'er HaChassidus* and the writings of R' Nachman of Breslov, along with the newspaper clippings. Thank you for the past, and I request the same for the future. You are doing a great thing by printing matters concerning Chassidus—its Torah, guidance, and customs—in the press whenever possible; the benefit of this is immeasurable.
+
+I saw in one of the newspaper clippings that you printed one of my sichos. It is a pity that it was not noted that this is a transcription from Yiddish and has not been edited by me. From now on, attention should be paid to this. Things spoken aloud are not the same as the way they appear subsequently in writing. In writing—and certainly in print—one must omit repetitions (even though in speech we repeat things to strengthen the point, or to introduce new dimensions, and the like). Furthermore, if it is printed—and is surely read by people who have no knowledge of the teachings of Chassidus—one must add explanations, at least in parentheses, and organize the points in a logical progression from the simple to the complex. Since from now on you will write in such cases that this is from the notes of those who heard it and is a translation from another language, there is no responsibility if the transcription is not entirely precise. It would be best that before printing, the draft be read by someone who is not so well-versed in the teachings of Chassidus, and ask them if they understand it properly or if they require additional explanation. It goes without saying that despite all the above, it is a good thing that you are printing it, as this paves a path, etc.
+
+It is surprising that, as of now, no detailed reports have been received regarding the farbrengen in Kfar Chabad. Apparently, the reason for this is that it is a matter involving two partners. In any event, upon receiving this letter, please provide details about it; the more detailed, the better.
+
+With blessing.
+
+## 3263
+
+B"H, 4 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 27 Kislev, in which you write that you are sixteen years old and are studying Torah, and your soul desires to continue doing so, but your father—may he be well—is of the opinion that you should move to another country, which would naturally cause you to stop or at least weaken your studies, and instead help your father with his livelihood.
+
+It should be explained to your father—may he be well—that **Hashem** is the One who sustains and provides for all, as we say in *Birkas Hamazon*, which is a *mitzvah* from the Torah. Consequently, one must make every effort to fulfill His will, for through this there will be an increase of blessing in one's livelihood. One of the efforts in this regard is engaging in our holy Torah, the *Toras Chaim*. Therefore, the more you increase your diligence in Torah study, the more Hashem will increase the livelihood of your father and his household—may they live. On the contrary, your father should be assisting you in this. For your part, you should do everything in your power, both in the study of *Toras HaNigleh* and in the study of *Chassidus*. May it be the will of Hashem that the ruling of our Sages, "You have labored and you have found," be fulfilled in you.
+
+Since your father—may he be well—has a livelihood where he is currently located, I do not understand why he wishes to move.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+P.S.
+
+As you requested, you and your father and all your household—may they live—will be mentioned at the holy *tziyun* of the Rebbe, *ztzukulalleh, nbgm, zya*, in whose *yeshiva* you are privileged to study.
+
+## 424
+
+B"H, 4 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letters of the 14th, 22nd, and 28th of Kislev. I was pleased to hear about the farbrengen you held on the auspicious day of Yud-Tes Kislev and the explanations given to the students regarding the significance of the day. It would be appropriate in such instances for some of the students to also deliver speeches, in order to draw them—*arayntziehen zei*—more deeply into these matters.
+
+Even though, in most cases, they are assisted in preparing their speeches, there is still personal participation on their part, and the very fact that they are the ones speaking is of great value.
+
+Regarding what you wrote about your state of health and that you have become despondent because of it: you surely know that this is contrary to our Torah in general, and to the teachings of Chassidus in particular. While the Torah grants permission to the physician to heal, at the same time, a person must remember and know clearly that Hashem is the Healer of all flesh and performs wonders. Consequently, one must serve Him, may He be blessed, with joy and a glad heart, confident that Hashem will fulfill His promise to provide what is necessary for those who serve Him, as this matter is explained in many places in Chassidus. One should not dwell at all on one's state of health, *un tzuheren zich vi men filt zich* (and listening to how one feels), for that is the concern of the physician, not the concern of the individual. Elaborating on such a simple matter is unnecessary, and the merit of your involvement in drawing the hearts of the Children of Israel to our Father in Heaven will stand by you to bring good tidings regarding all of the above.
+
+With blessings for success in your holy work, and awaiting good news.
+
+## 3165
+
+B"H, 4 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, involved in communal needs, R' Shmuel, may he live:
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your letters from the 22nd and 28th of Kislev, along with their enclosures. Certainly, in the future, please provide appropriate details regarding all matters.
+
+I was pleased to hear that the Rabbi, may he live, of Tzafrou requested Chassidic seforim, and also that you sent the aforementioned to R' Dan, may he live, Cohen. You did well not to be overly particular, provided that the matter of "spreading the wellsprings outward" is fulfilled. Certainly, if you require seforim published by Kehot for your avodah, notify us here and your request will be fulfilled.
+
+It is surprising that you do not mention anything about printing excerpts in the local press in your country—at appropriate times and regarding appropriate topics—especially since the month of Kislev offers several opportunities for this. In any event, I am sure you will do so in the future, and send the excerpts here as well.
+
+I trust you have distributed the Chanukah money as I requested and will send a list of the recipients.
+
+It is understood that I did not mean specifically the **Kitzur Shulchan Aruch**, but rather a summary of the most common laws from the Shulchan Aruch.
+
+With blessings for success in your holy work,
+
+**M. Schneerson**
+
+***3165***
+
+**R' Shmuel, may he live:** Matossov. Additional letters to him—above 3110, and as noted in the footnotes there.
+
+**As I requested:** Above, letter 3123.
+
+**That I did not mean:** Regarding what I wrote above, letter 3083.
+
+## Jackson
+
+B"H, 4 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I was pleased to receive the news that, with the doctor's permission, you have returned home. May it be the will of Hashem Yisbarach that you continue to progress and that your condition continues to improve.
+
+It is surely unnecessary to remind you that the **Torah** has granted the physician permission to heal, and therefore this is a matter of Torah law. It is not like those who mistakenly say that a G-d-fearing person should not listen to the doctor, but rather the opposite. It is well known that the Rebbe (Rashab) said to his son, my father-in-law the Rebbe, while pointing to his holy hand: "See how precious this is, that so much Torah and mitzvos have been poured into it." And the saying of the Alter Rebbe: "One has no conception of how precious a Jewish body is to Hashem Yisbarach." May Hashem Yisbarach grant you success and hasten your return to full strength through conduct in accordance with the instructions of the doctor, who is the messenger of the "Healer of all flesh and Worker of wonders." And may those days be repaid to you many times over through additional success, after you return to your strength, in the study of Torah and the fulfillment of mitzvos.
+
+With blessings for a speedy and complete recovery,
+
+**M. Schneerson**
+
+#### ***Jackson***
+
+Published in Likutei Sichos, Vol. 6, p. 325, and completed based on a photocopy of the letter.
+
+**The saying... and mitzvos:** See also above, Vol. 7, letter 2,178, and the references in the notes there.
+
+**And the saying... Jewish body:** See also above, Vol. 8, letter 2,383.
+
+## 6,167
+
+B.H., 5 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 2 Teves and the previous one: regarding what you write, that you have not achieved anything for some time, you should know that this is part of the *yetzer hara’s* strategy to weaken you in matters of *avodah* in general, and *limud haTorah* in particular, with the excuse that nothing will come of it anyway. Just as with all matters that come from the *le’umas zeh*, one should not enter into a *shakla v’tarya* (debate) with it. Rather, one must strengthen oneself in *avodas Hashem Yisbarach*, and through *hesech hada’as* (diverting one’s attention), one becomes free of it.
+
+Regarding the other matter you write about, you should also practice *hesech hada’as* from it and increase your engagement in the letters of Torah and *tefillah*. Furthermore, you should memorize a few chapters of *Tanya*, a few chapters of *Mishnayos*, and also the *maamar* "Ve'hadras Pnei Zakein" in *Likutei Torah*, at the end of *Parshas Kedoshim*. The main thing, as stated earlier, is to practice *hesech hada’as* from the entire matter, and for the time being, even from the *tikkun* itself. It goes without saying that the *hishtadlus* to bring others closer to Torah and *mitzvos* draws down *siyata d’shmaya* for what a person himself needs, and for success. Surely you are doing this regarding your environment in general, and your friends in *yeshiva* in particular. May Hashem Yisbarach grant you success.
+
+With blessings.
+
+#### ***6,167***
+
+Published in *Likkutei Sichos*, Vol. 17, p. 482.
+
+## 3158
+
+B"H, 5 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and learned man, involved in communal needs, R' Chaim Shaul, may he live.
+
+Greetings and blessings!
+
+In response to your letter from the fourth day of Chanukah—and I am certain that in the meantime my letter has been received—
+
+I was pleased to hear what you wrote regarding the increase in students at the Yeshiva Achei Temimim in Rishon LeTzion, and what you wrote that they are like "raw" (gassike) bochurim. My hope is strong—relying on our Sages' teaching regarding "extracting the precious from the base"—that this will add to your efforts, and to the efforts of all those to whom this matter pertains, to do everything in their power for these students as well. And even though the point is well-known that the benefit of the many, and certainly the prevention of harm to the many, overrides the benefit of the individual, nevertheless, before resorting to such a dismissal, one must seek out all possible paths, as it may be possible to avoid it. May Hashem grant you success in this.
+
+With blessings for a Mazal Tov,
+
+**M. Schneerson**
+
+#### ***3158***
+
+**R' Chaim Shaul:** Brooklyn. Additional letters to him—above, Vol. 8, 2744, and in the references noted there.
+
+## 320
+
+B"H, 5 Teves, 5715
+Brooklyn
+
+Greetings and blessings!
+
+...I was pleased to hear that he spoke with the esteemed Chossid... that he should endeavor to meet with them. It is a certainty that outreach efforts do not return empty, for the heart of a Yid—as our Sages said—"I am asleep in exile, but my heart is awake" to Hashem, and consequently, in the course of time, to His Torah and mitzvos as well.
+
+Regarding what he writes concerning the connection (that each and every person has) to the *avodah* of the heart: it is understood that there is no contradiction between this and being told that one must increase his knowledge of the teachings of Chassidus, etc. For in every matter, a person must progress from level to level, and every holy endeavor requires preparation and toil. The preparation for the *avodah* of the heart is as it is written: "Know the G-d of your father" (and only then can it be as it should be) "and serve Him with a whole heart." In general, regarding such matters, one should rely on a *mashpia*, a *rav*, or a *mashgiach*, for they have experience in the matter and can judge the situation without the bias of self-love, which sometimes exaggerates the negative aspects within a person and sometimes exaggerates the positive aspects. This is in accordance with the ruling of our Torah that a person cannot testify about himself, neither to declare himself a *tzaddik* nor to declare himself a *rasha*.
+
+I was pleased to hear that he has brought *avreichim* closer to the study of Torah and the fulfillment of mitzvos. Surely he will also endeavor to bring them closer to the inner dimension of Torah, the *neshamah d'oraysa*. The measure of Hashem is "measure for measure," but many times over—to increase the *siyata d'shmaya* in the study of Torah, the fulfillment of mitzvos, and the *avodah* of the heart for the one who exerts himself in this.
+
+Regarding his question about the suggestion that he engage in educational work on a permanent basis: for the time being, this does not seem appropriate to me. Provided that he applies himself to the study of the *nigleh* of Torah and the teachings of Chassidus to the best of his ability, then surely both the administration of the yeshiva and the administration of the Reshet will exempt him from the aforementioned matter. It is understood that this does not preclude him from engaging in such work from time to time for a few days or a week, when there is a time and place of necessity, but not on a permanent basis. May Hashem grant him success, and may he bring good tidings.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+Secretary: A. Quint
+
+## 375
+
+B"H, 5 Teves, 5715
+Brooklyn
+
+To the participants of the farbrengen on the auspicious day of 19 Kislev, the festival of our redemption and the deliverance of our souls, at the Nusach Ari Beis Medrash, Montreal, may they live:
+
+Peace and blessing!
+
+It gave me pleasure to receive the notification via the esteemed and G-d-fearing R. Moshe Chaim, may he live, a shochet, regarding your farbrengen in connection with this day of spiritual potency—or, in the language of *She'eilos U'Teshuvos Min HaShamayim*, the "day of good tidings"—which is 19 Kislev. It is already known from our Sages that when ten people sit together, the Shechinah rests among them, even if they are not speaking words of Torah (as the author of the celebration [the Alter Rebbe] writes in *Iggeres HaKodesh*, Epistle 23). This is all the more so when they gather to commemorate the miracle of his redemption, which is our own redemption and the deliverance of our souls. Regarding such occasions, our Sages said, "And these days are remembered and kept"—meaning that they are *made* to happen; that is, they awaken all the same spiritual influences that existed in those days, now in our time. Therefore, as mentioned above, it is a day of spiritual potency and a special time for awakening and fulfilling good resolutions in the three pillars of Torah, avodah, and gemilus chasadim, and to extend these throughout the entire year. These resolutions are matters of hiskashrus with our Nasi, Rabbeinu HaZaken, and consequently, they serve as the channels and vessels for receiving blessing and success in fulfilling the requests of each and every one of you for whatever you and your families require, for which the author of the celebration arouses great mercy.
+
+May Hashem grant each and every one of us the merit to fulfill our role in spreading the wellsprings outward, with proper health—both physically and spiritually—and with an expanded mind.
+
+With blessing.
+
+## 3171
+
+B"H, 6 Teves, 5715
+Brooklyn
+
+To the esteemed Rabbi, the esteemed Chossid, G-d-fearing and learned, engaged in communal needs,
+Rabbi Schneur Zalman, may he live and be well,
+
+Shalom u’Bracha!
+
+I have received your letter from the 24th of Kislev. It is very surprising that you are so brief regarding the farbrengen of the auspicious day of 19 Kislev, and especially regarding the visit of those who are from "outside." As our Sages of blessed memory said, "Great is the drink [of a shared meal] that brings [people] close," for this closeness prepares them to be vessels to receive the wellsprings. We see tangibly that when people know they must write to someone about such matters, it adds energy to their activities, similar to the teaching of our Sages, "If Reuven had known..." I am particularly interested in whether my telegram regarding the Anash was received in time, and whether the few words contained therein were explained to them appropriately.
+
+It causes me great distress that, apparently, the matter of the sheitlach (wigs) is being moved forward only in *ze'er anpin* (a minimal, incremental way). It is well known that any *is'arusa* (awakening) that comes from the outside must be utilized at the time it occurs; it is otherwise when time passes. Regarding what you wrote about the pressure of the situation, etc., is it truly impossible to obtain loans from the *gemach* funds of Anash (as I understand, there is one in Agudas Chabad under your leadership, with the help of the esteemed Rabbi D. Ganzburg, and two or three in Jerusalem, may it be rebuilt and established)? It is already known—and it appears at the **beginning of every** section of the Shulchan Aruch—the great caution and the great test regarding "not being ashamed before those who mock." Well-known matters require no proof. However, in a matter to which people have not become accustomed—even if only due to secondary causes and under duress—it eventually becomes a sort of nature, and the situation fails to awaken the strengths that should have been awakened, given the seriousness of the matter.
+
+It appears that this is also the case regarding the affairs of the women and children and their education in general; these matters are neglected in many details, even though you have seen tangibly the great destruction caused by the lack of attention to the women and girls. This is in addition to what our Sages of blessed memory say in *Shemos Rabbah*—that when the Holy One, blessed be He, gave the Torah, He said, "Thus shall you say to the house of Yaakov first, and afterwards you shall speak to the children of Yisrael." The proof of this is that with the mitzvah of the Tree of Knowledge, it was not so, and it caused what it caused until the end of all generations.
+
+It is understood that my intention here is not to preach, but that you should seek advice and words that will clarify the situation as it is, even in these matters to which they have not been accustomed until now.
+
+With blessings for good tidings in all the above.
+
+## 372
+
+B"H, 6 Teves, 5715
+Brooklyn.
+
+...Regarding what you write—that, chas v'shalom, you have no mazal in anything:
+
+It surprises me how you can say this, when at the beginning of your letter you start by mentioning that Hashem Yisbarach has blessed you and your husband with four children, shichyu, and that you are in a peaceful country. Even though parnassah comes with difficulty, you are still raising your children. When you recall the past years, you can see that this is an open miracle. 
+
+Of course, it is understood that one must daven to Hashem Yisbarach to fulfill what is still lacking. And when one conducts oneself according to the demands of the Torah—Toras Chaim—Hashem Yisbarach begins to fulfill that which is still lacking as well. Especially in your case, this should be expressed by being mehader in keeping kosher, observing Shabbos, and living in general according to the requirements of the Torah. May Hashem Yisbarach grant you the merit to share good news regarding all of the above.
+
+With blessing,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 3173
+
+B"H, 6 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from the day after the auspicious day of 19 Kislev—the liberation of Rabbeinu HaZaken, author of the holy Tanya, the arbiter of the *nistar* (hidden) aspects of Torah, and the Shulchan Aruch, the arbiter of the *nigleh* (revealed) aspects of Torah.
+
+1) Regarding your question for proofs of *Hashgacha Pratis* (Divine Providence), that nothing occurs by chance, Heaven forbid:
+
+This is understood and simple through a brief contemplation for one who believes in the Torah of Hashem, in which it is written that the Ribono shel Olam created the world, the heavens and the earth. And even though the nations of the world say "His glory is upon the heavens," all of Klal Yisrael believe in what is stated: "Do I not fill the heavens and the earth?"—for a verse does not depart from its literal meaning. In the language of the master, Rabbi Shimon bar Yochai, in Tikkunei Zohar, Tikkun 57: "There is no place void of Him." Since He is present and fills every point in space and time, how is it possible for anything to occur without His *Hashgacha*? It is simple. See also *Shaar HaYichud VeHaEmunah* by Rabbeinu HaZaken, Chapter 2 and the end of Chapter 7, and *Iggeres HaKodesh*, end of Section 25.
+
+2) Regarding what you write about the refinement of character traits (*tikkun hamidos*): You should study, with the intent to understand, the teachings of Chassidus in the *maamarim* that discuss these matters. You can surely consult regarding them with the esteemed Rabbi, the Chossid, G-d-fearing and learned, who engages in communal needs with energy and is a man of many deeds, [Name] *shlita*. You should memorize the beginning of the holy Tanya, Chapter 41, at least until page 56, top of the second column, second line. You should apply this to yourself when the opportunity arises; and if a little light pushes away much darkness, then how much more so does a great amount of light.
+
+3) Regarding the rectification of the matter you write about: You should begin to set aside money for *tzedakah*—**slowly, slowly**—it is good to do so on weekdays before *davening*—until a sum of 24,000 francs is collected. Likewise, you should delay your meal—by an hour—on weekdays, until the number of delayed meals also reaches 951. The main thing is regret with a whole heart for the past and a good resolution for the future.
+
+4) Regarding what you write about the *tefillin* not being as they should be: You should have discussed this with the esteemed Rabbi... *shlita*, who will be in contact with our office in France regarding this.
+
+With blessings for success in your holy work,
+
+On behalf of the Rebbe *shlita*,
+Secretary
+
+## 3104
+
+B"H, 8 Teves, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished R' Chaim Yisrael, may he live.
+
+Peace and blessing!
+
+In response to your letter regarding the question of *nuschaos* (liturgical versions), as you are sometimes required to lead the services (*daven lifnei ha-teivah*) in a *beis medrash* where they do not pray according to the *Nusach Ha-Ari*.
+
+Regarding matters such as these, it is often the case that when one does not make a *shakla v'tarya* (a back-and-forth debate) about it and simply conducts oneself with simplicity, *gait doch durch glattig un b'shalom* (it goes through smoothly and in peace). Surely, in many instances—including your own situation—if you do not raise questions about it beforehand, they will not even notice the change in *nusach*. It is also understood that it is not worth creating a *machlokes* (dispute) over this, for the loss will outweigh the gain, especially regarding *tefillah b'tzibur* (communal prayer), concerning which it is said, "He has redeemed my soul in peace..."
+
+With blessings for *parnassah*.
+
+***
+
+**Footnotes:**
+
+*) See *Kol Bo* on *Aveilus*, p. 367, in the name of the *Etzei Chaim*, that one should lead the services and pray according to the *nusach* of the congregation.
+
+There, in the name of the *Haitel* (in *Bris Moshe* on the *Sefer Mitzvos Gadol*, *Mitzvas Aseh* 87), that one should pray and change [his *nusach*] if there is no other *baal tefillah* available. If so, it requires further study (*tzarich iyun*) if there is another *baal tefillah* present; perhaps it is better to suffice with saying *Kaddish* and the like. See *Kitzur Shulchan Aruch* [by] Braun, Vol. 1, 118:11, citing *Responsa Meishiv Davar* (by the Netziv), Siman 17, that for the silent *tefillah* one should pray according to his custom, and for the repetition aloud—like the congregation. This requires further study, as this does not apply to *tefillah* as a *shaliach tzibur*. On the contrary—see *Responsa Nezer HaKodesh*, Vol. 2, *Orach Chaim*, Siman 12.
+
+## 371
+
+B"H, 8 Teves, 5715
+Brooklyn
+
+To the esteemed Rabbi, the G-d-fearing, meticulous scholar, engaged in the study of Torah,
+Rabbi Mordechai Gimpel, may he live, HaKohen
+
+Shalom u’vracha!
+
+Following your visit and our conversation, I hereby express my gratitude for your book, *Sifrei* with the commentary *Kesser Kehunah*, Part One. May it be the will of Hashem that you and your brother, may he live, succeed in increasing the quantity of Torah and magnifying its quality. This work has its place in all matters of our Torah, the Torah of life—beginning with the study of young children (Rambam, *Hilchos Talmud Torah*, end of Chapter 2) and concluding with the study of Torah in the most exalted manner (*Chullin* 66b).
+
+As is my custom, and out of affection for the matter of receiving a book, I have transcribed here a few notes, as time permitted, at least regarding the beginning and the end of the book.
+
+The book *Tcheles Mordechai* on the Torah was received in its time.
+
+With blessings for success,
+
+P.S.
+
+At the beginning of the book, in *Kesser Kehunah* on *Piska* 1:
+
+The content of your commentary is that the section regarding the sending away of the *tamei* (ritually impure) is necessary because we have heard of the punishment, as it is written, "And the man who shall be impure and will not purify himself," but we have not heard the warning—the negative commandment.
+
+This interpretation requires further study: 1) Three verses are stated regarding the punishment: Vayikra 15:31, "And you shall separate... that they die not"; Bamidbar 19:13, "Whoever touches... and shall be cut off"; and Bamidbar 19:20, "And the man who shall be impure... and shall be cut off." It is not understood why the *Sifrei* chose the last verse and not the first ones. 2) The aforementioned interpretation requires two emendations. Even if the latter emendation—that he cites the beginning of the section he is discussing, while his intent is toward the end—is acceptable, since he is dealing with this section, the emendation in citing the verse "And the man who shall be impure," implying that his intent is to the end of the verse, "and the soul shall be cut off," or that such is added in the text of the *Sifrei*—even though we find such things, in any case, it is forced. 3) The questioner does not explain the reason for his question as to why the section was stated.
+
+Therefore, it seems to me that the interpretation of the *Sifrei* here is that the words "because he says... will purify himself" are part of the question, explaining the question: Why was this section stated (and this is difficult) because it says, "And the man who shall be impure and will not purify himself" (the *Malbim* also explains it in this manner).
+
+We gain from this that there is no need to emend or to explain that his intent is to the end of the verse, for his intent is only to the beginning of the verse, as he is bringing proof that a prohibition was stated, and nothing more. It is also understood why he did not bring the verse "And you shall separate," for there the command is to the *Kohanim* and not to all the Children of Israel. As for why he does not bring the verse in Bamidbar 19:13, it is understood in any case, for this verse speaks of the Mishkan, as it is stated there, "the Mishkan of Hashem is impure." The initial assumption and the external reasoning of the first *Piska* of the *Sifrei* is that the command here is for a later time, as it concludes, "You say... or is it only for a later time?" Therefore, he also brings the verse that commands for a later time, which is the verse in Bamidbar 19:20. *V’kal* (and it is easy to understand).
+
+At the end of the book, *Piska* 58:
+
+Regarding the version in the *Braisa d’Rabbi Yishmael* at the end, "v’chen" (and so) or "v’chan" (and here)—see the *Braisa d’13 Midos d’Rabbi Yishmael* (Vilna, 5685), where the versions and several interpretations are brought. In the writings of the Arizal (in *Pri Etz Chaim* and elsewhere), and it is also copied in the *Taz*, *Shulchan Aruch Orach Chaim* 127:4: "v’chan." However, our Rebbe the Alter Rebbe established both versions in his *Siddur*, and in the primary version: "v’chen"—with a *chof* with a *tzere*.
+
+In *Kesser Kehunah*, subsection 160, you interpret the aforementioned *Piska*—the statement in *Shemos Rabbah*, end of Chapter 29: "Rabbi Shimon ben Lakish said... when a person calls to his fellow, there is an echo to his voice, but the voice that went forth from the mouth of the Holy One, Blessed be He, did not have an echo." Even though one does not challenge a *drush* (homiletical interpretation),
+
+According to your interpretation, the beginning of the statement, "when a person calls to his fellow, etc.," is not understood. It seems to me that the interpretation of the Midrash there is that they interpreted "echo" literally—an echo, that the voice of the Holy One, Blessed be He, at the Giving of the Torah did not have an echo.
+
+And a deep idea, and at the same time understood through this, comes in the continuation **as a result** of the previous Midrashic statement: "When the Holy One, Blessed be He, gave the Torah, no bird chirped... the sea did not tremble... rather the world was silent and still, and the voice went forth, 'Anochi' (I am)..."
+
+The content of this statement is that every detail of creation heard, understood, and absorbed within itself the voice, "I am Hashem your G-d." And the second statement, adjacent to it, comes and explains that this was not only in the spirituality and understanding of creation and its soul—
+
+—similar to the interpretation of the *Tosafos* (*Avodah Zarah* 17a, top; and similarly in *Chiddushei Aggados Maharsha*, *Chullin* 60a) that the ministering angel spoke and understood—
+
+—but that even the physicality and matter of all the details of creation heard (understood) and absorbed the word and voice of Hashem: "I am Hashem your G-d." (And do not be surprised by the object, for so it will be in the time to come, that "a stone from the wall shall cry out," as our Sages say in *Midrash Tehillim* 73, at the end; see also *Taanis* 11a).
+
+From this, it is understood why this voice did not have an echo.
+
+For the reality of an echo is that the voice carried on the waves of the air encounters something that obstructs it and does not absorb it, and therefore it recoils and is thrown backward (see *Tosafos*, *Sanhedrin* 11a, top). There are two matters in this: a) that the voice was not absorbed in the obstructing object; b) that the voice comes to the place where the echo reaches—not directly from the source of the voice, but through a medium and intermediary. Since the speech "I am Hashem your G-d" was directed **from the Creator to every single** detail of creation, and as the conclusion in the Midrash there states: "When the Holy One, Blessed be He, spoke on Mount Sinai, He silenced the entire world so that the creatures would know that there is none besides Him"—and the intent here is not only to the speaker and the living, etc., but even to the inanimate, as it says, "**the sea** did not tremble"—it follows that wherever the voice "I am Hashem your G-d" reached, it was absorbed in that place and in what was found there, and to every place that the speech "I am Hashem your G-d" needed to come, it came directly from the Holy One, Blessed be He. This is an **additional** explanation of Rabbi Shimon ben Lakish regarding the Ten Commandments, that they acted with revelation even in the physicality of creation. Therefore, even though when a person calls to his fellow there is an echo to his voice—it was not so with the voice that went forth from the mouth of the Holy One, Blessed be He.
+
+Through this, the connection of this statement to the one preceding it is also sweetened, as mentioned above. Especially since it is proven from the style in the *Midrash Rabbah* there, that these two statements came together, for after the statement of Rabbi Shimon ben Lakish, it returns to the **previous** statement, "the world was silent and still," as it concludes: "And if you are surprised by this... when the Holy One, Blessed be He, spoke on Mount Sinai, He silenced the entire world... and said, 'I am Hashem your G-d.'" *V’kal*.
+
+## 3271
+
+B.H., 8 Teves, 5715
+Brooklyn
+
+To my relative, Mrs. Devorah Leah, may she live:
+
+Greetings and blessings!
+
+I was pleased to receive your letter of 3 Teves, and even more so to see its content—your memories from days gone by regarding the spiritual countenance of your mother, the Rabbanit, of blessed memory, and the nature of her davening. It is well known that our Torah’s perspective is that in many, and often frequent, instances, thought is more effective than speech, and even than action.
+
+— As in many matters, secular science has also arrived at this conclusion in recent years —
+
+However, since the essence of a person is that they are a "doer," and action is the primary thing, one must extend that thought and connect it to action.
+
+If it is said regarding every man and woman that they can influence their immediate and even distant surroundings to a certain degree, provided they exert the appropriate effort and energy, then this is all the more true regarding the descendants of those who were both people of spirit and heroes of action; they surely inherited these qualities from their parents and ancestors.
+
+This is also one of the aspects of the power of memory: it awakens these inherited strengths and brings them from a state of concealment into revelation.
+
+At such an opportune time, a person must utilize this awakening and revelation in practical matters. This is the rectification of these strengths, the rectification of the person themselves, the satisfaction of their own soul, and the addition of perfection, "ascending from level to level," for the souls of parents and ancestors.
+
+Do not despise "small" things. For if, in the measure of retribution, the smallest amount can destroy a large city and the many people within it, then the measure of goodness is far greater: an action that appears to physical eyes and intellect to be small and lacking in importance can sometimes justify a life of seventy or eighty years and fill it entirely with content.
+
+As in the saying of the Baal Shem Tov: A soul comes down to this world and lives for seventy or eighty years just to do a favor for a fellow Jew, in material matters, and especially in spiritual matters.
+
+In this, one fulfills the purpose of their descent below, and the descent of the sparks of the souls of their ancestors that are within them.
+
+This is also the resolution to the wonder regarding the mitzvah of tefillah: "One recounts the praise of the Holy One, blessed be He, and afterwards asks for his needs."
+
+In the ultimate dveikus of the Amidah, one asks for a blessing for the produce in their field, because through the gathering of this produce, one can, and is commanded to, and will indeed make "for Him, may He be blessed, a dwelling place in the lower worlds."
+
+The fulfillment—at that moment—of the purpose of all creation and its perfection, is through one mundane, everyday action.
+
+Surely you are aware of the interest of my father-in-law, the Rebbe, of blessed memory, in recording memories of ancient days in general, and about family members in particular. I am certain that you are doing this as well, and the details in this are important. May it be His will that this be done with proper health—for you and your husband, may they live—and with success in all things.
+
+With respect and blessing,
+My relative
+
+P.S. As you requested, your mother the Rabbanit’s letter, of blessed memory, is returned herewith.
+
+## 3175
+
+B"H, 9 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...It is surprising that you do not write at length regarding the Bar Mitzvah of the *avreich*... *sheyichyeh*. Surely the *farbrengen* was utilized to bring hearts closer and to inspire action. In matters such as these, when those gathered know to whom they are speaking regarding their resolutions, this itself adds enthusiasm to them and creates a stronger connection to bringing those resolutions into actual practice.
+
+It is surprising that you do not mention anything regarding what I spoke to him about when he was here: the great necessity that every single week he should visit, or at the very least speak on the telephone with, a certain number of acquaintances in... In addition to the *kiruv halevavos* (bringing hearts closer) that this accomplishes, it is also a matter of physical *parnassah*, as we discussed at length at that time.
+
+From your silence, it appears that you are not doing this for the time being. It would be appropriate to prepare a list of all your acquaintances and note on the side the day you spoke or met with a particular person. When you review this list from time to time, this itself will remind you to meet or speak with those who remain, etc., and the benefit of this is beyond measure...
+
+With blessings.
+
+## 3178
+
+3178
+
+B"H, 9 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi, the esteemed Chossid, G-d-fearing and upright, engaged in communal needs, etc.,
+Rabbi Binyamin Eliyahu Gorodetzky, may he live.
+
+Peace and blessing!
+
+Regarding my great-uncle—the brother of my father-in-law, the Rebbe, the Rashab, Rabbi Menachem Mendel, of blessed memory—I do not know the exact date of his passing. However, it took place in the city of Bastia, which is the capital city of Corsica, during the time that the Nazis, may their names be blotted out, were in control of France. He is interred in the cemetery there, and his official name was Mendel Schneerson. Surely there are offices, such as those in Paris, where, based on the aforementioned information, they would be able to locate the exact gravesite.
+
+With blessings for success in your holy work, and awaiting good tidings.
+
+#### ***3178***
+
+**Rabbi Binyamin Eliyahu Gorodetzky:** Further letters to him can be found in Vol. 9, 2826, and in the references noted in the footnotes there.
+
+## Jacket
+
+B"H, 9 Teves, 5715
+Brooklyn
+
+Agudas N'shei U’Bnos Chabad
+Pittsburgh Branch
+May they be blessed with life
+
+Blessings and Peace!
+
+It was with pleasure that I received your letter of 4 Teves, in which you write regarding the founding of the Agudas N'shei U’Bnos Chabad branch in Pittsburgh. May Hashem help that this beginning be in a good and auspicious hour, and may the entire work of the Agudah continue in this manner, to spread the "candle of mitzvah and Torah light and the light within Torah" among yourselves and in your entire surroundings. This will bring an added measure of blessing and success to each of the participants in all that they and their families require.
+
+I was especially pleased to read in your letter that you have set as your goal to include in the Agudah those who are currently further away. In truth, all Jews are close to one another through their connection with Hashem Yisbarach, which transcends all limitations; one need only look with open eyes to notice how "all of Israel are friends." This is also explained in Tanya, Chapter 32, and also by the Tzemach Tzedek, where he describes the mitzvah of "Love your fellow as yourself."
+
+Enclosed is a check (18) from one of the funds of my father-in-law, the Rebbe, of blessed memory, which you should use for the expenses associated with your work. It goes without saying that the point here is not the few dollars themselves, but rather as a means to bring an added measure of success to your holy work.
+
+Also enclosed is a copy of a general letter of mine to N'shei U’Bnos Chabad. Although it is connected to 19 Kislev, its content is valid and important throughout the entire year.
+
+With blessings for success in your holy work and for good tidings in your personal matters as well.
+
+## 3190
+
+B"H, 9 Teves, 5715
+Brooklyn.
+
+To the esteemed and distinguished individual, who engages in communal affairs,
+Rabbi Yechiel Michel Yehuda Leib, may he live.
+
+Greetings and blessings!
+
+In response to your letter of 7 Kislev: I have since received a letter from Givatayim and have replied to it. They will surely show you my response, and I am interested to hear about the subsequent developments.
+
+I saw excerpts in the press regarding the participation of several members of the IDF in the celebration of the auspicious day of 19 Kislev in Kfar Chabad. This surely took place with your participation and direction, and it is surprising that I have received no information from you regarding this.
+
+I hope that my telegram for 19 Kislev was received in the Kfar on time; it contained a special blessing for the members of the IDF, which I trust was conveyed to them in the appropriate manner.
+
+The package you sent by registered mail was received, containing: chapters for the *Chofetz Chaim* 5711; the *Moadim* booklets 1, 21, and 22; and issues of the weekly *Machanayim* 2, 3, 4, 6–13, 15–17, 21–26, 32, 42, 43, and the *Guide for the Recruit*. Many thanks for the past, and I request the same for the future.
+
+In the *Machanayim* issue regarding 19 Kislev, I saw a printed excerpt from a *farbrengen* address. It is unfortunate that it was not noted that this is a transcription from Yiddish and is not edited by me. From now on, attention must be paid to this, as spoken words are not the same as the form they take when written down. In writing—and all the more so in print—one must omit the repetition of concepts (even though in speech, one repeats them to strengthen the point, or when new facets arise, and the like). Furthermore, if it is printed for people who have no prior knowledge of Chassidus, one must add explanations—at the very least in parentheses—and arrange the material in a logical progression, from the simple to the complex.
+
+Since, from now on, you will write in such instances that this is from the notes of the listeners and is a translation from another language, there is no responsibility if the translation is not entirely precise. It would be best that before printing, the transcript be read by someone from the circle and demographic of the weekly’s readers, and that you ask them if they understand it properly or if it requires additional explanation. It goes without saying that despite all the above, it is a good thing that they printed it in *Machanayim* in order to pave the way (*durchtreten di veg*) for this.
+
+I trust you also utilized the days of Chanukah to continue the momentum and activities of the 19 Kislev *farbrengen*. Please inform me of this in appropriate detail. Most importantly, write in great detail about the 19 Kislev *farbrengen* itself, especially regarding the content of the speeches, just as was done regarding the Tzeirei Agudas Chabad convention at the time.
+
+With blessings for success in all the above, and regards to all those who assist in the work of spreading the wellsprings outward.
+
+P.S.
+Your letter from Motzaei Shabbos has just been received. I was pleased with the activities you describe, and most importantly, that they have continuity; that they invited you for the future, and that you are in correspondence with several of those you met. It is obvious that the more one does in this regard, the more praiseworthy it is.
+
+The delay in the receipt of my telegram by the *Anash* appears to have been done maliciously and intentionally, as it was sent at the same time as the telegram to Jerusalem, and others were received on time. This should also be provable from the date of dispatch from here, which surely appears on the telegram without any tampering. It would be worthwhile for them to print in *Machanayim* about the study day in the Kfar (and the details are important).
+
+Regarding the *Tanya* volumes: I have already written to the esteemed Rabbi A. Paris, may he live, that he should provide you with as many as you require.
+
+## 191
+
+B"H, 11 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I acknowledge receipt of your letter from Tuesday. It was pleasing for me to read that you are aware that you must increase your studies, both in the revealed Torah and in Chassidus. It is surely unnecessary to emphasize the ruling of the Shulchan Aruch that since your work is "heavenly work"—the work of education—it must be conducted in a manner that does not detract from your teaching of the students, for that is the primary objective. This is explained in the Shulchan Aruch in the Laws of Talmud Torah, as well as in the Shulchan Aruch of our Alter Rebbe regarding these laws.
+
+Regarding what you wrote, that there was no farbrengen during the days of Chanukah: my hope is that you are already in such a state that if you were to enter the walls of Yeshivas Tomchei Temimim and study for a few hours within the four cubits where my revered father-in-law, the Rebbe, of blessed memory, davened and performed his avodah for ten years, it would surely affect you and draw down a Jewish, Chassidishe vitality into your affairs for a long time to come. When one does not contemplate matters such as these, it is no wonder if one complains afterward that there is a lack of vitality in matters of Torah and mitzvos, for the one is dependent upon the other.
+
+It is surprising that in all your letters you do not mention your activities in your environment to bring others closer to Yiddishkeit and the performance of mitzvos in their daily lives. May it be His will that this is merely an omission in writing, but not in practice.
+
+Surely, when you write in the future regarding such matters, you will also include the names (along with the mother’s name) of those you are writing about. May Hashem grant that the journey of your wife and daughter proceeds properly and with success.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 3182
+
+B”H, 11 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I am sure you have received my previous letter, and in due time I received your letter of 26 Kislev along with its enclosure. It is surprising that you mention that you will be moving into your new home in the coming week, yet as of now, I have no information regarding this. I hope that by the time you receive this letter, matters have been settled. I reiterate my blessings that a change of place should bring a change of fortune for the good and for blessing, and that the move should be *me’ila le’eila*—with an ascent in both the physical and the spiritual.
+
+Regarding what you wrote about *chanukas habayis* (a housewarming): Although there is room for study on this topic in the revealed books of Torah—see the *Acharonim*, *Shulchan Aruch Orach Chayim* 568, and see there the *Magen Avraham* (sub-paragraph 5) and the *Yad Ephraim*; also note *Responsa Chasam Sofer* (Yoreh Deah, sub-paragraph 138) and *Toras HaShlamim* (paragraph 19)—since it is a *minhag Yisrael*, and furthermore, and most importantly, because in a *maamar* of *Chassidus* from the Alter Rebbe, he explains “the reason for making a feast and celebration at a *chanukas habayis*” (it is now in print, found in the manuscript of R’ P. of Shklov), it should be done as mentioned above. When you gather for a *farbrengen* of *Chassidus* and share *divrei Torah* of *Chassidus*, there will be benefit both physically and spiritually.
+
+You surely know our custom to affix the *mezuzos* immediately upon entering the house, and it is understood that this is done without a *brachah*. However, upon the completion of thirty days, one removes one *mezuzah* to have it checked, and it is permitted to replace it with a better one; consequently, one affixes the new one with a *brachah*, with the intention of including all the others on the other doors as well. May Hashem grant you success in all of the above and bring good tidings. May He who sustains and provides for all also provide what is needed for the expenses of the new home...
+
+Regarding what you wrote about traveling now... I am puzzled by your attitude toward the matter of purchasing the house, that you specifically want **your work** to be done by others! Yet the homeowner is commanded, "You shall surely help him [load/unload] **with him**," as is the ruling of our Torah. In my opinion, you should be on-site (it is understood that a trip for a few days is not included in this) until the **entire** matter is concluded in peace and good health.
+
+***
+
+**3182**
+Printed in *Likkutei Sichos*, Vol. 19, p. 448, and completed based on a photocopy of the letter.
+
+**Chanukas habayis... our custom to affix the mezuzos:** Copied in *Sefer HaMinhagim Chabad*, p. 81.
+
+**Manuscript of R’ P. of Shklov:** Printed in *Maamarei Admur HaZakein – Hanachos R’ P.*, p. 79. See also *Likkutei Torah*, *Brachah* 98d.
+
+## 3183
+
+B"H, 12 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, refined, and diligent in communal affairs, R' Peretz, may he live.
+
+Greetings and blessings!
+
+In response to your letter and the *pidyon nefesh* regarding the Fast of the Tenth [of Teves], may it be transformed speedily into joy and gladness.
+
+I was pleased to hear what you wrote regarding the *farbrengen* and the fact that you are discussing practical matters. Certainly, you should continue to do so in the future. This is also the answer to your question regarding what more can be done for those who have not yet listened and remain stubborn: the advice for this is an increase in light. However, since [the events of] Petersburg, the light has become clothed in *keilim* and letters; consequently, when you speak to them many more times, eventually the increase in light will push away the majority of the darkness. May Hashem grant that this be in kindness and mercy, and very soon.
+
+With blessings,
+
+#### ***3183***
+
+**R' Peretz:** Motzkin. Additional letters to him appear above in Vol. 7, 1827, and in the references noted in the footnotes there.
+
+## 194
+
+B"H, 12 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I hereby acknowledge receipt of your letters from the conclusion of Shabbos Parshas Mikeitz and Vayigash, as well as those preceding them. I look forward to continuing to hear good news regarding the development of the school under your administration—both in quantity, in the literal sense, regarding the number of students, and in quality, meaning the level of study concerning matters of yiras shamayim and the fulfillment of mitzvos.
+
+Regarding what you wrote—that those participating with you are true *misnagdim*—it is well known that in these times, such a reality no longer truly exists. The matter depends solely on the appropriate approach, tailored to the spirit of each individual. When they realize that the intention is not to belittle them or "rub their noses in it," they will accept the words without suspicion and with a favorable eye. When that happens, it is a certainty that such *ta'amulah* will not return empty-handed. One proof of this is your writing that 19 Kislev was observed pleasantly and celebrated with great splendor; surely you mean that this was achieved in conjunction with the aforementioned individuals. Another proof is the fact that the administration of the place has changed its attitude for the better; how much more so, then, regarding those within one's own four amos. It is just that, as per the adage of my father-in-law, the Rebbe, *ztzuklaleh, nbgm, zy"a*, one must remove the matters that obstruct the truth of the situation from the truth that resides in the soul of all those who have merited to work in the institutions of my father-in-law, the Rebbe—which, of course, includes his partners as well.
+
+I await good news regarding all of the above, especially since you write that the Chanukah period is a time of change (for the better) in the number of students in the school, etc.
+
+With blessings for success,
+
+## 315
+
+B"H, 12 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I was pleased to receive the news through the esteemed Chossid, who toils for the needs of the community, R’ [Name]... that these days he is providing a down payment for the purchase of a house. May it be the will of Hashem that in a good and auspicious hour, he will move his residence there, and may it be a double measure of good fortune for an increase in blessing and success in all that he and his family require, both materially and spiritually. May his home serve as a place from which *Yiddishe varmkeit* and *chayus* will spread throughout the entire vicinity, and through this, additional light will be added to the influence of Hashem upon the house and those who dwell within it.
+
+I was pleased to be informed by the esteemed Chossid... that he is asking for my opinion regarding the amount he should allocate for *tzedakah* in connection with and alongside the expenses of purchasing the house. What appears to me in this matter is that it should be more than a *ma'aser*, whether a little or a lot—meaning that with every payment he makes toward the purchase of the house, he should also give to *tzedakah* more than a *ma'aser* of that payment. And since the esteemed Chossid... mentions his question regarding *tzedakah* matters, specifically whether it should be for particular causes: in my opinion, he should distribute half of the sum himself. As for the second half—since I will be reading his request for a blessing at the holy *tziyun* of my father-in-law, the Rebbe, *ztzukulleh"h, nbg"m, zy"a*, who will surely arouse great mercy for the fulfillment of his heart's desires for the good—he should distribute one-third for the support of the institutions of my father-in-law, the Rebbe, in our Holy Land, may it be built and established speedily in our days through Moshiach Tzidkeinu; one-third for the support of our institutions in North Africa—*yeshivos*, *chadaryim*, and *Talmud Torah* on the purity of holiness, both for boys and for girls, for our Sephardic brethren; and one-third for the printing of the Torah and *maamarim* of my father-in-law, the Rebbe.
+
+And the merit of *tzedakah* in general, and *tzedakah* connected to Torah education, the support and dissemination of the study of our Torah—*tomchei d'oraisa*—concerning which it is said, "It is a tree of life to those who grasp it, and those who support it are *me'ushar*—happy," will draw down the blessings of Hashem and his success in his affairs in a good, visible, and revealed manner.
+
+With blessings.
+
+## 375
+
+B"H, 12 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 9 Teves, enclosed is my letter to Mr. [Name]—may he live and be well. If he requires explanation, you will surely find the appropriate words. You should certainly not be discouraged even if the amount does not seem right to him (if the aforementioned is not yet accustomed to such things). You should explain to him that the statement of our Sages, "Tithe so that you may become wealthy," is to be taken literally. The more he increases his portion of tzedakah, the more his "becoming wealthy" will increase, for regarding this it is said, "And test Me now herewith" (Shulchan Aruch, Yoreh Deah, end of section 247).
+
+It would be appropriate for someone to explain to Mr. [Name] that although I did not wish to specify the amount that is permitted beyond the tithe, it should be close to a *chomesh* (a fifth). This is based on what is explained in *Chassidus* (Likutei Torah, Shir HaShirim 6:4, 24:4) regarding the concept of "the fifth for Pharaoh, and the four parts shall be yours." See also *Tanya*, end of Chapter 34: "Furthermore, the *chomesh* elevates with it, etc."
+
+#### ***375***
+
+Published in *Likkutei Sichos*, Vol. 9, p. 287; completed based on the secretariat's copy.
+
+## 3187
+
+B.H., 13 Teves, 5715
+Brooklyn
+
+Mrs. Rachel, may she live,
+
+Blessings and peace!
+
+I was pleased to receive your letter from Asara B’Teves—may it soon be transformed into joy and gladness—in which you share the good news that a *mechitza* is being built in your *shul*. The *Kiddush Hashem* in this, and the magnitude of this matter, is truly beyond measure. May Hashem, whose attribute is *midah k’neged midah*, grant you, your husband, and your children from His full hand, immeasurable blessings in all your affairs. When one contemplates how great the darkness of *galus* is—that even in matters which should be clear to everyone, one must wage battles—it becomes evident that when one succeeds, it is a *Kiddush Hashem*. One such matter is the *mechitza* in *batei knesios*.
+
+In truth, it should be clear to everyone that when one approaches even a flesh-and-blood person to make a request, and one wishes for them to fulfill that request, one speaks with them and conducts oneself according to their requirements. Certainly, one does not act against them, even when there is doubt as to whether the other person has the ability to fulfill the request, and even when one thinks that if they refuse, one will turn to someone greater than them. Today, *al achas kamah v’chamah* (i.e., many times over), when one comes to a place where one must recite a *tefillah* before the *Ribono shel Olam*, asking for health, *parnassah*, and so on—when one does this, one surely believes that *Hashem Yisbarach* can fulfill it, and everyone also knows that there is **no one** greater or higher than Him. Yet, there are those who are blinded by the false ideals of the *yetzer hara*, and they invest money and effort into appointing *askanim* who will specifically insist on conducting the *tefillah* in a manner that is *l’hachis* (provocative) to the *Hakadosh Baruch Hu* to whom the *tefillah* is being addressed.
+
+Hashem says He wants a *mechitza*, and *rachmana litzlan*, they tear it down. Hashem says one should observe *Shabbos* and *Yom Tov*, and they bring in—*r”l*—a microphone, and they offer the *tefillah* **through** the desecration of *Shabbos* and *Yom Tov*.
+
+*Hakadosh Baruch Hu* says that the *shaliach tzibur*—the one authorized by the entire congregation to convey their petition—should be someone whose blood is from *kosher* food, whose mind has not been defiled by any improper thoughts, and who, a few hours before going to the *amud*, has not desecrated *Shabbos*—*r”l*.
+
+Yet, for such clear and simple conditions, they spend thousands of dollars, and they search—perhaps they will find someone who looks more like a *goy* than a Jew, who is capable of singing in an opera, and alongside *shiksas*—and who is to say if [he] has not actually done so? And this is the one who is supposed to come in the name of the entire congregation and recite a request: "Enlighten our eyes in Your Torah, and let our hearts cleave to Your *mitzvos*," and to pray, "Return us to You... and heal us," etc.
+
+This is so illogical and so contrary to reason that if one were to act this way in business, such people would be sent to an insane asylum. Yet, when one does such things regarding the matters of *Das Yisrael* in general, and the management of some *shuls* in particular, in recent years, one even has a chance of being elected as an officer in the *shul* administration.
+
+Therefore, those who are *zocheh* to bring into a *shul* the true perspective and understanding as mentioned above, their *zechus* is a *zechus harabim*. Therefore, you should exert all efforts in this, naturally through peaceful means, and when one acts with truth and sincerity, Hashem brings success.
+
+Naturally, if you find it necessary, you may share the content of this letter of mine with all those who are helping you in this *mitzvah*, and may the *zechus harabim* stand for each of them in whatever they are in need of.
+
+With blessings,
+
+## 3188
+
+B"H, 13 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I hereby acknowledge receipt of your note and the enclosed check, which has been delivered to the charity fund—one of the most exalted levels in the matter of tzedakah. Consequently, may it bring you and your family—may they live—an increase in blessing and success, from the highest levels down to below ten tefachim in physical matters, as explained in Iggeres HaKodesh.
+
+I must add, based on what is explained in the aforementioned, that although every person is obligated in all mitzvos, there is one mitzvah in which one must be particularly careful. Usually, one can see through the conduct of Hashgacha Pratis which area this pertains to. Since, for the time being, you are not wealthy in material possessions, then—even though, according to what is explained in Iggeres HaKodesh, in our generation it is a mitzvah to increase in tzedakah—it seems that this is not your "gate" and the mitzvah in which you should be particularly careful. This is not the case, however, regarding the power of your influence on others and the appropriate energy for it; in this, you have a clear and present talent. Therefore, it is surprising to receive a note from you regarding the matter of tzedakah, while you do not mention anything regarding your influence on others, on your environment, and on your family as mentioned above. Furthermore, you do not mention anything regarding your shiurim in Nigleh and Chassidus. Surely you will complete this at the earliest opportunity.
+
+Since the conduct of many of Anash is along these lines, you have permission to publicize the content of this letter, as it is difficult to write to each person individually for several reasons. May it be His will that you do this with the appropriate energy, and may this also be the beginning of the impetus regarding your influence on others in this manner. And there is a presumption that propaganda does not return empty.
+
+With blessings for a livelihood in abundance and with peace of mind, awaiting good tidings.
+
+#### ***3188***
+
+Printed in Likkutei Sichos, Vol. 19, p. 487.
+
+**Your gate:** See also above, Letter 2990, and the references in the notes there.
+
+## 3,189
+
+B"H, 15 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chassid, G-d-fearing and distinguished, engaged in communal needs,
+Rabbi Chananya Yom Tov Lipa, may he live.
+
+Greetings and blessings!
+
+I have received your letter regarding the mikveh taharah in Winnipeg. I have written there to take action on this matter and to inform us of the details, as I have not received **any** information from there regarding this. When there is good news, I will certainly inform you.
+
+Regarding the sicha—what was discussed during the farbrengen here—that you suggest translating into Lashon HaKodesh:
+
+At present, time does not permit this due to the multitude of pressures, etc. It is understood that, G-d forbid, I have not given up on this, and "a word in its time is good."
+
+It is surprising that you do not mention the conclusion of the matter in Pottsville. I am writing there as well to ascertain the situation, and I will await good news.
+
+Regarding what you wrote concerning rubber: The Rebbe (Rashab) instructed not to use rubber stoppers, as is also written in the printed text in the introduction to your book, Part 6 [Darchei Teshuvah, 201, subsection 273].
+
+With blessings for success in your holy work.
+
+***
+
+**Rabbi Chananya Yom Tov Lipa, may he live:** Deutsch. Additional letters to him appear above in 2,995, and in the references noted in the footnotes there.
+
+**I have written there:** See below, letter 3,222.
+
+**Regarding rubber:** For plugging the hole in the mikveh. See also above, Vol. 7, letter 1,888, and the references noted in the footnotes there.
+
+Below, letter 3,198.
+
+## 3190
+
+B"H, 15 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, G-d-fearing and distinguished, involved in communal needs,
+Rabbi Schneur Zalman, may he live.
+
+Peace and blessing!
+
+In response to your letter of 4 Teves, as well as the telegram I received a few days ago, I will mention all of them—each and every one—at the holy resting place of my father-in-law, the Rebbe, of blessed memory. He will surely awaken great mercy from the Guardian of Israel, who neither slumbers nor sleeps, to protect them from all undesirable matters, Heaven forbid, and may only goodness and kindness find each and every one of them in a way that is good, visible, and revealed.
+
+And the unity of the residents of the village, may they live, as one man, will stand as a wall so that no undesirable matter, Heaven forbid, will be able to penetrate there, whether in physical or spiritual terms. This is all the more so—a fortiori—based on what is written, that when they are "one people and one language," nothing will be withheld from them. This is certainly true when this unity is internal, stemming from holiness, and with the added success bestowed upon us by our holy Nesi'im, of blessed memory.
+
+Awaiting good news.
+
+***
+
+**Rabbi Schneur Zalman:** Gerlik. Additional letters to him appear above in 3171, and in the notes referenced there.
+
+**His letter... the telegram:** Regarding the murder mentioned above in letter 3161, and in the notes referenced there.
+
+## 191
+
+B"H, 15 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and refined, who engages in communal needs, R' Nissan, may he live.
+
+Peace and blessing!
+
+It gave me pleasure to receive your letter of 6 Teves, in which you bring the good news that the construction of the pits for the preparation of the mikveh has already been completed, and that you will also ensure it is aesthetically pleasing. It is already known how much our holy Rebbes were particular about this, even regarding external beauty, all in order to remove any obstacles and to make the purification of the daughters of Israel as easy as possible, and thereby [contribute to] the purity of the people of Israel; for purity leads to... Eliyahu HaNavi. The merit of the many depends on all those who engage in this matter, which is the foundation of the existence of the people of Israel.
+
+May it be the will of Hashem that you go from strength to strength in fulfilling the mission of the "Supernal Man upon the Throne" (according to what is written in Likutei Torah, beginning of Parshas Vayikra), with health and success, and with ample children, life, and sustenance.
+
+With blessing.
+
+#### ***191***
+
+**R' Nissan, may he live:** Pinson. Additional letters to him appear above, 143, and in the notes referenced there.
+
+## 3194
+
+B"H, 16 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi, the G-d-fearing, Torah-learned, etc., R' Yaakov, may he live.
+
+Peace and blessing!
+
+In response to your letter of 8 Teves, in which you continue to discuss the lighting of the Chanukah candles, noting that according to the commentators, the time is from sunset—that is, *tzeis hakochavim*—and asking how it is possible to light before then, given that the lighting is what constitutes the *mitzvah*.
+
+You are correct if it were a significant amount of time before that, such as before *plag haminchah*. However, this is not the case when one lights at the time of lighting on Erev Shabbos, where even according to that opinion, one fulfills the *mitzvah*.
+
+Regarding what you wrote about lighting a Chanukah candle with an electric lamp, many have already discussed this, including in *Responsa Beis Yitzchak*, *Pikudas Elazar*, and *Levushei Mordechai*. See also the sefer *Me'orei HaEish*, and I believe this was also debated in the monthly journal *Kol Torah* published in Jerusalem.
+
+However, regarding what you wrote in your letter—and it is similar in *Responsa Pikudas Elazar*—that one does not fulfill the *mitzvah* because a specific amount of fuel is required at the time of lighting, and it is possible that the electric current might be turned off, or as you write that such a shut-off is a common occurrence: this reasoning does not seem correct to me at all. Since the shutting off and the interruption come from an external cause involving a person with free choice, it is by no means certain that because of these two reasons, it is not comparable to a "common and frequent wind" [that might blow out a candle] and the like.
+
+With blessing,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 193
+
+B"H, 16 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 9 Teves, which was received recently (and since I do not have a secretary who writes in French, I hope you will understand this response written in Lashon HaKodesh).
+
+Regarding your question: since it is difficult to provide a Charedi education for your children (may they live and be well) in your current place of residence, you are considering two options: either you and your children will settle in Gateshead while your husband (may he live and be well) remains in your current location, which is his source of livelihood; or that only your two eldest children will be sent to study in Gateshead, even though this is difficult due to their young age.
+
+In my opinion, I lean toward the second option. It is not the proper order of life for a husband to be in one place and the wife and children in another. Sending children to a place of good education, however, is common, especially in recent years. Surely, one can find a reliable home in Gateshead that will look after your children as needed. Even if there is some longing in the beginning, the Torah has already stated, "Exile yourself to a place of Torah." This is especially true in our generation, where this is not merely a question of Torah knowledge, but a question of walking in the path of Torah and mitzvos. Furthermore, there is an additional reason: when you are together with your husband, you will surely be able to find ways to influence your surroundings to make them more Charedi.
+
+It is surprising that you do not mention your activities in strengthening Yiddishkeit in your area, especially among the youth over whom your husband has influence. I hope this is merely an omission in your writing and not in your actual work.
+
+May Hashem fulfill the days of your pregnancy properly and with ease, and may you give birth to a healthy child, at the proper time and in a healthy and easy manner.
+
+With blessings,
+
+On behalf of the Rebbe Shlita
+
+## 3194
+
+B"H, 16 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing and refined, occupied with communal needs, R' Shlomo Chaim, may he live.
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your letter from the 3rd of the month, and subsequently the letter of the 15th of Teves, in which you write regarding the matter of the *avreich* Yisrael, *Hashem yinkom damo*. Your mind should be at ease, just as you have put my mind at ease by writing that there were no autopsies or embalming, etc. It would be appropriate for the students of the older classes to fast for half a day, choosing whichever time they see fit—perhaps Erev Rosh Chodesh, may it come upon us for good. I specify "half a day" in accordance with the ruling of our holy Torah that a *tzurba merabanan* who fasts, etc., and especially since this is not the path of the Baal Shem Tov and our holy Rebbes, the *Nesi'im*, regarding fasts and self-afflictions.
+
+My primary intention is that they should be stirred to strengthen their study of our Torah, and specifically the *pnimiyus haTorah*, the "Tree of Life," which draws down and bestows life from the Life of Life, the *Ein Sof*, *Baruch Hu*, to all those who hold fast to it. It is also understood that the intention is not for a sermon, moralizing, or a fleeting inspiration on that day, but rather to extend the influence of this inspiration into their study for the coming year.
+
+May the Guardian of Yisrael, who neither slumbers nor sleeps, protect each and every one of the children of Yisrael wherever they may be, and may He say "enough" to our troubles, so that from a place of tranquility and without material anxieties, they may be able to occupy themselves with Torah and *mitzvos* with a broadened mind, in *pnimiyus* and with joy.
+
+With blessing.
+
+## 395
+
+B"H, 16 Teves, 5715
+Brooklyn.
+
+To the Administration of Agudas Chabad in Eretz Yisrael, may it be rebuilt and established,
+May they live,
+
+Peace and blessing!
+
+... Upon receiving the news regarding the murder of the avreich Yisrael, may Hashem avenge his blood, I wrote immediately to Mr. Shazar, may he live, that it would be appropriate to show some sign of encouragement to the residents of the village on the part of the relevant offices. One of the matters in this regard is to expedite the land exchange with the Mehadrin company. Especially since this will make it possible to increase the number of settlers, and surely he has told them about this letter, and consequently, they too are doing their utmost.
+
+... I see in the newspapers that the nigunim and speeches from the Yud-Tes Kislev celebration in Kfar Chabad were recorded, and it would be appropriate to endeavor to have the full recording of the aforementioned sent here as well. This also applies to previous years, as there are places here that "broadcast" some celebration in the village, although I have not been able to ascertain which celebration it is, but in any case, it is not from this year, but from last year.
+
+With blessings for success in your holy work,
+
+**M. Schneerson**
+
+#### ***395***
+
+**The news regarding the murder:** See above, Letter 391, and the references in the notes there.
+
+## 396
+
+B.H., 17 Teves, 5715
+Brooklyn.
+
+Mr. Yaakov Parnas
+Greetings and Blessings!
+
+I was pleased to receive the news from the esteemed Chossid, a man of stature and integrity, active in communal affairs, energetic and accomplished, Rabbi Tzvi Hirsch Chitrik, regarding your interest in the communal activities of Lubavitch. He also sent me your article in which you described the 19th of Kislev farbrengen, and I hope that your interest is a lasting one and will continue throughout the mundane days of the entire year. As Chassidus teaches and demonstrates, the interest in a fellow Jew, and Ahavas Yisrael in general, must be tested and proven through the corresponding relationship with Jews in their mundane, everyday lives.
+
+This is especially true when one considers that if one truly desires to do so, every Jew can sanctify every detail and every event of their daily life.
+
+This is, after all, the shlichus of every Jew. They were all, each and every one, made into a "kingdom of priests and a holy nation" at the very moment they became a people as a whole, at the time of Matan Torah.
+
+Therefore, reading in your article the expression that "Yiddishkeit in Brazil is a desert" (with which I cannot agree), I hope that you do not hold to this expression literally—it is merely that one sometimes needs to use strong words in order to influence the reader and "awaken" them.
+
+A "desert" implies a place where, even if one were to plow and sow, nothing would grow. However, the guidance and Torah of the Baal Shem Tov and the Alter Rebbe is that every Jew is an "Eretz Chefetz"—that is, a land that is desired because it contains within itself invaluable treasures.
+
+So too, every Jew, at every time and in every place, possesses tremendous treasures and holds an untouched *nekudas hayahadus*. The work consists only of uncovering and bringing forth this *nekudas hayahadus*, which is hidden and not visible; once that is done, the hidden treasures are revealed as well.
+
+This uncovering and bringing forth of the *nekudas hayahadus* varies: some can accomplish this on their own, while others must rely on outside help. But this is certain: when one plows properly and then sows, Hashem gives *gishmei bracha*—to such an extent that from a single grain, an entire tree can grow that yields good fruit.
+
+There are no exceptions in this regard: even for those who until today have not had success in this, if there are those who will plow to the fullest extent and sow to the fullest extent, the time will surely come for growth and for producing the desired fruits.
+
+I would like to hope that you, having influence over a large circle of readers, will do everything within your capabilities to bring this closer, and to do your part in this to the fullest extent. May Hashem grant you success.
+
+With respect and blessing,
+
+On behalf of the Rebbe,
+
+Secretary
+
+## 3197
+
+B"H, 17 Teves, 5715
+Brooklyn
+
+Greetings and blessings,
+
+In response to your letter of 12 Teves: It is a great wonder and a source of astonishment that you have not written until now, especially since you yourself acknowledge that time is an irretrievable loss, as you wrote in your letter that every day is precious. We do not cry over the past; may it be the will of Hashem that through persistence, diligence, and consistency—both in your soul and in your schedule—you will at least partially make up for what was not accomplished in the days that have passed.
+
+Regarding your request for advice concerning tefillah—that you do not feel its essence in thought, speech, and action, and that it does not influence you:
+
+This is not surprising, given the ruling of the Mishnah that one should not stand to pray except with *koved rosh* (seriousness). Rashi explains this as *hachna'ah* (humility/submissiveness). The language of the Mishnah here is both a command and a statement of fact: it is impossible for tefillah to be as it should be if it is not preceded by the matter of *hachna'ah*.
+
+The matter of *hachna'ah* cannot come about on its own, for a person is a *metzius* (an independent existence). Furthermore, his *yetzer hara* precedes him with its arguments.
+
+However, [the Gemara states]: "I created the *yetzer hara*, and I created Torah as its spice." Torah reveals the remedy even for the matter of *yishus* (self-centeredness) and the *metzius* from which pride stems.
+
+This is achieved through study that can lead to *hachna'ah*, and simultaneously to *avodah* (which is tefillah) from a place of joy. As our Sages of blessed memory said, one should not stand to pray except from a place of joy.
+
+This is the study of Chassidus, *Divrei Elokus Chaim*, which brings one to the love of Hashem (which awakens joy) and the fear of Hashem (which awakens *hachna'ah* and *shiflus*).
+
+It is understood by itself that there is no need to emphasize that tefillah must be in a state of purity.
+
+If you conduct yourself with the aforementioned study, applying it to your own soul—especially before tefillah in the morning—it will be effective for your tefillah.
+
+And since the beginning of the requests in tefillah is the request for *chochma, binah, da'as*—the first of the middle blessings which are requests for one's needs—it is certain that even after tefillah and throughout the day, you must have a **fixed** *shiur* in the study of the teachings of Chassidus.
+
+As our Alter Rebbe said, the essence of *kevi'us* (fixedness) is *kevi'us* in the soul, and that which is fixed does not become nullified.
+
+It is understood that the above applies both to yourself and to those whom you can influence, for whoever has the ability to protest [and does not, is held responsible].
+
+Your responsibility is even greater, for you are of the Chabad lineage, and you have been given special *kochos* (powers) to act in all the above. May Hashem grant you success.
+
+With blessings,
+
+On behalf of the Rebbe, shlita
+
+## 3198
+
+B"H, 18 Teves, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and scholarly individual, engaged in the needs of the community, R' Zev, may he live:
+
+Peace and blessing!
+
+...The sending of this letter was delayed. In the meantime, I received this letter from R' D., may he live, in which he writes: a) That the *hashakah* is like a **chet**, and he advised making the hole go straight rather than from top to bottom. I agree with his opinion. b) That he permitted and instructed them to use a rubber stopper. My opinion is not so, based on the instruction of my revered father-in-law, the Rebbe, the Rebbe Rashab—printed at the end of *Taharas Mayim* and in the book of the aforementioned, *Taharas Yom Tov*, Vol. 2, in the introduction—and it must be made of wood.
+
+#### ***3198***
+
+Printed in *Likkutei Sichos*, Vol. 21, p. 302, and completed according to the secretariat's copy.
+
+**R' Zev, may he live:** Schildkraut.
+
+**Rubber stopper:** See above, letter 3185.
+
+**And in the book of the aforementioned:** R' Chaim Yehuda Leib, may he live, Deutsch, mentioned above in that place.
+
+## 399
+
+B"H, 18 Teves, 5715
+Brooklyn.
+
+To the esteemed Rav, G-d-fearing, learned, and distinguished, Rabbi Yaakov, may he live:
+
+Greetings and blessings!
+
+...I was pleased to hear what you wrote regarding the monthly meeting taking place in your area, and that the study of Chassidus has been increased. Surely you are also studying the halachos necessary for daily life, whether in a group or individually, provided that you become proficient in them, as is evidenced by experience.
+
+It is appropriate to first learn the laws themselves, without the sources, and only on the second or third time to add those as well. For the essence of everything is, as it is written: "Fear G-d and keep His mitzvos, for this is the whole man..."
+
+With blessings.
+
+#### ***399***
+
+**Rabbi Yaakov:** Smith.
+
+**Halachos necessary:** See also above, Letter 348, and the references in the footnotes there.
+
+## 3003
+
+18 Teves, 5715
+Brooklyn
+
+Blessings and peace!
+
+In response to your letter of 26 Kislev—following your longest silence—even taking into account the reasons you provide for why you have not yet been able to write, we do not cry over the past; surely, it will be corrected from here on.
+
+Regarding what you write about needing to be careful about the style of writing, and so on: such things apply when writing diplomatic matters that are merely superficial, where the essence is the beauty of the prose and the perceived honor. This is not the case with matters connected to the emotions of the heart, and especially in matters pertaining to the fate of the souls of the youth.
+
+Since they must still begin their path in life, and every detail can potentially influence decades of their lives, any artifice or external beauty only covers up the truth of the situation, and the result is damage rather than repair.
+
+I was pleased to hear that the situation has improved in several details, especially regarding the internal attitude of the participants in the girls' group toward the conduct of Chassidus and its spirit. It is surely superfluous to emphasize once again that although it is explained in many places—and not only in the teachings of Chassidus, but even in the ethical works of non-Jews—regarding the necessity of *kabalas ol* (accepting the yoke), and in the language of our Sages, "we will do" preceding "we will hear," it is obvious that this does not mean constant self-affliction or the breaking of the soul and body. Rather, it is solely to prepare the way for the dominance of the *tzurah* (form) over the *chomer* (matter), of truth over falsehood, and consequently, of true good (which, after all, is also the good in the life of this world) over evil. However, since "man is born a wild ass," and "the lips of a stranger drip honey" (but) "its end is bitter as wormwood," the beginning must be in action, and even by way of *kabalas ol*. The deeper this beginning is, the sooner the understanding will follow that this is the path to the good and the truth. It is also understood that one cannot set fixed rules for how long this conduct of *kabalas ol* should last in terms of days and hours, as this depends on the spirit and nature of each individual, the conditions of the place and time, etc.
+
+Regarding what you write about yourself and the doubts you have in this: it has already been explained in similar matters that our portion is good and our lot is beautiful, in that we were born in the generation of the footsteps of Moshiach, after so much light has been revealed to us in our Torah, the Torah of life—and especially in the teachings of Chassidus, and in the most minute details, in the teachings of Chabad Chassidus, which has clothed the deepest matters, even the secrets of the Torah, in letters and words understandable to everyone, if only they have the desire for it.
+
+Regarding the above, it is a known saying of my father-in-law, the Rebbe, in the name of his father, the Rebbe (Rashab), that the *yetzer hara* sometimes dresses in silk robes in order to deceive a person. The test for this is that anything that prevents one from *avodah* in practice has its source in the *sitra achra*. In your case as well, the doubts and arguments that completely prevent, or at least weaken, your *avodah* in practice, certainly do not come from the desire and the *yetzer hatov*. (In the Rebbe’s words: "It can be a pious *nefesh habehamis*, and even a Chassidishe *nefesh habehamis*," to the point where sometimes a great desire arises to study Chassidus or to contemplate deeply on some concept in Chassidus, but in truth, this is only the advice of the *yetzer* and the stratagems of the *nefesh habehamis* to prevent *avodah*; any prevention of this is merely a stratagem of the *nefesh habehamis*.)
+
+Regarding the question that you have a desire to influence others, etc., and in your opinion, you lack sufficient knowledge and education for the task: even if we assume this is so, in our generation—and indeed in all generations—even if one does not have the ability to give one hundred percent, one must give what is possible and pray to Hashem that one will be able to utilize all one's strength to add more and more. But this is not a reason to stop the influence, especially given the situation in the Holy Land, where the waves of heresy and the war against tradition are growing stronger, and there is no permission at all for anyone who has the ability to do something about it to retreat from the battlefield. If, for the time being, one does not have the ability to be a commander-in-chief or a major commander, one must fulfill the task assigned to them to the best of their ability. As in a physical war, this itself prepares one to rise from level to level, as we see tangibly, and "that which is famous requires no proof." If you only desire to utilize your talents and the knowledge you currently possess to the best of your ability and in the right direction, I am certain that you will see the fruits in the near future—and not only in the saving and sustaining of one soul, which is also an entire world, but many, many souls. As I wrote in my previous letter, Hashem makes everything beautiful in its time, in its place, and in its environment. Since you have merited to be of the community of *Anash* and Chabad, **this** is the place where you can find satisfaction for your soul by fulfilling the task assigned to you by the supreme *Hashgacha Pratis* (Divine Providence) that brought you to a certain place at a certain time. Everyone knows that the Creator of the world is the ultimate good; therefore, it is simple that when He assigns a special task to a person, He first gives them the ability and possibility to fulfill that task. May you utilize your ability and possibility to the full one hundred percent...
+
+Regarding what you write about the *farbrengens* of the girls: as experience has shown here and in many places, when you involve the girls themselves in the *avodah* by having them give presentations and the like, it arouses greater energy and increased interest among their peers.
+
+Regarding the performances they organize from time to time: in general, this is very correct, but one must be careful about matters that are trampled underfoot, even if they are prohibitions of the Torah, such as "a man’s garment shall not be on a woman," etc., matters of singing in public, mixed gatherings, and the like.
+
+In connection with the upcoming 10th of Shevat, it would be appropriate to suggest to the girls—or at least to the older ones among them—that each one write an essay touching upon some aspect of the *avodah* of my father-in-law, the Rebbe, his *sichos*, etc.
+
+With blessings that you increase your participation in the education of the young women in accordance with the will of our Rebbes, and may you see good reward for your labor and much *nachas* from your children, may they live. I will await good news regarding all of the above.
+
+With blessings to hasten the above.
+
+## 3101
+
+B"H, 18 Teves, 5715
+Brooklyn
+
+Greetings and blessings!
+
+In response to your letter of 12 Teves: As you requested, I will mention you and all those you wrote about at the holy gravesite of my revered father-in-law, the Rebbe, of blessed memory, for the improvement of your health and your general situation.
+
+Regarding what you wrote—that the medication you are taking is affecting your son, [name] *sheyichyeh*, through nursing—it is somewhat surprising, as in such cases doctors usually arrange for nutrition via a bottle of milk or the like. It is possible that there are difficulties in obtaining this where you are, and that is the reason; in any case, you should consult your doctor about this matter.
+
+It is my hope that by the time you receive this letter, the health of the entire family, yourself included, will have improved. Regarding the migraines you suffer from: in addition to the medicinal remedies that have increased in recent times—among them various types of nicotinic acid—it would be worthwhile for you to obtain a small mezuzah that has been checked and is kosher. Wrap it in cloth, several layers thick, and carry the mezuzah with you (naturally, only at times when it is permitted to carry, unlike on Shabbos in a public domain). This will surely have a positive effect on your health. May Hashem grant you success, so that together with your husband, you may always share good news throughout the days.
+
+With blessings,
+
+On behalf of the Rebbe, shlita
+
+***
+
+**Migraines:** Severe headaches.
+
+**Mezuzah... and carry:** See also above, Vol. 5, letter 1446.
+
+## Djerba
+
+*[19 Teves, 5715]*
+
+...Regarding your comment and question—the basis and meaning of the title "Chag HaChagim" (the Festival of Festivals) for the auspicious day of 19 Kislev, as mentioned in the introduction to the booklet for 19 Kislev:
+
+This introduction was written by my father-in-law, the Rebbe, of blessed memory, but for a certain reason, he did not wish to sign it.
+
+The matter can be explained—even though I did not hear this from him directly—based on what is written in the sefer *Maorei Ori*, letter 8, subsection 5, which is founded upon the *Tikkunei Zohar*, Tikkun 21 (58b), that "Chag HaChagim" does not necessarily mean a festival unto itself, but rather the central point that is revealed within all the festivals (see there in the sefer *Be'er Lechai Ro'i* and in the *Biur HaGra*).
+
+Now, the essence of the festivals is *simcha* (joy) (see *Chagigah* 10b: "It comes from..."), which connects **"for you"** and for Hashem. And as our Sages have ruled, there is no *simcha* except with meat, specifically the meat of the **Chagigah** offering—which is why in this time [without the Beis Hamikdash], there is no *simcha* except with wine (see the precision of the language of the Alter Rebbe—the author of the *Tanya*—in his *Shulchan Aruch*, Siman 529, subsection 7).
+
+This is one of the foundations of the teachings of Chassidus, as emphasized in many places by the Baal Shem Tov and his disciples after him, and the Alter Rebbe and his disciples after him: the concept of "Serve Hashem with joy." Another foundation is the service of Hashem **with the body**, rather than through fasts and self-affliction, as in the well-known interpretation of the verse, "If you see the donkey of one who hates you" (referring to the materiality of the body), "you shall surely help **with him**" (and not by rejecting it or through self-affliction).
+
+The significance of 19 Kislev is that the Alter Rebbe was brought to freedom **below**—because permission was granted **from above** to disseminate the teachings of Chassidus and its guidance.
+
+For "no person bruises their finger below unless it is decreed from above"—this means that from above, they agreed to the dissemination of this specific approach.
+
+And this is the central point of all the festivals.
+
+Just as these matters—these concepts—exist in practice, they also exist in the innovation of the teachings of Chassidus regarding the study of Torah.
+
+The Chabad approach demands of **every individual** to engage in the inner dimension of the Torah in a manner of **understanding it** through one’s own *chochmah*, *binah*, and *da'as*, even though there are such mystical secrets of Torah that are not yet permitted to be revealed, or that were revealed without being understood, and only through the path of faith.
+
+This is alluded to in the *Zohar*, Vol. 3, 93b and onwards, and explained in *Likutei Torah* (Tzav 11d), that this distinction is like that between Shabbos, which is called *Kodesh*, and in the language of the *Zohar*, "Kodesh is a word unto itself" (*Zohar* Vol. 3, 94b).
+
+Therefore, Shabbos is called *Oneg* (delight), not the aforementioned *simcha*, as it is above understanding and comprehension—to the extent that our Sages permitted speaking words of Torah on Shabbos only with difficulty (cited at the end of *Sefer HaYirah* by Rabbeinu Yonah and in the additions to *Torah Or*, end of Parshas Tisa).
+
+This is unlike Yom Tov, which is called *Mikraei Kodesh* (a calling/invitation and revelation of holiness), and where the labor of preparing food is permitted.
+
+In the language of Chassidus, this is like the distinction between *Chochmah*—which is the concept of Shabbos, whose essence is in the intellect of first principles, received in a simple manner without debate or comprehension—and *Binah*, which is the concept of Yom Tov, *Mikraei Kodesh*, [involving] understanding and comprehension.
+
+Based on this, it is understood that the approach of the author of the *Tanya*—to study the inner dimension of the Torah until one understands and comprehends it—is the central point of the festivals.
+
+## 3103
+
+B"H, 19 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 15 Teves. It is surprising that you do not mention anything regarding your participation in the farbrengen of the auspicious day, 19 Kislev, the day of our redemption and the deliverance of our souls, as you surely participated in it, as well as in the good resolutions regarding the practical dissemination of Chassidus for the entire year.
+
+Regarding the naming of newborns, may it be in a good and auspicious hour: The conduct of my father-in-law, the Rebbe, of blessed memory, is known—that he would not give instructions in such matters (and this is understood based on what is explained in the writings of the Arizal—Shaar HaGilgulim, Introduction 23; Emek HaMelech, Shaar 1, end of Chapter 4—that the name is a channel of *hishamchah* for that specific *neshamah*, and the idea is placed into the minds of the parents from Above). Whatever you and your wife, may they live, decide together, may it be for long, good days and years.
+
+With blessings.
+
+#### ***3103***
+
+**The conduct is known:** See also above, Vol. 9, Letter 2,552, and the references noted there.
+
+## 304
+
+B"H, 19 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+Following your long silence, your letter of 2 Teves was received. I was pleased to read that you, too, see that there is the ability and possibility to expand the yeshiva and its activities significantly. I was particularly pleased with what you wrote regarding the opening of the kindergarten; the magnitude of this matter is immeasurable, as is known from our Sages regarding the "breath of school children." Especially in our days, even the teaching of the letters and vowels, and the conduct of yiras shamayim, must be undertaken by an educational institution, for one cannot always rely on parents to attend to these matters as they did in the time of the Gemara, or even in the time of the Shulchan Aruch and later authorities. As for what you wrote about there being obstacles, etc.—it is surprising that every obstacle makes such a great impression on you, even though, even with physical eyes, one can see that quite difficult matters have already been overcome.
+
+Regarding what you wrote about the high school, since I do not know the local situation, it is difficult to provide specific instructions. You must decide in accordance with the primary and general point: it is essential that the yeshiva become a center for Yiddishkeit, Torah, and yiras shamayim. Any activities that will assist in this—without compromising on the core principles of the Chabad movement—should be undertaken with vigor. Surely Rabbi... shlita has told you about the school that exists here alongside the yeshiva, as it seems that the school you are writing about is of a similar nature.
+
+Based on the above, it is understood that the answer to the conclusion of your letter is that if there are doubts regarding any matters, the litmus test for their resolution is that one cannot compromise on the core characteristics of Chabad, and one cannot become any sort of faction. Aside from that, however, the institution must be expanded, both in quantity and in quality. May Hashem grant you merit and success so that, in good health, you will see—as will all of anash shlita—how the yeshiva... is the general conduit for the drawing down and receiving of Hashem’s blessings, both materially and spiritually, for all of anash and their families in... and through them, for all the Bnei Yisrael there. From this central conduit and path, channels and paths spread out to each and every individual. This is similar to what is explained in many places in Chassidus regarding the drawing down of light from above through the entire Seder Hishtalshelus.
+
+With blessings for success in all the above, awaiting good news and looking forward to hearing from you,
+
+#### ***304***
+
+Part of this letter was printed in Likkutei Sichos, Vol. 21, p. 373, and part on p. 423; it was completed based on the secretariat’s copy.
+
+## 3005
+
+B"H, 19 Teves, 5715
+Brooklyn, N.Y.
+
+To the esteemed, G-d-fearing, distinguished, and active communal worker, a man of many accomplishments, full of energy and fine character traits, etc., R' Yehuda Leib, may he live.
+
+Shalom u’Bracha!
+
+I was pleased to receive news of your interest in the proper preparations for the annual event of Yeshivas Tomchei Temimim Lubavitch this coming Sunday, 22 Teves. I am even more pleased to hear that, despite your insistence that you not be given the position of chairman, you are participating with your whole heart—and hopefully to no lesser a degree than in previous years—for here we are dealing with the principle of *ma’alin b’kodesh* (we ascend in matters of holiness).
+
+When we met during the course of the year, I did not want to ask you how things stand with Hashem’s promise of *aser bishvil shetis’asher*—that giving tzedakah not only does not diminish one’s pocket, but on the contrary, adds to it. I am certain, however, that Hashem, who said *bachanuni na b’zos* (test Me in this), has stood by that test and fulfilled His promise. Consequently, your contribution to last year’s dinner for the Lubavitcher Yeshiva has brought the appropriate measure of *aser bishvil shetis’asher*, in the most literal sense of wealth.
+
+I hope that this year, too, you will not only maintain your standard but also fulfill the instruction of our Sages, *ma’alin b’kodesh*. Surely, Hashem will fulfill His promise of *aser bishvil shetis’asher*, so that an increased contribution will bring an increase in *tis’asher*—in money, and what is more important, in health and success for you and your wife, Miriam, may she live.
+
+As is the custom to conclude with the *parsha* of the week: *Ve’eleh shemos bnei Yisrael* (And these are the names of the children of Israel), regarding which the Midrash says: "The children of Israel descended, and the children of Israel ascended"—meaning that Egypt did not influence them to become alienated from their parents and grandparents. So too, may every one of us have his share in supporting the Yeshiva, which strengthens the bond between children, parents, and grandparents, so that there may be a *tamim*, a whole nation, *goy tamim v’echad ba’aretz* (a whole and unique nation on earth) through *Torah temimah achas* (one perfect Torah) and *Havayah echad* (Hashem is One).
+
+With blessings for success.
+
+## Jerusalem
+
+B"H, 19 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 3 Teves, in which you write that you are studying in a yeshiva where there is no mashgiach to guide the bochurim, and that you yourself are wandering aimlessly, lacking any desire for Torah study, etc., etc.
+
+It is well known from our Sages that the yetzer hara is a master craftsman at his work, and consequently, he approaches each and every person in various strange and unusual ways. One of the primary methods of his incitement is the feeling of despair—that "there is no desire, no consistency, no clear path, etc., etc., and therefore it is not worth the effort in such a difficult matter, or it is even impossible." Yet, according to our Sages, "I created the yetzer hara, and I created Torah as its antidote."
+
+In our holy Torah—the Torah of life, even in this physical and material world—all of the aforementioned cunning and schemes have been revealed so that a person may know their source and who is claiming all of this. For, in truth, none of these claims have any foundation. Hashem does not deal unjustly with His creatures; to each and every one, the powers have been given to overcome his yetzer (since Hashem assists him) and to overcome his environment as well. If he only desires and makes the effort, then, as the Tanna D’bei Eliyahu states, he can reach the level where his deeds equal the deeds of Avraham, Yitzchak, and Yaakov. This is especially true for a young man residing in Jerusalem, the Holy City—may it be rebuilt and established—in the "tent of Torah." It is a simple matter that this depends only on his own will. If there are no mashgichim, then, on the contrary, this should awaken within him the inner strength to be his own mashgiach. Knowing that "love covers all transgressions," he should not act in accordance with his nature and habits. However, for everything, one requires Siyata Dishmaya, especially in our generation, in the footsteps of Moshiach, where the darkness is doubled and redoubled.
+
+Therefore, it is essential to study the pnimiyus haTorah every day. It is called the "Tree of Life" in the holy Zohar (Vol. III, p. 124b; explained at length in Iggeres HaKodesh by our Alter Rebbe, Epistle 26), for there the sitra achra and the forces of impurity have no hold. This also applies to matters connected with the avodah of tefillah—meaning not only davening in purity, but also giving a coin to tzedakah before davening, hitbonenus before davening on the concepts learned in Chassidus, and reciting the daily portion of Tehillim (as divided for the days of the month) afterward. Then, the beginning of the tefillah and its essence—the blessing of "Chonen L'adam Da'as" (He who graciously grants man knowledge)—is fulfilled; and when there is da'as, there is a distinction between light and darkness, etc.
+
+May the Ribono shel Olam grant you that, in addition to the three daily shiurim equal for every soul established by my father-in-law, the Rebbe, of blessed memory—the well-known Chumash, Tehillim, and Tanya—you should also set a fixed shiur for the study of Chassidus. From this "Tree of Life," an added vitality will be drawn into your study of the nigleh and into the hiddur with which you perform mitzvos in your daily life.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 306
+
+306
+
+B"H, 19 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, who engages in communal needs,
+Rabbi Tzvi Yosef, may he live, HaKohen
+
+Greetings and blessings!
+
+I was pleased to receive your letter, dated Monday of the week of Parshas Vayechi (which contains the words "and they kept the children alive"), the content of which is filled with great activity for the grand project of the paper drive to print holy seforim, to revive the souls of the sons and daughters of Yisrael through their dveikus to Hashem our G-d, the living G-d, by studying the Torah of life.
+
+May it be the will of Hashem that for many more years you will take a major part in matters such as these, and that you will be a "priest" (kohen) who assists in making every one of the sons and daughters of Yisrael a "kingdom of priests" (mamleches kohanim) and a "holy nation" (goy kadosh). This matter is especially great in our generation, the generation of the footsteps of Moshiach, the end of the days of exile, leading to the true redemption of our righteous Moshiach speedily in our days. Regarding this it is said, "As in the days of your exodus from the land of Egypt, I will show you wonders" (Michah 7:15). Our Sages of blessed memory expounded on the parsha of the week, "And these are the names of the children of Yisrael," noting that the children of Yisrael ascended and the children of Yisrael departed (Zohar, Vol. II, 5a) because they did not change their... [identity]. May this be fulfilled through chinuch on the purity of holiness, founded upon pure yiras shamayim.
+
+With blessings for long days and good years, and all the best to all those participating in this lofty endeavor.
+
+## 3108
+
+B"H, 19 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+After your long silence, your letter was finally received—may the fast of the tenth month be transformed into gladness and joy...
+
+Since I have heard that twice a year one must increase the number of students and make changes for the better, I hope that at the very least, you are now engaging in this with the appropriate vigor. It is well known from our Sages’ parable of the deer, whose skin expands as needed to accommodate its body, regarding the Holy Land—and the same applies here as well.
+
+Regarding what you wrote about the difficult conditions, etc., etc., you should compare the conditions of this Holy Land to those of hundreds of our brethren in Russia, who raised a generation of Torah scholars and mitzvah-observers even though it was connected with literal mortal danger at every single step. What value is there in comparing the current difficulties to those? There is no need to elaborate on something so simple.
+
+This is also the answer to your own question regarding the private matter of your apartment, where you see no way for the situation to improve. It has already been stated that every single person has a specific mitzvah in which they must be extra careful, for it is the gateway to all matters of Torah and mitzvos in the manner of "from below to above," and the gateway for the drawing down of everything he and his household need in the manner of "from above to below." In your case, this is the matter of your work in chinuch al taharas hakodesh in the institution of my revered father-in-law, the Rebbe, *ztzukulleh"h, nevag"m, zya*, the Nasi of Yisrael and its leader, who stands and serves in the Holy and awakens Heavenly mercy for the blessing and success of all those who work in his institutions. When you do your part in the aforementioned work **without calculations**, success will be drawn down to you in your affairs in general, and also in the aforementioned matter, even if you do not see room for it **according to calculation**. For the measure of the Holy One, Blessed be He, is measure for measure. May Hashem grant you merit and success so that you begin this movement immediately, and may it be without obstacles or concealments.
+
+Give my regards to all his colleagues, *shiy*, in the holy work, and with blessings for success in all of the above.
+
+#### ***3108***
+
+**Note:** See also above, 2990, and the references in the notes there.
+
+## 314
+
+314
+
+B.H., Erev Shabbos Kodesh, Parshas Lo Yev'ar HaSneh, 5715
+Brooklyn, N.Y.
+
+To all those gathered and participating in the
+Fifteenth Annual United States
+Celebration of the Merkaz
+Yeshivos Tomchei Temimim Lubavitch
+May Hashem grant them life
+
+Peace and Blessing!
+
+For the annual celebration on 22 Teves, 5715, I send my greetings and blessing to the activists of the Yeshiva and to all those gathered who have come to participate in the annual Torah celebration of the Merkaz Yeshivos Tomchei Temimim Lubavitch in America.
+
+Every gathering of a congregation of Jews, and especially for the sake of a mitzvah, and in particular for a matter concerning the dissemination of Torah with yiras shamayim and the maintenance of an institution that is one of the main pillars of Torah-true Jewry here in this country—such a gathering is certainly a time of *hashraas hashechinah* and an *eis ratzon* to draw down a blessing for oneself and one’s household in all that is needed, both materially and spiritually. One must only create the *tzinoros* and *keilim* to receive these Divine blessings—*tzinoros* and *keilim* appropriate to the occasion, which in this case is an *hisorerus* to take the greatest possible part in providing the necessary assistance for the Yeshivos Tomchei Temimim, which is the purpose of this celebration.
+
+American Jews, lovers of Torah and mitzvos, must recognize to the fullest extent the significance of the Lubavitcher Yeshivos for the Jewish people as a whole, and their personal responsibility and privilege to be among those who help strengthen the foundations of this holy institution, which was transplanted to America by my father-in-law, the Rebbe, of blessed memory.
+
+Therefore, may every single person not let this opportunity and *eis ratzon* pass by, and with an inner *hisorerus*—which should also be transmitted to others—respond with appropriate support, according to one’s means and even beyond one’s means, for the Ribono shel Olam helps one carry out a good intention into actual deed.
+
+And in the merit of participating in a Yeshiva that raises students—*Temimim*—who remain whole even after the various *nisyonos* that one passes through, and nevertheless **"the bush was not consumed,"** the great founder of the Yeshiva will continue to bestow blessing and success upon all those who keep open the *tzinoros* to receive his blessings through participation in his institutions and by walking in his ways.
+
+With honor and great blessing,
+
+**M. Schneerson**
+
+## Jerry
+
+B"H, 20 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi, the Chassid, the G-d-fearing man, who engages in the needs of the community, etc.,
+Rabbi Chaim Tzvi, may he live and be well,
+
+Greetings and blessings!
+
+Regarding your notification of your move to a new home:
+
+May it be the will of Hashem that this be at a propitious and successful time, and that this change of location brings an increase in goodness and blessing.
+
+This is especially true through the merit of your involvement in the rectification of the daughters of Israel—the "building" of the home, *ishto beiso*—so that they may be able to build a home in Israel.
+
+And in his days and in our days, the rectification of the Congregation of Israel will be fulfilled—the *agunah* [the woman whose husband is missing] is like a woman whose husband went to a distant land with the intention of returning (Eicha Rabbah), "as in the days of your exodus from the land of Egypt," where "a man and his household came, and a man and his household ascended," even the stones of his house and the beams of his house (Taanis 11a, and based on what our Sages said in Midrash Tehillim, end of Psalm 73). May they be established in the Land of the Living, the *nachalas tzvi* [the inheritance of the deer/the beautiful inheritance], provided that it is **"fatter than cream and sweeter than honey"** (Chagigah 13a)—the study of the inner dimension of the Torah, through which **"they will emerge from exile with mercy"** (Zohar III, 124b), when it is revealed below **"in the final generation, at the end of days, and through it** you shall proclaim liberty throughout the land" (Tikkunei Zohar, Tikkun 6 and at its end).
+
+With respect and blessing.
+
+#### ***Jerry***
+
+**Rabbi Chaim Tzvi:** Krieger. Another letter to him appears above, Vol. 1, 151.
+
+## 311
+
+[20 Teves, 5715]
+
+In response to your letter... regarding the search for a suitable shidduch for yourself: it is understood that one must apply the necessary energy to this, as our Sages of blessed memory said, like one searching for a lost object.
+
+May it be the will of Hashem that this be fulfilled for you soon, and may Hashem bless you in all that you do. May Hashem bless you, and may things be arranged for you soon in a manner that is good for you, both materially and spiritually.
+
+#### 311
+
+Published in Likkutei Sichos, Vol. 19, p. 513.
+
+## 317
+
+[20 Teves, 5715]
+
+I received your letter from Zos Chanukah with joy, in which you write about the farbrengen of the auspicious day of 19 Kislev, the festival of our redemption and the deliverance of our souls.
+
+And, naturally, it is with special joy that I see in your letter the closeness of hearts that has been achieved, especially in light of what you wrote in your previous letters. In this, there is also the assistance of the Baal HaSimcha of 19 Kislev, as the Alter Rebbe writes in his letter regarding his redemption, which occurred at the time he recited the verse, "He has redeemed my soul in peace" (which was also the case for his son, the Mitteler Rebbe).
+
+I hope that this closeness of hearts will also express itself in spreading the wellsprings outward (*hafatzas hamaayanos chutzah*). In other words, that this should be extended and drawn to include those who, for the time being, are still "outside," and to merit them as well with the wellsprings of the Baal Shem Tov and his students, and our Rebbe HaZaken and his students.
+
+And fortunate is your portion, that you are able to act in this not only as an individual, but as a *gabbai*—that is, as one appointed over many Jews—for every appointment is surely by Divine Providence from above. Consequently, you should also serve to fulfill the Divine Will that—even after the sun sets—there should be an increase, *mosif v'holech*, until it becomes so bright that "the night will shine like the day."
+
+#### ***317***
+
+Printed in Likkutei Sichos, Vol. 10, p. 514.
+
+## G'rig
+
+B"H, 20 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letters of the 8th and 12th of Teves—and in the meantime, you have surely received my letter responding to your previous one—I was pleased to hear what you wrote regarding the increase in the number of students. You should certainly exert yourselves in this more and more. It is my hope that the quality will increase as well.
+
+Regarding what you wrote about the *avreich* [may he live and be well]... while it is possible to utilize him for a few days on a temporary basis for some matter in the work of *chinuch*, it is still too early for him to engage in this on a permanent basis. For everyone must take into account not only the immediate future and a few days, but also calculate the benefit for the months and years to come, and for a much longer duration. When the aforementioned person applies himself to the study of Torah, etc., in the *yeshiva*, this will yield great fruits and benefits—not only for himself, but even more so for the work of proper *chinuch*.
+
+This is similar to the explanation of the difference between sowing and planting: sowing grain produces growth in a shorter time, but the increase is not as great. This is not the case with planting, where the effort is greater and the time to harvest the fruits is longer, but the blessing is incomparable. Since the aforementioned person is not compelled to do this for the sake of *parnassah*, he should be utilized in this manner of "planting."
+
+I await good news regarding all of the above, and with a blessing for outstanding success for him and all his colleagues [may they live and be well].
+
+#### ***G'rig***
+
+Printed in *Likkutei Sichos*, Vol. 21, p. 357.
+
+**While it is possible to utilize him for a few days on a temporary basis:** See regarding this, *Igros Kodesh*, letter 3160.
+
+## Jarid
+
+B”H, 22 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 4 Shemos… regarding your son, may he live, whom you are considering placing in a cheder where there is less yiras shamayim but the air is better, so that his health will become stronger, and later, in time, you will bring him back to the cheder where he currently learns: This does not please me. For if you tear him away now, that is certain, but whether you will bring him back later, and whether he will be able to make up for what he will miss, is a doubt—and a great doubt.
+
+Knowing what is written in sefarim in general, and in Sifrei Chassidus in particular, regarding the verse "The fear of Hashem leads to life" (Mishlei 19:23)—that from yiras shamayim comes an increase in health—even if the air there is better, the increase in yiras shamayim in the current cheder where he learns will also fulfill the physical health of your son. Therefore, he should learn in health and happiness in that cheder of Torah and yiras shamayim. I hope that when you read this part of my letter to your wife, may she live, she will also agree to this, one hundred percent, knowing that health, parnassah, and hatzlachah depend only on Hashem Yisbarach, the Giver of the Torah.
+
+Regarding your question as to where to give your tzedakah: I was pleased to read in your letter that you are helping your brother in Eretz Yisrael, may it be built and established. In general, half of the tzedakah should be distributed to the mosdos of my father-in-law, the Rebbe, of blessed memory, and you can do this through my secretariat so that it may be distributed there. The other half you should distribute yourself, including through your wife, may she live, and this should also include the help for your brother, may he live.
+
+With blessings for hatzlachah in parnassah and for Chassidishe nachas, together with your wife, may she live, from all your offspring, may they live.
+
+## 314
+
+B”H, 22 Teves, 5715
+Brooklyn
+
+To the distinguished Rabbi and Chossid, who toils in the vineyard of Hashem, etc.,
+Rabbi Sh. Y. [Zevin]
+
+Greetings and Blessings!
+
+...It is surprising that you have not yet received the index booklet, etc., for Torah Or. In any case, I have requested that they send it immediately, even if they have already sent it previously.
+
+Regarding what you wrote concerning the Shulchan Aruch of our Rebbe the Alter Rebbe, Siman 36, Seif 2, regarding the writing of the *hei* of the Name: For months now, I have been endeavoring to clarify the tradition of writing among the scribes of Anash, both for tefillin and for Sifrei Torah. As of now, I have not found a pearl of wisdom, as there is no clear information on this. Perhaps it is known among Anash in Eretz Yisrael? Although it seems that even among them there are traditions that do not align with what I heard from my father-in-law, the Rebbe—regarding other matters, as printed in *Likutei Minhagim*, which I heard from my father-in-law, the Rebbe, and which were later received from the late Rabbi Chaim Naeh, who noted that Anash in Eretz Yisrael had not practiced this way until now. It is possible that the writing of the letters is the same. In any case, it is worthwhile to gather the information, and at the very least, it will be "a straight line." Perhaps you could inform me to whom I should turn regarding this in Eretz Yisrael.
+
+I was pleased to hear that the sixth volume of the *Talmudic Encyclopedia* has already appeared. Surely, as you wrote, it will reach me in these coming days. I hope there is a basis for the report in the newspapers here that the seventh volume is already in print. May the will of Hashem succeed in his hands to increase the quantity of Torah and to glorify it (in quality), for this is relevant to the study of simple matters and even those of school children (Rambam, Hilchos Talmud Torah, end of Chapter 2—though I have not found the source for this statement elsewhere, as of now)—up to the study of the most exalted Torah (Chullin 66b). May this be with proper health, and may he nevertheless also fulfill his obligation in the vineyard of Chabad.
+
+With blessings for success in the above,
+
+**M. Schneerson**
+
+Regarding your note on the Tanya, end of Chapter 29: "And from where did their faith return, etc.? Surely Moshe Rabbeinu did not show them any sign, etc., but rather, surely, etc., when they heard the harsh words, etc., and the people mourned, etc."—and yet it is stated there (Bamidbar 14:37), "And the men died, etc., by the plague"—
+
+The reason for the return of their faith was the harsh speech and nothing else. This is, in the language of the Alter Rebbe, **explicit in the Torah**, as it is written (ibid. 14:39), "**And Moshe spoke** these words, etc., and they mourned, etc."
+
+It is not that he showed them anything else. The three verses 36-38 are a **parenthetical** passage (to conclude the account of what happened to the spies themselves). As is written in the Targum Yonasan ben Uziel, this was on the seventh of **Elul**. This is also found at the end of Megillas Taanis. And it is ruled as Halacha **le-maaseh** in the Shulchan Aruch Orach Chaim, Siman 580 (though their version is the 17th of Elul).
+
+See there in the Bach, where the Beis Yosef is strained, etc. Even according to the Beis Yosef, the aforementioned verses recount what happened in Elul, which was a long time after the return of faith, for they speak of their death, etc., and it is not a jumbled text. One must conclude that it is a parenthetical passage. In *Meah Shearim*, page 51, it is implied that the spies themselves also said, "Here we are, and we will go up, etc." (because the word "spies" is not mentioned there; see there)...
+
+To conclude on a good note: There are prospects that the Shulchan Aruch of the Alter Rebbe will be published via photography. There is room for additions on separate pages. Perhaps you have short notes, *mimm* (source references), and the like in your possession that pertain to the above? It is understood that whatever is printed from this will be stated in the name of its author.
+
+What is being done regarding the publication of the author of *Ohalei Yosef*?
+
+## 3116
+
+B"H, 22 Teves, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished individual, active in communal needs, a man of many accomplishments,
+Mr. David, may he live.
+
+Peace and blessing!
+
+In response to your letter of the 15th of Teves.
+
+I was pleased to read what you wrote regarding your good works in supporting the study of Torah and its dissemination, particularly among the youth. In our generation, this is one of the most vital matters, touching upon the very existence of our entire nation. You should certainly arrange for the study of the halachos that they need to know for their daily lives within all the shiurim that you have established—even if it is only for a short time each session, provided that it is done with consistency. For this is the whole of man: "Fear G-d and keep His mitzvos," and "It is not the study that is the main thing, but the action." This is in addition to what we see clearly: that through consistency, the knowledge becomes engraved in the soul of the student and listener. May Hashem grant you success.
+
+It is my hope that the esteemed Rabbi, the Chossid, G-d-fearing and distinguished individual, active in communal needs, a man of many accomplishments, etc., Rabbi A. Gorodetsky, who is currently in Morocco, will establish a connection with you, and you will also discuss the matters regarding which you wrote in this letter.
+
+May Hashem help you and your colleagues in your holy work to instill in those who listen to your teachings and those whom you influence the Torah and the mitzvos—the Torah of the living G-d and His mitzvos to be performed in practice—and through them, draw down an increase in blessing, both materially and spiritually.
+
+With respect and blessing.
+
+#### ***3116***
+
+Published in *Likkutei Sichos*, Vol. 21, p. 349, and in its entirety in the book *Zichron* (Gorodetsky), p. 212.
+
+**Mr. David:** Barda, Tunisia.
+
+**Study of the halachos that are necessary:** See also above, Letter 3043, and the references in the footnotes there.
+
+## Jersey
+
+B"H, 23 Teves, 5715
+Brooklyn, N.Y.
+
+To the Vaad HaRabbanim of Brownsville and East New York, and at their head, the distinguished Rabbi, occupied with the needs of the community, etc., etc., Rabbi Moshe Binyamin, may he live.
+
+Peace and blessing! It was with pleasure that I learned of the gathering you are holding this Wednesday on behalf of the "Beis Rivkah" institutions.
+
+I am confident that you, may you live, do not require encouragement, were it not for the teaching of our Sages in the Sifrei that "one only encourages those who are already encouraged," and even that is only to add to their merit, though surely in this matter as well, you do not require encouragement from the outside.
+
+Likewise, I am certain you do not require an expression of gratitude, for the reward of a mitzvah is the mitzvah itself.
+
+Nevertheless, I felt moved to write these lines to you, knowing how dear these institutions were to my father-in-law, the Rebbe, of blessed memory, and how much he labored and toiled in their founding, their maintenance, and their development. Even now, he stands on high, serving and awakening great mercy for all who exert themselves in education on the foundation of holiness in general, and for the Beis Rivkah institutions in particular, to bestow success in this work of theirs and an increase of blessing and success in their personal affairs as well.
+
+My confidence is great that you will not be satisfied with merely beginning a mitzvah, but, as our Sages say, you will complete it well. That is to say, even after the gathering, you will oversee and exert yourselves to ensure that matters come to actual fruition by providing the necessary means to settle debts, to maintain and develop the institutions according to the demands and necessities of the hour, and to expand their borders with more students.
+
+And I pray that the will of Hashem will succeed through your hands with outstanding success.
+
+With respect and blessing,
+
+**M. Schneerson**
+
+#### ***Jersey***
+
+**Rabbi Moshe Binyamin:** Apparently [from] Tomashov.
+
+## 3. Jericho
+
+B"H, 23 Teves, 5715
+Brooklyn.
+
+To the esteemed and distinguished, etc., Rabbi Yitzchak, may he live:
+
+Peace and blessing! ...I was pleased to hear that you have taken upon yourself to enter into another stage of your holy work at the institution of my father-in-law, the Rebbe, of blessed memory, which will surely also bring about an increase in the blessing of Hashem and success in all that you and your entire family, may they live, require.
+
+I was pleased to hear about the farbrengen you organized for the teachers of the Reshet, and that you explained to them several matters regarding their holy work. It is my firm hope that you will arrange such meetings **frequently**, as you write in your letter. The magnitude of this is immeasurable, for each and every one of them is a mashpia for a circle of boys and girls; consequently, the benefit of the many and the merit of the many depend upon them. Even a small detail that is added to each one of them is multiplied many times over in the students. From this, one can understand the magnitude of the responsibility, but even more so, the magnitude of the privilege. And since Hashem only demands according to our capacity, He surely grants each one the strength required to fulfill this in practice.
+
+I was pleased to hear that you took part in the preparations for the farbrengen of Yud-Tes Kislev in Tel Aviv, for according to the reports that reached me, it was a success, and therefore you have a share in this as well...
+
+With blessing.
+
+P.S.
+Perhaps it is worth beginning to prepare a plan on how to utilize the upcoming yom hilula of Yud Shevat in a manner appropriate for the understanding of the students of the Reshet, may Hashem protect them.
+
+***
+
+Printed in Likkutei Sichos, Vol. 21, p. 360, and completed according to the secretariat's copy.
+
+**Rabbi Yitzchak, may he live:** Ganzburg. Another letter to him — above, Vol. 3, 455.
+
+## G'rit
+
+B"H, 23 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, occupied with communal needs, R' Dovid, may he live:
+
+Peace and blessing! After your long silence, it was pleasant for me to receive your letter from the 8th of Teves. May it be the will of Hashem that the improvement in the situation of the youth group you write about be fulfilled through the saying of my father-in-law, the Rebbe, the Rebbe Maharash: "If it is good, it is good; if it is better, it is not better." The time has already come for Chassidim, and even the women and girls of Chabad, to allow themselves to demand more from themselves and from their surroundings. For we see tangibly how success is influenced from Above, beyond the natural order; it is only because hearts have diminished that we prepare only small vessels. Consequently, the influence from Above waits until they awaken and fulfill the verse, "Open wide your mouth," so that the end of the verse may be fulfilled, "and I will fill it," even after the expansion. May it be the will of Hashem that there be an expansion that even the Torah would call an expansion, and not merely according to the measurements of flesh and blood.
+
+With blessings for success in all the above and for good news soon.
+
+#### ***G'rit***
+
+**R' Dovid:** Bravman. Additional letters to him appear above in Vol. 5, 1820, and in the notes indicated there.
+
+See below, 311.
+
+## 3220
+
+B"H, 23 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter from Motzaei Shabbos: It is surely unnecessary to emphasize that sadness and melancholy have been **very, very** distanced by the great leaders of Israel, as is also explained in Tanya, Chapter 26, and in many other places. We also see clearly that not only does it fail to rectify any situation, but on the contrary, it makes things worse. This is especially true regarding the matters in which you are involved, particularly in this country, where joy is well-received by the heart, unlike the opposite approach. Most importantly, there is no basis for your sadness, for it has already been said that "a prudent wife is from Hashem." The path to this is as our Sages have said: one must search again and again, like one searching for a lost object. It is understood that one must pursue this with vigor, even if, as is the custom of upright Jews, through intermediaries. You should continue to occupy yourself with this **with strong confidence.**
+
+May Hashem, Who after the six days of creation matches pairs, as our Sages have said in Bereishis Rabbah, surely provide you with your suitable match, both materially and spiritually. May the merit of your efforts to bring the hearts of the Jewish people closer to our Father in Heaven—through the study of the inner dimension of the Torah and by following its guidance, for the inner dimension of the Torah brings about the marriage (not merely the betrothal) of the Congregation of Israel to the Holy One, Blessed be He—hasten your finding of your "lost object," to become betrothed soon in the best possible way in all details, and to build a Chassidishe home, an everlasting edifice, in a spirit of joy.
+
+Since you have raised this matter: On Monday (aside from Rosh Chodesh), the fifth day of the week of Shovavim Tat of this year, you should delay your meals by ten to fifteen minutes. During those moments, you should study Chassidus.
+
+As for the participants in the shiurim you wrote about—I have mentioned them by name at the Tziyun of my father-in-law, the Rebbe, of blessed memory. A holy person and a tzaddik, etc., is called alive, and "he who comes before the holy one of Hashem and is known to him by name shall have merit and life in this matter" (Ramban, Bamidbar 1:45; see there).
+
+With blessings for the match soon.
+
+***
+
+**As our Sages have said in Bereishis Rabbah:** 68:4.
+
+## 321
+
+B"H, 24 Teves, 5715
+Brooklyn.
+
+Greetings and blessings! ...You conclude with an apology that, due to understandable reasons, you had to remove your children from the Lubavitcher Yeshiva. **It goes without saying** that this is not a matter requiring any forgiveness, as that is your private affair. However, for me, this is a matter—both general and personal—of Ahavas Yisrael, and a matter of pain. I do not understand the reasons, nor do I understand why you had to do this; consequently, I am in pain that until now your children were privileged to study in an institution into which my revered father-in-law, the Rebbe, of blessed memory, invested his efforts with his holy mesiras nefesh, and which bestows blessing and success upon those who participate in it—and all the more so upon the students—blessings not only in ruchniyus but also in gashmiyus. And now, this opportunity has been taken away from the children. But I wish to emphasize that this is not, chas v’shalom, a matter of kpidah, and certainly not a matter of anger, but rather a matter of pain stemming from Ahavas Yisrael, especially when this is done to children who do not yet have full bechirah over themselves...
+
+With blessings.
+
+## 3222
+
+B"H, 25 Teves, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished individual, who engages in communal needs, R' Chaim, may he live:
+
+Peace and blessing!
+
+I have just received a letter informing me that the community, or the Lubavitch shul in Winnipeg, is planning to purchase a new lot or renovate the existing building. Since the situation regarding a mikveh in Winnipeg is difficult, this is an opportunity to also build a mikveh there.
+
+However, as I do not know any of the details, I am turning to you to do everything possible in this matter. When I receive word from you that I should write to someone else regarding this, it goes without saying that I will do so **as soon as possible.** The great merit of this matter is immeasurable, and anyone who is able to act in this regard should view it as a success that has been orchestrated for him from Above, so that he may be able to act in a matter that brings salvation to an entire community of Jews, bringing purity to them, which also hastens the Geulah.
+
+I hope to hear good news from you that you have immediately set to work, and I hope that Hashem Yisbarach will grant His success in this. I look forward to a prompt reply from you.
+
+With blessing.
+
+***
+
+**R' Chaim:** Steiman. Further letters to him—see above, 3157, and the references in the notes there.
+
+**Winnipeg... mikveh:** See above, letter 3189.
+
+## 3223
+
+B"H, 25 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 17 Teves, in which you write that you do not understand what I wrote in my previous letter, as in your opinion the sadness comes from studying the sefer *Derech Chaim*, etc.—you should examine this in *Tanya*, chapters 26, 27, and 31, and in *Hayom Yom* for 23 Sivan. You should increase your actual *avodah* within yourself and in influencing others, especially your fellow students in the yeshiva of our holy *Nesi'im* (may the merits of the righteous protect us). May Hashem grant you success in adding light, including regarding yourself.
+
+I await good news regarding the matters you write about in your letter.
+
+With blessings,
+
+On behalf of the Rebbe Shlita,
+Secretary
+
+#### ***3223***
+
+**What I wrote:** Above, 2996.
+
+## 3224
+
+B"H, 25 Teves, 5715
+Brooklyn.
+
+To my dear friend, the distinguished Chossid, G-d-fearing and learned, scion of a noble lineage, man of lofty character, etc., R' Yisrael Moshe, may he live.
+
+Peace and blessing!
+
+I hereby confirm with heartfelt thanks the receipt of ten *bichlech* (booklets), and subsequently, three additional manuscripts of *Chassidus* that arrived, which were sent with the intention of being returned. Although time has not yet permitted me to examine them as thoroughly as they deserve, it appears that most, if not all, are *maamarim* of the Admur the Tzemach Tzedek (with the exception of one booklet which is a copy of *Pri Etz Chaim*, and one booklet which appears to be by one of the Chassidim—you may know who he is and to what extent he is a reliable authority in what he writes and explains based on tradition or his own reasoning).
+
+In a separate package, I am sending you what has been published recently: the *Sefer Torah Or* with the addition of an index, etc., as well as the *Reshimot* on *Megillas Eichah* by the Admur the Tzemach Tzedek, which was printed a few years ago. In one of the *bichlech* sent here—which appears to be the *Chamesh Megillos*—several *maamarim* from it were found. I am sure you will confirm receipt.
+
+I am currently engaged in the publication of a *bichl* of *maamarim* by our Rebbe the Alter Rebbe. Most are short, and although some have been printed in *Likutei Torah* and *Torah Or* with additional glosses, a *beis medrash* cannot be without something new, especially since these very *bichlech* also contain *maamarim* that, for the time being, I have not found printed elsewhere. On one *bichl* from which the *maamarim* were copied, it is noted in the handwriting of the Admur Moharash that this is a *bichl* of the manuscripts of the late R' P. (R' Pinchas Reizes)—not the original manuscript, but a copyist’s manuscript. I hope that within a few weeks it will be published, and G-d willing, it will be sent to you.
+
+Since "there is no chronological order in Torah," it is consistent with the above to ask if you might have in your possession any *bichlech* by our Rebbe the Alter Rebbe—anything at all, and not only in *Chassidus*, but even letters and *shailos u'teshuvos* in *nigleh*. Furthermore, a rumor has reached me that there are found in Eretz Yisrael—and it seems the reference is to you—sections of the *Shulchan Aruch* of our Rebbe the Alter Rebbe. The rumor is unclear as to whether this refers to a different edition or to sections that have not been printed. I would be grateful for a reply regarding this as well.
+
+With great thanks for the past and a great request for the future regarding the above.
+
+With respect and blessing,
+
+**M. Schneerson**
+
+## 325
+
+B"H, 25 Teves, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, learned, and diligent in communal affairs,
+Rabbi Refael Nachman Hakohen,
+
+Greetings and blessings!
+
+In response to your letter of the 15th of Teves: It is surprising to hear that you are feeling down because, in your opinion, your health is not as it should be, as you feel some discomfort in your heart. Surely, a large part of this is because you are occupying your mind with it, in addition to the lack of proper order during the days of farbrengens in the month of Kislev. Consequently, when you divert your thoughts and conduct yourself with a structured routine regarding eating, drinking, sleep, etc.—this, too, will pass.
+
+As you requested, I will mention you for an improvement in your health (for indeed, even the deepening of one’s thoughts regarding health is itself a detriment to health. As is known from the parable we heard from my father-in-law, the Rebbe: a completely healthy person does not feel his limbs, because it is a simple matter for him to use them as he wishes—unlike when one begins to feel the "importance" of the head, etc., from which one can understand the concept of *ga'avah* and *yeshus*. And as with all parables and their corresponding spiritual concepts, the parable itself is Torah regarding its subject, and the same applies in this case). I will also mention your son-in-law and his family, who live in Kfar Chabad, over which my father-in-law, the Rebbe, hovers, awakening *rachamim rabim* upon all its inhabitants to draw down for them what they need in both spirituality and physicality. May their vessels—their vessels of reception—be wide enough to contain their needs.
+
+I was pleased that you enclosed the list of participants in the raffle. Since, according to your letter, you are among the members of the raffle committee, you will surely find the appropriate words to explain to all the participants that—seemingly, according to the *Shulchan Aruch* (*Choshen Mishpat* 207:13)—a matter of a raffle in such a case, where the winner gains something worth a sum much greater than what he paid for his participation, carries a concern of *asmachta* (a conditional obligation) in a way that does not effect a legal acquisition (*kinyan*). Therefore, it must be that in this case, all the participants agreed with a full heart to gift their money without any reservation. And so that there should not even be a concern of a concern, it would be good if the winner considers himself an agent (*shaliach*) for all the participants, for a person’s agent is like the person himself. Consequently, through the winner’s journey, in a certain measure, each one of them is traveling. And even if you were to say that among those participants there might be someone who wishes to travel for a secondary reason, at the very least it is certain that the majority intend to be at the *Tziyun Hakadosh*, to meet, etc. Thus, even though only one person wins the trip, all participants must make the appropriate preparations as if they were the ones traveling.
+
+Before traveling to the *Tziyun* of a *Tzaddik*—especially a communal figure, and particularly a *Nasi* of Israel—there must be preparation in all five matters mentioned in the *maamar* regarding the concept of *hishtatchus* by the Mitteler Rebbe, which correspond to the *nefesh, ruach, neshamah, chayah,* and *yechidah* of every Jew. May it be the will of Hashem that all of the above leads to an actual movement and *hisorerus* in thought, speech, and action, in accordance with the will of our *Nasi*, my father-in-law, the Rebbe, *ztzukulleh"h, nevukal"m, zia".*
+
+As you requested, I will mention you at the *Tziyun Hakadosh* regarding the question and the response you sent to the consul.
+
+May Hashem guide you on the path that is good for you, in goodness that is visible and revealed, in both physicality and spirituality.
+
+With blessings,
+
+**M. Schneerson**
+
+## Jericho
+
+B"H, 25 Teves, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+After your long silence, I was pleased to receive your letter of 17 Teves.
+
+Regarding your business, it is well known what is written: "And Hashem your G-d will bless you in all that you do" (*Devarim 15:18*). A verse does not depart from its literal meaning, which implies the necessity of creating natural vessels. As is explained in many places in Chassidus, this is the way the influence of this world operates in the vast majority of cases: there must be a natural "garment." From various reports I have received, it appears that this is being neglected by you to a significant degree. Even though it is explained that for every individual of Bnei Yisrael, all the treasures of the world are insufficient to pay what is due to him—as evidenced by the precedent that the monarchy was decreed for three generations because he [Yehu] took three steps for the honor of Hashem—nevertheless, it is still stated, "in all that you do," and all the explanations regarding this have been cited. And from what is explained in those same places, that the garment should not be more than the required measure, and specifically [the law of] "she shall shave her head and trim her nails" (*Devarim 21:12*), it is understood from this itself that the garments should not be too short, either. Especially when it concerns the livelihood of one's household—which is a mitzvah from the Torah. It is understood that my intention is not to cry out over the past, but rather an attempt to understand the situation and to arouse you regarding the future...
+
+With blessings.
+
+## 3260
+
+B"H, 25 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+After such a long silence, it was a pleasure to receive your letter from Motzaei Shabbos Parshas Vayechi, and to read therein of your activities in the realm of religion. Since this is one of the vital matters for every single Jew, you surely do not content yourself with past achievements, but rather seek what is in your power to do in this regard each and every day. This is precisely the nuance of the expression "occupied with Torah" and "occupied with mitzvos"—it must be like a business (*esek*). A business owner does not sit in his private chambers waiting for someone to come and say they are interested in doing business with him; on the contrary, he goes out and searches, again and again, to see if there is someone in need of this business. Furthermore, he speaks to the hearts of those in his surroundings to prove to them the quality of the business and the great benefit to be derived from it, and so on.
+
+Elaboration on this is superfluous, especially since you are in an environment which, in addition to the fact that all of Israel is a "holy nation," must possess a special holiness, as it is written, "And your camp shall be holy," as an additional commandment. (Consequently, the *yetzer hara* endeavors to devise various strange schemes and to increase concealments, hiddenness, enticements, and incitements—*k'p k'k* [as it is written, so it is]—and one must stand guard and strive in this with all one's ability. And the attribute of Hashem is "measure for measure"—*k'p k'k*—that victory over the evil within a person brings victory over the evil outside of a person, which the people of this environment also need more than others.)
+
+Regarding what you wrote concerning instructions for this *avodah*, you will find some points in the above. A general instruction in this regard is that, unlike those who mistakenly say that the yoke of human beings lightens the yoke of the Kingdom of Heaven, on the contrary: every step and matter involving the acceptance of the yoke of human beings should awaken an *hisbonenus*—simple, yet at the same time deep: "If I fulfill the command of a mortal, who is a creation just like me—even if he is in a higher position—without first asking for the specific reasons, and I fulfill it in its entirety, how much more so regarding the command of the King of Kings, the Holy One, blessed be He, to whom there is no comparison at all, must I fulfill all His commands for **my** own good, all the days..."
+
+It is surely unnecessary to remind you of the timely matter regarding the upcoming *yom hilula*, the Tenth of Shevat, to explain to your friends and those you influence at least a few points regarding the *avodah* of my revered father-in-law, the Rebbe, *ztzukulleh"h, nbg"m, zy"a*, his hopes and aspirations that he hoped to see in every single Jew.
+
+With blessings for good tidings in all the above and for success in your *avodah*.
+
+## 3228
+
+[26 Teves, 5715]
+
+...Regarding what you wrote about the lack of proper progress in the study of Nigleh, and attributing this to a certain cause, etc.: as someone who has a sense for chinuch, you could certainly change this undesirable attitude—which you write about in your letter—through perseverance and diligence, and by influencing your peers in this direction. The benefit and the merit of the many depend on you. This is especially true given that the merit of the founder of the institution, my father-in-law, the Rebbe, of blessed memory, will assist you.
+
+Regarding your question concerning the Shabbos gatherings: it is my hope that if you visit one school once or twice, you will be able to establish and solidify the Shabbos gatherings in such a way that they will continue from here on, even without you. This is especially true if you speak with a successor whom you find on-site and maintain contact with him through letters. Once you have established it in one place, you should do the same in the second place.
+
+With blessings for success in advancing in the study of Nigleh and Chassidus, as well as in the performance of mitzvos with hiddur, and the foundation of all this is the avodah of tefillah. The spiritual tzedakah that you perform in your surroundings will increase this success and draw it down into the physical realm.
+
+With blessings, and awaiting good news.
+
+#### 3228
+
+Published in Likkutei Sichos, Vol. 21, p. 366.
+
+## Geracht
+
+B"H, 26 Teves, 5715
+Brooklyn.
+
+To the esteemed and distinguished individual, who occupies himself with communal needs, Moreinu HaRav Uriel, may he live:
+
+Peace and blessing!
+
+In response to your notification, along with the letter you received—which is enclosed herewith.
+
+...Regarding one who says of a Rav in Yisrael (and even of a simple Jew) that he is an idolater through *shittuf* (associating other powers with Hashem): If the person saying this is a fool, it is well known that a fool who causes damage is exempt, as he lacks the capacity for judgment and is exempt from all *mitzvos*. But one who repeats such words maliciously—and even more so if the person doing so has influence over others—this is a prohibition, and not merely a rabbinic one, but a Torah prohibition. This remains the case until he possesses proof (what is termed proof according to **Torah**) that it is permissible to apply such a label to a specific individual. If he does not, then according to **Chazal**, this statement is weighed as equivalent to idolatry, forbidden sexual relations, and bloodshed. It is understood that one must scrutinize the character of the one who repeats such things.
+
+There is a general distinction here between sharp expressions, insults, and curses directed toward opinions, a party platform, or even a party itself—versus when one is discussing a specific individual.
+
+For example: The Rambam rules (*Hilchos Teshuvah*, Chapter 3, Halacha 7) that one who says [Hashem] is a body and possesses a form is a *min* (heretic). It is obvious that he would not, *chas v'shalom*, apply this label to this or that individual of his time (or before him). On the contrary, he answered their questions, etc. But this is not the place to elaborate.
+
+And if this is the case regarding the rulings of the Rambam, then certainly [it applies to others].
+
+—I heard from my father-in-law, the Rebbe—that between one Jew and another, regardless of the disparity in their stature, one should not say "to distinguish" (i.e., to suggest one is superior to the other).
+
+...At the conclusion of the aforementioned letter, you express fear regarding the path upon which the Chabad movement is being led.
+
+Know that your heart should be secure, for Hashem, who oversees every single one of the children of Yisrael with *hashgacha pratis*—as this is the teaching of the Baal Shem Tov—will save the people of Chabad from the dangers that stand in their path, and will also save them from slander. The Chassidic movement has been tested in such matters since its founding and birth in the days of the Baal Shem Tov and our Rebbe, the Alter Rebbe, and up to these our days.
+
+#### ***Geracht***
+
+**Moreinu HaRav Uriel:** Zimmer.
+
+## 335
+
+B.H., 26 Teves, 5715
+Brooklyn
+
+To the administration and activists of Yeshivas Achei Temimim Lubavitch of the city of Springfield, Mass., and at their head, the esteemed Chossid, G-d-fearing, and diligent worker for the sake of the community, Rabbi Dovid HaLevi Edelman, may he live:
+
+Peace and blessing!
+
+It was with pleasure that I received your letter with the news that on Rosh Chodesh Shevat—which is approaching for us and for all of Israel for good—the annual celebration of Yeshivas Achei Temimim Lubavitch in Springfield, Mass., will take place. I hope that the Jews of Springfield, who love Torah, will properly appreciate the holy avodah being performed by the yeshivah and will participate in the celebration in an appropriate manner, both with their persons and with their funds. Furthermore, they should have an *ayin tovah* regarding others, influencing friends and acquaintances to also participate in the maintenance and expansion of this holy institution.
+
+For if in all times chinuch was the main pillar (*amud*) of the existence of the Jewish people—and as our Sages of blessed memory refer to it, "the work of Heaven"—it is so to an even greater degree in our generation and in this time. When the youth are in need not only of the study and knowledge of Torah, but also of learning the foundations of Yiddishkeit and conducting themselves in the spirit of Torah in their daily lives, the necessity of such an institution, which provides chinuch *al taharas hakodesh*, is all the more critical. It represents a matter upon which the soul depends—the soul of a community of Jews in which the institution performs its work. And we have a promise from our Sages of blessed memory that even while in golus, the heart of Israel is bound to the Holy One, blessed be He, and to His Torah.
+
+I hope that this will be expressed in tangible support, as mentioned, so that the institution may be able to conduct its holy avodah on a greater scale, both in quantity and in quality, in accordance with the demands of the time. And may the merit stand by all those who take part in this, in whatever they are in need of, both materially and spiritually.
+
+With blessings for success.
+
+***
+
+**Rabbi... Edelman:** Another letter to him—above, 369.
+
+## 3131
+
+B"H, 26 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, who toils for the needs of the community,
+Rabbi Gershon and his wife, the Rabbanit Gesia, may she live and be well.
+
+Peace and blessing!
+
+After your long silence, it was pleasant for me to receive your letters from the 20th and 22nd of Teves. It is surprising that you do not mention in detail the farbrengens of the bright day, the 19th of Kislev, the festival of our redemption and the liberation of our souls, and most importantly, the resolutions made regarding practical avodah.
+
+It was pleasant for me to read in your letter about the shiurim being taught in public. It is surprising, however, that these shiurim do not include a study of the halachos required for daily life, the lack of knowledge of which is alarming. Yet, these are the very things that are most necessary, for this is the "whole of man"—to perform the mitzvos of Hashem that must be done, and to refrain from the mitzvos of Hashem that must not be done. The words of the Sages are more stringent and more precious, etc. See also Hilchos Talmud Torah by our Alter Rebbe, 2:9.
+
+May it be the will of Hashem that you merit to influence your surroundings to adopt this study, as mentioned above—starting with the knowledge of the laws, even without the sources and the reasoning. I mean, quite simply, the laws of blessings (berachos), the laws of tefillah, the laws of carrying on Shabbos, etc., etc. If I had the strength, I would institute this study in all educational institutions, starting from kindergartens and ending in yeshivos and kollelim for avreichim. For, to my sorrow and regret, the common denominator among them is a lack of proper attention to these studies. Especially in this generation, where [children] are not influenced by seeing the conduct of the home and the street; on the contrary, etc., and a word to the wise is sufficient.
+
+As you requested, I will mention both of you at an auspicious time at the holy gravesite of my father-in-law, the Rebbe, of blessed memory. May Hashem grant you success in bringing good news regarding all the above, and in physical health—which is also holy, for it is the property of the Ribono shel Olam, and the sons and daughters of Yisrael, in their title as a "holy nation," include the body as well.
+
+With blessing.
+
+P.S.
+
+The statement of our Sages, "Every Torah scholar who engages... in Torah, the Holy One, blessed be He, recites and repeats [it] along with him," is found in Tanna D'bei Eliyahu Rabbah, beginning of Chapter 18, and in Yalkut Shimoni, Eichah, Remez 1034, although there are slight variations in the text.
+
+I am sure you will utilize the upcoming yom hilula of the 10th of Shevat in a manner that is pleasing to the master of the hilula.
+
+## 3232
+
+B"H, 27 Teves, 5715
+Brooklyn
+
+Greetings and blessings!
+
+Following your silence, which remains incomprehensible even now, your letter from Motzaei Shabbos was received, in which you write that you recognize your obligation to take part in the work in the vineyard of Chabad, and you ask how and where to begin, stating that you have no suggestions of your own.
+
+It is understood that in matters such as these, the manner of the work and its nature depend on the conditions of the location.
+
+Consequently, it is surprising that you are asking about this from across the ocean.
+
+It is also surprising that it is necessary to mention and awaken [your attention to] the explanation of my father-in-law, the Rebbe, regarding the precision of the expression of our Sages, of blessed memory: **"engaged"** in Torah, **"engaged"** in mitzvos.
+
+This is like the conduct of a business: a business owner does not sit in a room behind a room, waiting for someone to come and tell him that they are interested in doing business with him. On the contrary, he goes out and searches, search after search, [to see] if perhaps there is someone who is in need of the matters of this business. Furthermore, he speaks to the hearts of those in his surroundings to inform them of the nature of the business and the benefit it holds for them, and so on.
+
+When you take an interest in this in the aforementioned manner—or at the very least, with the same interest you show in your job and your physical livelihood, which only the body benefits from—you will certainly succeed in finding the ways to earn your spiritual livelihood, namely, in the matters of Torah and mitzvos, from which both the body and the soul are in need and derive benefit.
+
+Especially since we are in the days approaching the yahrtzeit on the tenth of the eleventh month, at which time the soul of the one whose yahrtzeit it is ascends from a higher world to a world even higher still. As our Sages, of blessed memory, state, they have no rest, for they go from strength to strength.
+
+Consequently, all those who are connected to him are also drawn into this ascent, provided that they create the vessels for this ascent and strive for it to be revealed in thought, speech, and action. The main thing is in action—for that is the essential point: "Today to do them."
+
+Especially as the years are approaching and coming, of which you will say, etc., these are the days of Moshiach.
+
+(Shabbos 151b; see there in Rashi; Rambam, Hilchos Teshuvah 8:9 and the end of Hilchos Melachim; Avodas HaKodesh, Part 2, Ch. 38; Iggeres HaKodesh, end of Epistle 26, and elsewhere. And this is not the place to elaborate.)
+
+May Hashem grant you the merit to bring good tidings regarding all of the above.
+
+It is understood and simple that all these things apply to every single one of anash, and generally to everyone who has the ability to act, for in this generation, in particular, this is a personal obligation.
+
+With blessings for good tidings in all the above.
+
+## 3133
+
+B”H, 27 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, G-d-fearing and learned, engaged in communal needs, R’ Yitzchok, may he live:
+
+Greetings and blessings!
+
+Your letter of 23 Kislev was received in due time, in which you also write regarding the farbrengen of the auspicious day of 19 Kislev, albeit briefly. Surely, the hisorerus and the good resolutions from this Rosh Hashanah of Chassidus will continue into your daily life throughout the entire year.
+
+Enclosed is an excerpt from a letter of mine to someone else, which is truly relevant to every one of anash, may they live.
+
+With blessings, and awaiting good tidings,
+
+**M. Schneerson**
+
+Regarding your observation concerning the "sinners and rebels" whose nefesh, ruach, and neshamah draw sustenance from the "back" of the nefesh, ruach, and neshamah of the Torah scholars (Tanya, end of Chapter 2), and how this aligns with what is written there at the end of Chapter 6 and in Iggeres HaKodesh, Chapter 6, that they are from the sitra achra and kelipas nogah, etc.—your difficulty is not understood. For if so, the difficulty would apply not only to the sinners, but in general.
+
+For it is by the word of Hashem that a Jewish person lives, through bread, and how does this align with what is stated in Tanya, Chapter 2, that it is from the nefesh, ruach, and neshamah of the leaders of the Jewish people?
+
+Rather, these two matters do not touch one another. Just as there is no connection or contradiction between the fact that the foot receives vitality from the blood (which is the nefesh) produced by food and drink, and the fact that the foot’s vitality comes from the neshamah in the head. And this is not a matter of two souls, for indeed, this is the case even among the nations of the world.
+
+***
+
+**R’ Yitzchok:** Dubov. Additional letters to him — see above 3131, and the references in the notes there.
+
+## Gerald
+
+B"H, 27 Teves, 5715
+Brooklyn
+
+Mrs. Rivka, may she live,
+
+Blessings and peace!
+
+I was pleased to receive your letter, in which you write about the highly important matter of organizing young women to gather at set times to learn and discuss matters of Yiddishkeit, and in particular the *dinim* of our holy Torah and the *minhagei Yisrael*. The necessity for this is beyond measure, especially when speaking to young women who are just beginning to establish their homes, for upon that establishment depends the future of a *dor yesharim yevorach*.
+
+I was pleased by the caution you exercised in assuring them that this is not a political matter, nor an organization for collecting money—which, unfortunately, here in America has become a "golden calf," *r"l*. This is something that frightens away and pushes off many people with whom it is highly important and valuable to work. I hope that you will act in this with the proper energy, and it will surely be crowned with success.
+
+Enclosed is a copy of a letter of mine to the branches of Agudas N'shei U'Bnos Chabad. Although your group is still in the beginning stages of organization, you may read it—and see the truth of it—as a letter sent to your friends who are members of the N'shei U'Bnos Chabad organization. At the same time, please convey my greetings and *brachos* for success to all those who are already participating, as well as to those who will join in the future to do the will of Hashem Yisbarach to strengthen and spread Yiddishkeit. May Hashem Yisbarach fulfill their needs regarding themselves and their families.
+
+It is certainly unnecessary to point out that the main goal must be to ensure that one observes the *mitzvos maasiyos* regarding daily life, *ki zeh kol ha'adam*. Although with certain people one must bring this about through diplomatic means and through various *hakdamos* and *hachanos*, the preparation must not swallow up the main thing.
+
+With blessings for success,
+
+P.S. Regarding your question as to whether you should belong to a political association of young women: in my opinion, you should not, for I see no benefit in it, and it will certainly cause harm to your work. For whatever association it may be, there are always a certain number of people who are not satisfied. However, this does not rule out—if there is ever a necessity or a benefit **larabim**—attending their meeting occasionally as a guest.
+
+#### ***Gerald***
+
+**Mrs. Rivka, may she live:** Sharfstein.
+
+## 345
+
+B"H, 27 Teves, 5715
+Brooklyn.
+
+To the esteemed Rabbi, the G-d-fearing, learned, and distinguished, who engages in the needs of the community,
+Rabbi Dov Aryeh, may he live.
+
+Peace and blessing!
+
+I received your letter of 3 Va'eira with pleasure, and I enjoyed reading your correct assessment of the work of my revered father-in-law, the Rebbe, of blessed memory, and his influence in this country. Certainly, as in all matters of the Jewish people, where the halachic ruling is that "it is not the study that is the essential thing, but the deed," this assessment will lead to and bring about good actions by you in your environment and among those you influence in general. As is well known, the saying of our Rebbe, the Alter Rebbe—who was the authority on the hidden aspects of Torah and the author of the Shulchan Aruch, the authority on the revealed aspects of Torah—is that the title "Rabbi" means *mara d'asra* (master of the place), and the matter does not depart from its literal meaning: that he is the "master of the house" in all matters of the locale, end quote.
+
+It is clear that in this country, too, it must be in such a manner, even if the outward garb and form of the activity change according to the conditions of the place and time—the apparent rule of the presidents and the like—for the Torah and its matters are eternal in all places and at all times. And since Hashem does not deal unjustly with His creatures, He grants everyone, and especially a person who holds a position of authority in Israel, such as a Rabbi, the strength to act in the desired direction.
+
+May it be Hashem’s will that for many more years you continue to add in your environment the "candle of a mitzvah and the Torah of light," and the "light of the Torah"—which is the inner dimension of the Torah.
+
+With blessing.
+
+## Jero
+
+B"H, 27 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from 4 Shemos, I will read it at an auspicious time at the holy resting place of my father-in-law, the Rebbe, of blessed memory. May it be the will of Hashem that the requests of your heart and the heart of your wife—may they live—be fulfilled for the good, speedily, and even beyond what you have written. May Hashem also expand your livelihood, that it may be with tranquility and honor.
+
+Regarding what you wrote about one of your employees being a person of loose morals, etc.—you should speak with him gently and awaken the point of Yiddishkeit within him. As our Sages have advised, it is said of every member of Bnei Yisrael: "I am asleep in exile, yet my heart is awake" to Hashem, His Torah, and His mitzvos. The explanation of my father-in-law, the Rebbe, on this is already well-known: the difference lies only in whether the well of living waters is found near the surface or at a greater depth, but it is certain that it is there. When one digs as much as is necessary, it will be brought forth from concealment into revelation and into action. May Hashem grant you success in bringing good news regarding all of the above.
+
+With blessings.
+
+## Jersey
+
+B"H, 29 Teves, 5715
+Brooklyn, N.Y.
+
+Mr. Moshe Yaari
+
+Shalom u’Bracha!
+
+I received with pleasure your letter of 15 Kislev, along with the gift of the book *Shluchei Eretz Yisrael*. This strengthens my hope that you also remember the content of our conversation regarding other matters. After all, words that come from the heart cannot fail to have their effect—be it a little, or (better yet) a great deal—at the very least, over the course of time. This would be my reward: that in addition to the benefit for the many that will result from this—since Hashem has granted success to the influence upon which the fate of the many depends to a significant degree—you will also find personal satisfaction in the influence of material good, or even spiritual good, that you have caused or that has been brought about through you.
+
+I see a good beginning in this, based on the letter I received recently from our Yeshiva in Lod, regarding your visit there, which was a visit made with a generous eye (*ayin yafah*). And as with every living thing, where the sign of life is growth and development, my hope is that this feeling, too, will grow and develop for the benefit of the many.
+
+Since you do not mention anything regarding your health, I wish to hope that it is in order.
+
+May it be the will of Hashem that none of us be distracted by the needs of the body from the service of the soul and the fulfillment of its mission.
+
+With blessings for success and health.
+
+Since, when you were here, you conveyed regards from Mrs. Samonov, please be so kind as to act as a messenger to convey regards to her on my behalf. Thank you in advance.
+
+It is understood that upon receiving the book, I looked through the chapter that discusses the history of the Aliyah of the Chassidim, and in particular the Aliyah of the Chassidim who were followers of our Rabbeinu HaZaken, the Baal HaTanya. It is a pity that your brother was influenced by the writings of those who opposed Rabbeinu HaZaken in the dispute with the Rav of Kalisk. For even though he also includes the content of a letter from Rabbeinu HaZaken, the impression remains that he justifies those who opposed him—despite the fact that, aside from the fact that the intellect cannot accept the accusations against Rabbeinu HaZaken in such matters, there is also a letter from a third, neutral party, the Rav R' Levi Yitzchak of Berditchev, which has been published in several places and which gives full justification to Rabbeinu HaZaken; yet, for the time being, I did not even find it mentioned in your brother's book.
+
+By the way, it is written there that the passing of the Rav R' Menachem Mendel of Horodok took place on the second day of Rosh Chodesh Sivan, and this is repeated in a second place in the book. This is incorrect, as he passed away on the second day of Rosh Chodesh Iyar. And it is well known that Rosh Chodesh Sivan is always only one day.
+
+#### ***Jersey***
+
+**The book *Shluchei Eretz Yisrael*:** By his brother, Avraham Yaari.
+
+## 3238
+
+B"H, 29 Teves, 5715
+Brooklyn
+
+To the Honorable Rabbi, the G-d-fearing, learned, and distinguished scholar, engaged in communal needs, Moreinu HaRav Dov, may he live:
+
+Peace and blessing!
+
+In response to your letter: I hereby acknowledge receipt of your letter, as well as the book *Divrei Chefetz*. Regarding why I did not offer comments on the book: since it is already printed, it seemingly is not of much consequence at the time of receipt. Furthermore, as the opportunity passed due to the ever-increasing pressures of work, I let it be. Nevertheless, since you also mentioned the book in your letter, out of respect—and in accordance with our Sages’ teaching that "a crumb of Torah is precious"—I have provided a few notes on two or three points. May Hashem fulfill your request and "grant our portion in Your Torah." This is especially relevant to you, as you have been appointed from Above to serve in a rabbinic position, to determine *halacha l’maaseh*. As is known from our Sages (Bava Basra 100b), one is not appointed [to a position of authority] until he can state the *halacha l’maaseh*.
+
+With respect and blessing.
+
+**Point 1.** It is possible to suggest that the Bavli (and certainly the Yerushalmi) holds that the blessing for *mitzvos* (positive commandments) is *min HaTorah*. It is highly surprising to say otherwise, even if one wishes to explain it differently, as it contradicts what is **explicit** in the Rishonim, etc. (See Rambam, *Hilchos Berachos* 1:1: "And it is from the words of the Scribes... and just as... so too do we bless over every *mitzvah*." And in his *Responsa*: **It is well-known** that every blessing over a *mitzvah* that is *d’rabbanan* is [as he explains there]. See *Chinuch*, *mitzvah* 431. All those who hold that the blessing on Torah study is *d’rabbanan*, even though it is a *mitzvah*. See also the Rishonim who explain the reason why a blessing was not instituted for many *mitzvos*, and more.)
+
+The *Tzofnas Paneach* on the Rambam, beginning of *Hilchos Berachos*, has already pointed out several places where "it is somewhat implied" that the blessing for *mitzvos* is *min HaTorah*. The gates of interpretation are not locked; see *Sdei Chemed*, *Kelalim* (2, 6), where he resolves most, if not all, of these points.
+
+However, the *Zohar*, *Parshas Eikev*, writes that even a blessing of enjoyment (*birchas hanehenin*) is *min HaTorah*, and it disagrees with the Gemara on this. See *Remez* on the *Zohar* there. One should also note the Yerushalmi, *Avodah Zarah* 1:6.
+
+**Point 10.** Regarding the reasoning of R’ Shimon Shkop: see the collection of Rishonim on this, brought in the *Chiddushei Tzemach Tzedek* to *Kesuvos* 2:9. See *Tzofnas Paneach* to Rambam, *Hilchos Yesodei HaTorah* 5:6, and in his *Mahadura Tinyana* there at greater length.
+
+**Ibid.** Regarding an *issur d’rabbanan* committed unintentionally (*shogeg*) not requiring atonement (*Nesivos*, *Choshen Mishpat* 234; and in *Responsa Minchas Elazar*, Vol. 3, in the *Tanya* indices, which cites the Yerushalmi, *Eruvin* 2:8, in support): see *Responsa Ein Yitzchak*, *Even HaEzer*, end of section 7; *Oisvos D’Oraysa*, *Kelal* 10; and *Beis HaOtzar*, *Kelal* 122, which contains several proofs to the contrary. The words of our Rebbe in *Tanya*, beginning of Chapter 8, are understood simply.
+
+**At the end of the book, page 70.** See *Oisvos D’Oraysa*, *Kelal* 3.
+
+Regarding your question on what is explained in many places—that the ascent in the Time to Come is specifically through the descent into this world and the fulfillment of Torah and *mitzvos* within it—you cited the statement in *Sanhedrin* (110b) that one attains the World to Come from the moment of birth, implying that the descent into this world alone is sufficient.
+
+Actually, you should have raised a stronger objection from the statement there: "from the moment of conception," even if he was later miscarried and was not born (Rashi; and see there 91b: "from the moment of *pekida*").
+
+Now, if one were to explain that "attaining the World to Come" is a matter of ascent and reward, it remains difficult: for what does he deserve reward? One must conclude as written in *Iyun Yaakov* on the *Ein Yaakov* there, that a father merits for the son, and the like. If so, your aforementioned question is also resolved.
+
+## Gerlat
+
+B"H, 29 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I have received your note with the enclosure, which has been handed over to the *Lishkas Chashaim* (the secret chamber), *hasamui min ha'ayin* (hidden from the eye). This means that from this fund, help is provided to people and causes for whom it is not consistent with their dignity to request assistance publicly. It is well known that that which is *samui min ha'ayin* (hidden from the eye) is protected from the "evil eye." May this also stand by you, that Hashem should grant you His blessings *b'ayin yafah* (with a generous eye) and also protect you from an "evil eye." As we say, "May Hashem bless you and keep you" (*Yevarechicha Hashem v'yishmerecha*), the *Midrash* of our Sages explains that the Holy One, blessed be He, does not only grant the blessing, but there is also *v'yishmerecha*—that He, blessed be He, ensures that those who receive the blessing should utilize it in a good and joyful manner.
+
+It is surely unnecessary to draw your attention to the fact that one must also set aside *tzedakah* from one’s profits—*maaser* (10%)—and as is well known, one should not be overly precise with *tzedakah*; consequently, it should be somewhat more than ten percent. This also brings an *tosefes brachah* (an added blessing) in the merit of "tithe so that you may become wealthy" (*aser bishvil shetis'asher*).
+
+Certainly, you participated in the *farbrengen* of the *yom habahir* 19 Kislev, and you will also participate in the *farbrengen* of the *yom hahilula* of my revered father-in-law, the Rebbe, *ztzukulleh"h, nbg"m, zi"a*, this coming 10 Shevat, which is approaching us and all of Israel for good. May Hashem grant you all success.
+
+With blessings for success.
+
+## 340
+
+B"H, 29 Teves, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...It is surprising that you do not mention your conversations and your influence upon your neighbors, as I have written to you and urged you regarding this several times. Surely you are doing so, and there is a chazakah [presumption] that propaganda [outreach] does not return empty, and consequently, there will certainly be fruits from this. The magnitude of the merit of "extracting the precious from the vile" has already been stated in the words of our Sages in many places, and a person eats of their fruits in this world through the improvement of health and in general with all that is needed, both materially and spiritually. Since the yom hilula of the tenth of Shevat is approaching, you will surely find the appropriate words to explain to your neighbors the holy avodah of my revered father-in-law, the Rebbe, which he labored in during his lifetime in this world. One of its foundations is ahavas Yisrael, which naturally led to bringing Jews from various circles closer to the Source of life and good, who is Hashem our G-d, according to the paths He taught us in His Torah, the Torah of life. May Hashem grant you success in this as well.
+
+With blessings to hear good news regarding the improvement of your health very soon, and in all the aforementioned.
+
+## Jerma
+
+B"H, 29 Teves, 5715
+Brooklyn
+
+To the Administration of Tzeirei Agudas Chabad in Eretz Yisrael, may it be rebuilt and established,
+Tel Aviv Branch
+May they live
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your letter dated 9 Teves, along with the enclosures. I was pleased to read what you wrote, albeit briefly, regarding your activities during the month of Kislev, and in particular on the auspicious day of 19 Kislev, the festival of our liberation and the redemption of our souls. I look forward to the continuation of the report as you mention in your letter. May it be the will of Hashem that the good resolutions that were adopted will be continued in practice, for "the deed is the essential thing," even if it is not explicitly mentioned—surely one of these resolutions is that the activities initiated during the 19 Kislev gatherings will be continued thereafter.
+
+I was pleased to read that you will finally make an effort for the publication to receive an official license. Since I do not know the nature of the efforts being made in this regard—if it falls under the category of "a light for one is a light for a hundred"—you should also include in your efforts the publication of the *shmuessen* in Eretz Yisrael. It is my hope that you will finally begin the publication, even though the back-and-forth regarding this has been going on for several months (although it seems from the letter of the esteemed Chossid R' A. Paris that obstacles and delays arise from time to time, but it has already been said, "He sets an end to darkness," and consequently, the obstacles and delays in Eretz Yisrael to the spreading of the *maayanos* outward also have a limit). May it be the will of Hashem that this happens as soon as possible.
+
+In the report, you only mention Ra'anana. I believe that the institution of Dr. Zimmerman, who visited here, is located there, and there is also a person there by the name of Mr. Epstein who was here during Shemini Atzeres and Simchas Torah—it would be worthwhile to visit them the next time you are there. This fostering of rapport will surely lead to good results.
+
+It is surprising that regarding the *Reshet* institution, you only mention Kfar Saba; perhaps this is merely an omission in writing and not in practice.
+
+The letter from Bat Yam has not yet been received. May Hashem grant you success in your holy work, beyond the natural order, and may this success bring with it an increase in will and energy appropriate to the demands of the hour.
+
+With blessing and regards to all those who seek your welfare.
+
+***
+
+**Jerma**
+
+From a copy.
+
+**That the publication receive an official license:** Until then, it was marked as "internal." See also above, letter 3,159.
+
+**The *shmuessen* in Eretz Yisrael:** See above, Vol. 9, letters 2,826, 2,834.
+
+## 3242
+
+B"H, 29 Teves, 5715
+Brooklyn.
+
+To my dear friend, the distinguished Chossid, G-d-fearing, and learned man, engaged in communal needs,
+R' Azriel Zelig, may he live.
+
+Peace and blessing!
+
+It is surprising that until now, there has been no initiative in the Holy City of Jerusalem—may it be rebuilt and established—to organize N'shei U'Bnos Chabad in an appropriate manner. I have already spoken of this on several occasions and in several letters: in such matters, when one writes "Chabad," one should not be overly precise or restrictive, G-d forbid. On the contrary, one should draw as many people as possible into this circle, especially since, in the end, the prophecy will be fulfilled: "The earth shall be full of the **knowledge** of Hashem," which is the specific mission of the teachings of Chassidus Chabad.
+
+Since there is a time for everything, it is worthwhile to stir this up and take advantage of the opportunity of the upcoming Yahrtzeit of 10 Shevat (or the day before or after, as is suitable for local conditions). On the day of the Yahrtzeit, the *Baal HaHilula* ascends to a higher world, and all those who are connected to him and follow in his footsteps are, by definition, elevated as well. May it be the will of Hashem that this be felt openly and in the heart, or at the very least, understood by the mind.
+
+Since I do not know upon whom to place the responsibility for initiating this, and surely the conditions in the Holy City of Jerusalem are different than in other places in the Holy Land—may it be rebuilt and established—I am writing to you about this. Please consult with those you deem appropriate for such a matter, and may the will of Hashem succeed through your hands to bring this from potential into action, speedily and expansively.
+
+Enclosed is the general letter to the branches of the N'shei U'Bnos Chabad organization, which you may publicize in an appropriate manner.
+
+I await good news and send blessings for success in general, and in the above in particular.
+
+***
+
+**3242**
+
+**R' Azriel Zelig:** Slonim. Additional letters to him appear above, 3195, and in the notes referenced there.
+
+**The general letter:** See the following letter.
+
+## 3243
+
+B"H, Rosh Chodesh Shevat, 5715
+Brooklyn, N.Y.
+
+Agudas N'shei U'Bnos Chabad
+Branch...
+May Hashem grant them life
+
+Blessings and peace!
+
+In connection with the yahrtzeit, the day of the Hillula, of my father-in-law, the Rebbe, of blessed memory, **the tenth of Shevat**, which is approaching for us and for all of Israel for good, I am turning to you with the following proposal:
+
+I am certain that it is unnecessary to elaborate on the *sha'as hakochar* (opportune time) and *eis ratzon* (time of favor) that this day represents for all *anash* and Chassidim, which, naturally, includes N'shei U'Bnos Chabad.
+
+The hopes and aspirations of my father-in-law, the Rebbe, are well known: that N'shei U'Bnos Chabad should take an active part in the work of strengthening and expanding the Chassidic way of life and Chassidic education—both within one's own home and in the entire surrounding environment.
+
+This was also one of the primary reasons why, many years ago, he began to publish *sichos* and *Likutei Diburim* specifically in Yiddish, as they contain knowledge, guidance, and *hanhagos* (conduct) for N'shei U'Bnos Chabad as well—matters that are fundamental to a Chassidic life in particular, and to a Jewish life in general.
+
+The words of the *tzaddikim* are alive and endure forever.
+
+Since this was his aspiration and hope, it continues to have an effect even now; when one prepares the appropriate *tzinoros* (channels) and *keilim* (vessels), special *hatzlacha* (success) is granted from Above so that the work may be met with great success.
+
+Therefore, I propose:
+
+On the day of the Hillula—Asara B'Shevat—(or on an appropriate day close to that date), all the members of your branch should gather.
+
+- You should also invite women who are not members, but to whom Yiddishkeit is close and dear.
+
+You should study for those gathered appropriate passages from the writings and *sichos* of my father-in-law, the Rebbe, and also share stories of his life and his *mesiras nefesh* for Yiddishkeit, Torah, and *mitzvos*. This should be utilized to assist in the primary goal of this gathering:
+
+An increase in *hisorerus* (inspiration) and effort in the work of Agudas N'shei U'Bnos Chabad across the various areas of strengthening Yiddishkeit in general, and the dissemination of Chassidus, its guidance, and its customs in particular. And especially in those matters that concern N'shei U'Bnos Chabad specifically, regarding which much has already been written on several occasions.
+
+May the *Ribono shel Olam* help that all good *hachlatos* (resolutions) should be translated into *b'po'al*—into actual deeds—and that this should be without difficulties and with much *hatzlacha*.
+
+With blessings, awaiting good news,
+
+**M. Schneerson**
+
+#### ***3243***
+
+Printed in *Likkutei Sichos*, Vol. 11, p. 226.
+
+## 3,144
+
+B"H, 1 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I acknowledge receipt of your letter from the 15th of Teves. I was pleased to read that the matter of the apartment has been settled in some way, and most importantly, what you wrote regarding setting a date for the wedding in a good and auspicious hour. For in all times, and especially in our generation, the Sages do not approve of a long delay before the wedding—especially when the reason for this is that the financial outlook for one’s livelihood is not one hundred percent satisfactory. This is despite the ruling of our Sages that a person does not know in what way he will earn his living; see *Iggeres HaKodesh* by the Alter Rebbe, beginning of Chapter 22, "They were all made equal."
+
+Regarding what you wrote about the way to **receive an *is'arusa d'lesata*** (an arousal from below): the words are contradictory from beginning to end, for an *is'arusa d'lesata* must come from *letata* (from below)—that is its very nature—and not be received from above. The path for this is the well-trodden path of the many, and even more so—**the path** known with the addition of the letter *hei* to the word *lev* (heart) (*Bava Basra* 102a). As the Alter Rebbe says, the essence of *teshuvah* is in the heart. This is explained in many places, especially in the Chassidic texts: in *Iggeres HaTeshuvah* by the Alter Rebbe, in *Derech HaChaim* by our Rebbe the Mitteler Rebbe, and in *Mitzvas HaTeshuvah*—printed in the book *Derech Mitzvosecha*—by the Tzemach Tzedek, and so on.
+
+It is surely unnecessary to remind you of the *yom hilula* of my revered father-in-law, the Rebbe, of blessed memory, on the tenth day of the eleventh month, may it come upon us for good. The significance of a *yahrtzeit*, especially that of a *Nasi* of Israel, is explained in the *Iggeres HaKodesh* of the Alter Rebbe, Chapter 27, and its explanation in the *Siddur* in the *Shaar* for Lag B'Omer, and elsewhere. I am certain you will utilize this opportune time for all the above.
+
+As you requested, I will mention you and all those you wrote about at the holy resting place of the *Baal HaHilula*. May it be His will that it result in success in both material and spiritual matters alike.
+
+With blessings to focus on *halacha l'maaseh* (practical application) in daily life, especially since many depend on you.
+
+#### ***3,144***
+
+**Regarding a long delay:** See also above, Letter 2,973, and the references in the notes there.
+
+## G'ermah
+
+B"H, 2 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+Regarding what you wrote concerning the organization of N'shei u'Bnos Chabad: It is high time that you arrange a detailed program for the coming months, both in matters of study and in matters of *avodah*. There is certainly plenty of material from which to choose in both categories; what is needed is for some of them to dedicate themselves and work on this with the appropriate energy. Likewise, all those who have influence over the women and girls should do everything in their power in this regard, and they will surely see good fruit from their labor...
+
+Regarding what you wrote, that people came to him with a complaint about why 19 Kislev is called the *Rosh Hashanah* for Chassidus: He should examine this at length in the introduction to *Kuntres Uma'ayan*, where it is also brought down what the **leaders** of the *misnagdim* of the previous generation said—those of this generation have not reached their ankles.
+
+Similarly, regarding what they came to him with a complaint about why we call our *Rabbeinu HaZaken* "our first father": I did not understand the difficulty here at all. It is brought down **in many places** in the words of our Sages that a student calls his teacher "my father," and it is **explicitly** written, "My father, my father, the chariot of Israel and its horsemen," even though he was not his father in a physical sense. Consequently, it is also understood that the first in this study should be called by the name "our first father," especially when speaking of a *Nasi* in Israel, whose *Shulchan Aruch* is accepted by the entire world as the final authority. A *Nasi* of Israel is called a father **to the generations**, as our Sages of blessed memory state at the end of the fifth chapter of *Nedarim* in the *Yerushalmi*. If the one raising the question is unaware of the *Yerushalmi*, he should not be raising questions about our holy *Rabbeinu Nesi'einu*.
+
+Regarding what you wrote about traveling: The time is not at all appropriate for this, at a moment when in *Eretz Yisrael* (may it be rebuilt and established) there is so much *avodah*, and they have only begun a small fraction of it. Every day that passes is a loss that cannot be recovered, especially regarding the dissemination of Chassidic texts, and primarily the dissemination of the guidance and customs—in which, as it appears, they have not yet begun as they should...
+
+In any event, from the day of the *Hilula* and onwards, may a special *hisorerus* be drawn into each and every one of *anash*, and may they continue it throughout the days, weeks, and months ahead.
+
+With blessings.
+
+## Jeremo
+
+B"H, 2 Shevat, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished individual, occupied with communal needs, etc.,
+R' Yosef, may he live, known as Dr. Burg,
+
+Peace and blessing!
+
+I received your letter in due time, along with the copy of the legal opinion regarding the bonds and the concern of *ribis*. Surely, for someone like yourself, it is unnecessary to explain how flimsy the *heter* in this opinion is, especially when it is a matter that can easily be permitted by the addition of two words: *heter iska*. It is understood that I do not suspect him at all, since there are several rabbis who wish to adopt the leniencies of Beis Shammai and the leniencies of Beis Hillel.
+
+#### ***Jeremo***
+
+**Dr. Burg:** Another letter to him — see above, 3-159.
+
+## 376
+
+B"H, 2 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 26 Teves: Regarding what you write about your situation in avodah and your past, it is well known what the Torah tells us—that Hashem has given everyone the kochos that are sufficient to engage with their yetzer hara and emerge victorious over it. One only needs to be certain within oneself that it cannot be otherwise, and that one does this with the help of Hashem, not with one’s own strength. When that is the case, the battle with it becomes easier, and one is victorious.
+
+It goes without saying that for everything one must have Siyata Dishmaya, and in this matter as well. Therefore, you must see to it that you keep the *shloshes hashiurim* (the three daily study portions) that are equal for every soul, as established by my father-in-law, the Rebbe, ztzkllh"h, nbgm, zy"a—in Chumash, Tehillim, and Tanya, as is well known. You should also give a few coins to tzedakah every weekday before davening. May Hashem help you to stop listening to the incitement of the **yetzer hara**, which tells you, "You have a lowly past and your present is not up to par; therefore, you will not be able to stand firm anyway." All of this is part of the **lies** of the "old and foolish king," who cannot stand his ground in battle against a Yid, and especially against a Chassid.
+
+A blessing from Hashem requires and can only be contained within a conduct of peace, for that is the vessel that holds the blessing of the Ribono shel Olam. Therefore, you must strive with **all** your strength to ensure that there is shalom bayis in your home. Even if it seems to you that you are in the right—and even if that is indeed the case—you must carry things out through "ways of pleasantness and ways of peace." This is the obligation of a Yid, and especially of a Chassid, to be *maavir al midosav* (forbearing), for then one sees success in everything.
+
+May Hashem bless you and your wife, tichyeh, and may He fulfill the days of her pregnancy properly and with ease, and may she give birth to a healthy child at the proper time and with ease.
+
+With blessings, awaiting good news.
+
+## 3440
+
+B"H, 2 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from the day of the Hillula of the Alter Rebbe, regarding what you write—that at times you feel afraid and it also seems to you that you have a heart ailment: In my opinion, both matters are products of imagination. Consequently, you should check your tefillin, the mezuzos in your apartment or at least in your room, and also check your tallis katan every day. Be strong in your trust in Hashem, who oversees each and every person with Divine Providence, that He stands over him, etc. It would be very good to memorize the beginning of Chapter 41 in the Tanya Kadisha, at least up to the words "before the King" (page 52b).
+
+Surely you are keeping the three daily study portions established for every person by my father-in-law, the Rebbe, of blessed memory—in Chumash, Tehillim, and the well-known Tanya—and are taking part in the activities of Tzeirei Agudas Chabad and in Chassidic farbrengens. All of this nullifies the concealments that exist in reality, as well as matters such as those you mentioned, which have no basis in reality.
+
+With blessings for good tidings in all of the above.
+
+## 3140
+
+B"H, 3 Shevat, 5715
+Brooklyn
+
+To the Administration of Agudas Chabad in the Holy Land, may it be rebuilt speedily,
+To those upon whom may they live,
+
+Peace and Blessing!
+
+I hereby acknowledge receipt of your letter dated 18 Teves, along with its enclosure. I trust that in the meantime, my previous letter has also been received. Regarding what you write concerning *semichah*—that there are qualified candidates, but the matter does not reach fruition because it is in the hands of a political party—it is surprising that you are unaware that in the Holy Land, may it be rebuilt, there are those serving in such rabbinical positions who have no affiliation with the Mizrachi or Hapoel Hamizrachi parties or the like, especially in positions outside of the large towns.
+
+And although the work should be concentrated on building Chabad shuls, villages, and the like, I do not understand your intent in this. If this is truly your opinion—that until another village is built, one should not act or hope for even one more Chabad rabbi, or at the very least, one more Chabad shul—then, obviously, I have no response to such a premise. And if this is not your reasoning, but rather merely a rhetorical flourish or the like, then it is understood that it is not worth responding to. It would be to your benefit to examine the monthly journal *Kol Torah* from time to time, where the names of the newly, officially approved rabbis are published.
+
+In addition to these, there are several others who are leading in practice, even if they have not yet been officially approved...
+
+The *yom hilula*, 10 Shevat, is approaching. As is known in every place, with every *yahrzeit*, the soul ascends to a higher world, which naturally means that the capacity for this is granted to all those who are connected to him. However, it is simple that their *bechirah chofshis* (free choice) is not denied them—for this is the characteristic of a Jewish person, because he is rooted in the *Atzmus* (Essence), where only there is *bechirah chofshis* truly possible—and therefore, it is possible that they will utilize this capacity, or not.
+
+It is also known what the *Baal HaHilula* said and how he lived his life; his motto was, "Great is the deed." As he conducted himself, he invested his energy and the powers of his soul into concrete actions, in founding institutions, maintaining them, and spreading them, etc., etc. For several years now, I have been trying in every way—through persuasion, through requests—that Chabad Chassidim in the Holy Land should begin to work and act in a manner appropriate, at least in some small measure, to the will of the *Baal HaHilula*, in various circles and in various ways...
+
+May it be the will of Hashem that the merit of the *Baal HaHilula* should stand for the *Baal HaHilula*—that his will be fulfilled in the matters to which he dedicated his life, some of which are in the Holy Land, may it be rebuilt speedily—that the *maayanos* (wellsprings) spread outward, and that the hand of the Chassidim be on top, as per the known *psak din* (printed at the end of page 122 in the book *Kitzurim VeHe'aros LeTanya*).
+
+With respect and blessing,
+
+**M. Schneerson**
+
+## 3,250
+
+B"H, 4 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...Regarding what you wrote, that there was wonderment concerning the phrasing used by our holy Rebbes regarding 19 Kislev, writing *Kesivah V'chasimah Tovah*—it is surprising that *bnei Torah* would raise such a question. After all, it is explained in the Mishnah at the beginning of *Rosh Hashanah* that there are four "New Years," and in the *Gemara* there and in the Mishnah at the end of Chapter 8 of *Gittin* that we count years for kings—even for the kings of the nations of the world, and certainly for the kings of Israel—and every year we celebrate the day of their coronation. Since this day is also called in our Torah—which is precise in every detail—by the name *Rosh Hashanah*, it is understood that the explanation for this applies here as well: just as the head includes all the limbs, so too does this day include, in this regard, all the days that follow until the cycle of the year is complete.
+
+And since everything exists first in writing and is subsequently sealed, as is brought in the *Gemara* in several places, it is therefore understood, even according to the *nigleh* (the revealed dimension of Torah), that the day of 19 Kislev is a *Rosh Hashanah* for Chassidim who conduct themselves according to the teachings of Chassidus, who emerged victorious at that time.
+
+It is understood that all of this is only according to the *nigleh* (not to mention the inner content of these matters, which are explained according to the *pnimiyus* of the Torah), and in the manner of the language of the Alter Rebbe, "the revealed things belong to us and to our children" (*Iggeres HaKodesh*, end of Epistle 25), to believe with complete faith that our holy Nasi, of blessed memory, who bound and unified the *nigleh* of Torah and the *nistar* of Torah to be one Torah, and according to them led their congregation, their children, and their children's children—certainly their practices are precise both according to the *nistar* of the Torah and according to the *nigleh* of the Torah...
+
+With blessings for the above.
+
+## 3rd of Shevat
+
+B"H, 4th of Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letters in which you write suggestions regarding the work of Tzeirei Agudas Chabad in particular, and in the vineyard of Chabad in general: It is understood that in such matters, the work must be done with enthusiasm. Although at its inception—as with all matters of Torah and mitzvos—it must begin with kabbalas ol, this is only the beginning and the foundation; afterwards, it must be done specifically with revealed taanug. Therefore, even regarding the suggestions in your letter, which are correct, they must come through an *is'arusa d'lesata* from those who will be the ones to bring the work into action. Then, I hope there will be no need at all for the matter of kabbalas ol.
+
+According to our Sages' teaching, "A person prefers his own *kav* over nine *kavim* of his fellow," and although I do not know if my letter will arrive before the day of the Hilula, the intent of the hisorerus during an *eis ratzon* is that it should be drawn down over the entire year. Consequently, it will strengthen the aforementioned after some time, and surely it will be successful. Since, as you write in your letter, you are grateful and praise Hashem for—in your words—having magnified and wondrously shown His kindness to you by bringing you close to Chassidus, etc., you will surely strive with all your ability to make the above possible for all those with whom you come into contact. This is in accordance with the requirement of the act of tzedakah, which must be done with a "good eye" toward the possessions of others, and specifically and especially since regarding this it is said, "Hashem illuminates the eyes of both."
+
+I was particularly pleased that you have begun to review *maamarim* of Chassidus in the beis medrash. Although there may be some obstacles and delays in this, I hope that with pleasant words you will remove them; ultimately, there is a strength to *ta'amulah* (propaganda/outreach) that does not return empty.
+
+Surely you have also seen the copy of my general letter to the N'shei U'Bnos Chabad, and I am certain you will utilize it in the appropriate manner.
+
+I look forward to hearing good news regarding the practical work in the above matters.
+
+With blessings for the appropriate hisorerus on the day of the Hilula of our holy Nasi, my revered father-in-law, the Rebbe, and to draw this hisorerus down over the entire year.
+
+## 352
+
+B"H, 4 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 22 Teves, in which you write regarding [Name]—may he live—that his teachers are not satisfied with his diligence in his studies, as he prefers playing to learning, especially regarding secular studies.
+
+It is generally common among youth to prioritize play over study, even at an age older than his, and therefore one should not be overly concerned by this. Although, naturally, one must influence him through pleasant means—the main thing being through competition and comparison with peers of his age who are more diligent. It would also be worthwhile to reduce the hours he spends on secular studies, if it is impossible to eliminate this study for him entirely. For it is possible that this is a hint that he does not want secular studies (even if, for the time being, he does not understand the inner aspect of this), and in a natural way, this will also influence his diligence in holy studies.
+
+I hope it is unnecessary to remind you of the great merit you have in being involved in proper chinuch, which brings the hearts of the children of Yisrael closer to our Father in Heaven, and in accordance with this, the responsibility that comes with it. Surely, you have been given the strength to fulfill this role completely, and it depends only on the will. Our Father in Heaven, who says of each and every one of the children of Yisrael, "You are children to Hashem your G-d," is guaranteed to bestow His blessing that you will succeed in this work, and that success will also be drawn down into your private matters and those of your family—may they live.
+
+With blessings.
+
+## 3253
+
+B.H., 4 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, etc., R' Chaim Moshe, may he live.
+
+Peace and blessing!
+
+In response to your letter of 22 Teves, I was pleased by its content regarding the farbrengens, and especially that the number of participants is increasing, including those from circles that are, for the time being, still on the outside. They will surely gain strength in this, and may Hashem grant them success...
+
+Regarding what you wrote concerning the time for Krias Shema, where the Alter Rebbe rules in his Siddur to calculate the hours from sunrise, while the Tzemach Tzedek disagrees—well, (although I have not heard this explicitly, but) since the Tzemach Tzedek only raises a doubt and poses a difficulty regarding the words of the Alter Rebbe (certainly referring to what is found in his Chiddushim on Maseches Berachos, Chapter 1, Mishnah 2), the Halacha and the explicit ruling are not changed because of this. In places where the Tzemach Tzedek disagrees, it is written in more explicit language; see Piskei Dinim Likutim at the end, regarding the blessing of Shehecheyanu on Purim morning, and likewise in the notes printed at the end of Piskei Dinim, Kehot edition.
+
+Regarding your question about the students—some of whom wish to increase their study of Nigleh at the expense of studying Chassidus, and vice versa—in such matters, it is impossible to set hard and fast rules, as it depends on the reasons for their desire and the cause behind it. The main thing is to rectify the matter pleasantly. In general, the approach is known that through rejection, one achieves very little, if anything at all; whereas when the student is within one’s "four cubits" and one continues to exert influence upon him, it is different.
+
+You will surely utilize the days of the Hilula of my father-in-law, the Rebbe, of blessed memory, on the upcoming 10th of Shevat, in a manner appropriate for both the older and younger students, and may Hashem grant you success.
+
+#### ***3253***
+
+**R' Chaim Moshe, may he live:** V'var. Additional letters to him—above 3135, and in the references noted there.
+
+Gerand
+
+B"H, 7 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, learned, and distinguished R' Shimon, may he live:
+
+Shalom u’vrachah!
+
+I acknowledge receipt of your letter from 26 Teves, following your long silence. Regarding what you wrote about the establishment of Chabad shuls in various locations in Yerushalayim (may it be rebuilt and established), generally speaking, there are many details and sub-details involved that vary from time to time and depend on local conditions. Therefore, it is difficult to state anything definitive from a distance. I will only touch upon general points: In principle, the more such shuls, the better, since the distance often prevents many of our Anash from davening in a Chabad-nusach shul, and certainly those who are not yet part of Anash are not drawn to do so.
+
+On the other hand, it is understood that one Chabad shul should not compete with another. Even though "the jealousy of scholars increases wisdom," it should not reach the point where they are fighting over a particular congregant—this one pulling here and that one pulling there.
+
+It is also understood that a shul must be in a location and of a nature that does not repel those who come to daven, but rather attracts them. Therefore, if the walls are damp or similar, and especially if the founding of such a shul in a particular neighborhood prevents the search for a more suitable location, it is worth delaying its establishment for a time, since afterwards—and in a relatively short time—a more suitable place will be found. Furthermore, it should be noted—though it is obvious—that one should not be particular, and one must reach out to those who are not yet from Chabad. On the contrary, it is necessary to make an effort to increase their numbers, as they do not express opinions on the conduct of the shul and the study hall.
+
+It is also understood and simple that in this shul, one must institute the recitation of Tehillim, the study of Chassidus, etc., even if in the initial days the study must be geared toward beginners, if a significant portion of the congregants are of that type; we follow the majority. This applies to the quantity and quality of the studies, but not to the existence of the studies themselves.
+
+2) Regarding the question of your traveling here—as you are looking for a place to secure funds, etc.—I do not see much benefit in this. The opposite—the lack of your avodah in your own place now—is, in any event, much greater. Especially since one is for the benefit of the many and the other for the benefit of the individual; for there is a vast field for spreading Chabad, its guidance, and its customs in Eretz Yisrael (may it be rebuilt and established), and there are **very** few who are working in this and are capable of it, especially those who have already begun this work and succeeded to a significant degree. Without a doubt, your travel for any length of time will leave a noticeable mark in the lack of avodah. Even the preoccupations involved in preparing for the trip will have this effect.
+
+In addition to this, there is also the matter of the agreement of your wife (may she live), which, even if she agrees, would be a forced agreement, at least in part, even if the question of funds were not an issue—especially when the material situation is not expansive, and the travel expenses—round trip—are several hundred liras. Most of your doubts can be clarified in writing. And even if there remains a portion or matters that are difficult to put in writing, you should throw yourself (*areinvarfen zich*) into the work of spreading the wellsprings, and the rest will fall into place peacefully. Elaborating on such a simple matter is superfluous. Every day, and even every moment, is precious, as the days are approaching of which you will say, etc. (see Shabbos 151b in Rashi there, and Rambam at the end of Hilchos Teshuvah and the end of Hilchos Melachim, etc., and I will not elaborate). When you fill your time—that which is free from davening, your Torah studies, and the management of your home—with the aforementioned work, you will rejoice in your beautiful portion that Hashem has granted you.
+
+Regarding the doubts about customs that you wrote about: the customs of Chanukah are explained in the Kuntres *Baruch She’asah Nissim*, and the sources are noted there as well. I do not see any room to differentiate between Eretz Yisrael (may it be rebuilt and established) and the Diaspora.
+
+Regarding the recitation of *Barechu* every morning after davening—and it seems you are referring to what is explained in the Tur and Shulchan Aruch, Siman 133—the opinion of our Rebbe (the Alter Rebbe) is clarified by the fact that he did not include this matter in the Siddur, even though the second *Barechu* of Kabbalas Shabbos is there. Furthermore, it is known from the customs of the Rebbe’s house that there was never any mention of saying this *Barechu* (see also Shulchan Aruch of our Rebbe, Siman 69, Seif 4; Ketzos HaShulchan, Part 1, Siman 24, Seif 10; and *Kesser Shem Tov* by R' Shem Tov Gagin, subsection 243. Even though the Ketzos HaShulchan mentions the custom of Eretz Yisrael, based on the aforementioned from the Alter Rebbe’s Siddur, it appears he does not hold of it, for even the second *Barechu* of Kabbalas Shabbos is based on Kabbalah—see *Shaar HaKollel* there—and yet he included it, but did not include saying it every day). This also does not pertain specifically to the holiness of the Land, for in *Shaarei Teshuvah*, Siman 286, it is brought that this was the custom in his day in Eretz Yisrael and in the land of Egypt. And this should be noted, regarding what the Alter Rebbe wrote in the aforementioned Shulchan Aruch, that one must be careful to avoid controversy regarding this.
+
+What you wrote about the matter of the beginning and end of Shabbos, and that the observance of Shabbos is 26 hours, and in your words that it is "known and brought as such"—what I have heard pertains to Yom Kippur—as copied in the *Hayom Yom* calendar—but not regarding Shabbos. Especially according to what is explained in the Siddur, which the Alter Rebbe wrote many years after the Shulchan Aruch, in the *Seder Hachnasas Shabbos*—it is not 26 hours. Furthermore, according to him, even regarding what is explained concerning Yom Kippur being 26 hours, one should be lenient, as a part of an hour is considered an hour, and therefore more than 25 hours is sufficient.
+
+Surely you will utilize the day of the Hilula of my father-in-law, the Rebbe, of blessed memory, in an appropriate manner. May Hashem grant you success in bringing good tidings regarding this and everything mentioned above.
+
+With blessings for success,
+
+**M. Schneerson**
+
+## Jerne
+
+B"H, 8 Shevat, 5715
+Brooklyn
+
+To the esteemed Rabbi, the G-d-fearing, learned, and accomplished man,
+Rabbi Shmuel Abba, may he live.
+
+Peace and blessing!
+
+After your silence, I was pleased to receive your letter from the 5th of Shevat, along with the *pidyon nefesh* enclosed within, which I will read at the holy gravesite of my father-in-law, the Rebbe, of blessed memory. I was gratified to read in your letter about the *farbrengen* of the auspicious day of 19 Kislev that has passed, and primarily about the practical resolutions for the entire year that have already begun to be fulfilled.
+
+Regarding what you wrote about establishing schools in the camp, in matters such as these, the distinction is whether the approach is moving from right to left or from left to right. That is to say, if without establishing the school the children would not receive any Jewish education at all—then even a small rescue is considered a rescue. This is not the case, however, if the situation is the opposite, where without establishing the school, there is more Torah study; in such a case, one must certainly not weaken or diminish it, as is simple and obvious. Seemingly, since you write in your letter that until now the state of study was on a high level, and the change you fear is because the administration has passed into other hands, it is highly probable that with the appropriate acquaintance with the representatives of the American occupation, it will be possible to maintain the education without changing it. This is especially true since their current movement is to strengthen all religious matters as much as possible, as they have realized that this is the only shield and protection against the "reds," whose terror is upon them. If the Rabbis emphasize the matter with full force and with an explanation that is visible even to the physical eye—that even as they increase religious studies, it is still not enough—then all the more so, it is impossible to concede from the program as it has been until now, and these words will be accepted by the administration. May Hashem grant success so that these words, which come from the heart, will enter the heart, and consequently, they will perform their work to bring the hearts of the sons and daughters of Yisrael closer to our Father in Heaven, for their good, both physically and spiritually.
+
+I am sure you will gather on the day of the *yahrzeit*, the 10th of Shevat, may it come upon us for good, and I look forward to hearing good news regarding all of the above.
+
+With blessing.
+
+## Jereno
+
+B"H, 8 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and learned, engaged in communal needs, R' Chaim Hillel, may he live and be well,
+
+Greetings and blessings!
+
+I hereby acknowledge receipt of your letters from the 3rd and 5th of Shevat, along with the *pidyon nefesh* and the lists enclosed. I will, G-d willing, read them at the holy *tziyun* of my father-in-law, the Rebbe, of blessed memory. It is surely unnecessary to remind *anash*—through whom these *pidyonos nefesh* are submitted—that they should, in turn, remind those who submit them of the interpretation given by my father-in-law, the Rebbe, the *baal hahilula*, regarding the expression "showers of blessing" (*gishmei bracha*). Blessing is like rain: there must be plowing and sowing, and only then does the rain bring forth abundant success, etc. You will surely find the appropriate words to explain this matter, and may Hashem grant you success.
+
+You have surely also explained to the students of the *Talmud Torah* about the *baal hahilula*, his life story, and some of his activities, in a manner appropriate to their level of understanding. If this has not yet been done, it should be done at least in the days leading up to the *yom hahilula*. May it be the will of Hashem that these words make an impression on both the speakers and the listeners.
+
+With blessings for success in your holy work, in good health, both physically and spiritually.
+
+#### ***Jereno***
+
+**R' Chaim Hillel:** Azimov. Additional letters to him appear above in Vol. 9, p. 276, and in the references noted in the footnotes there.
+
+**Gishmei bracha:** See also above, Vol. 8, letter 290, and the references noted in the footnotes there.
+
+## 3757
+
+B"H, 8 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, occupied with communal needs,
+Rabbi Yehoshua Schneur Zalman, may he live.
+
+Greetings and blessings!
+
+...It is surely unnecessary to urge you to utilize the day of the Hillula of my father-in-law, the Rebbe, of blessed memory, the Nasi of Yisroel, in an appropriate manner and with appropriate, vigorous publicity—in addition to what will be printed in the newspapers, and it is even better to do so in the spoken language as well. I await good news, specifically regarding this as well.
+
+With the blessing that the merit of the Baal Hillula should protect each and every one of Anash, scattered to the ends of the earth, to fulfill their mission in this world with proper health, ample livelihood, and peace of mind.
+
+Awaiting good news.
+
+I have now received your letter from 27 Teves: Regarding the school, the studies in all classes must begin with Limudei Kodesh, as is known from our Sages, "the first of your dough, etc." Furthermore, make every possible effort to ensure that the number of hours of Limudei Kodesh is at least no less than the secular studies, and it is even better, etc.
+
+#### ***3757***
+
+**Rabbi Yehoshua Schneur Zalman, may he live:** Sarbanski. Additional letters to him—above 3093, and in the references in the notes there.
+
+**The beginning... with Limudei Kodesh:** See also above Vol. 6, letter 1735, and in the references in the notes there.
+
+## 3,158
+
+B"H, 9 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, etc., R' Dovid Meir, may he live:
+
+Peace and blessing!
+
+I was pleased to receive your letter of 4 Shevat, in which you share the good news of the completion of the Shas. Certainly, in accordance with the custom of Yisrael, you have immediately begun studying it once again. For the Torah—as the Torah, the Holy One, blessed be He, and Yisrael are all one—is Ein Sof, and its end is embedded in its beginning and its beginning in its end. This custom can be understood in light of the verse, "The Torah of Hashem is perfect," regarding which the Baal Shem Tov, of blessed memory, said that it is "perfect" (*temimah*) because no man has begun it, and it is complete (*shleimah*) (Maor Einayim, Avos, s.v. *Me'od Me'od*; see there). Therefore, immediately after the completion, one begins anew, for the completion of the study brings one to an **additional** realization that one must begin again from the start. This is similar to the well-known saying, "The ultimate **knowledge** is that we do not know" (see Shelah, Maseches Shavuos 191b, which also refers to **Torah**). As one adds to one's study and knowledge, one adds to the realization that we do not know.
+
+It may be suggested that this is also one of the allusions in the conclusion of the Shas, "Whoever studies *halachos*..."—specifically *halachos*, which are called a "crown" (*taga* and *keser*) (see Iggeres HaKodesh by our Rebbe the Alter Rebbe, Epistle 29). Just as a crown **surrounds** the head, so too with the Torah: even though it is said, "Your Torah is within my bowels," meaning it enters into one's interior and becomes one's own blood and flesh (Tanya, Chapter 5)—nonetheless, simultaneously, it remains hidden from the eye of all living, and only with Him—"I was His delight."
+
+However, the souls of Bnei Yisrael, which are a "part of G-d from above"—and as our Rebbe the Alter Rebbe emphasizes—**literally**, have the ability to study the Torah. Bringing this ability from potential into action is accomplished through the prerequisite that Bnei Yisrael bring from concealment into revelation the fact that they are literally a part of G-d from above. This is done by reciting Shema: "Shema Yisrael, Hashem Elokeinu"—our strength and our vitality.
+
+The donation from your son-in-law and his wife, your daughter, may they live, was delivered to the SHaN"D fund. May the Ribono shel Olam grant you and your wife success, and may you merit to receive from them and from all your descendants, may they live, much true *nachas*—which is Chassidishe *nachas*.
+
+With blessing.
+
+***
+
+**R' Dovid Meir:** Shulman. Additional letters to him appear above, Vol. 9, 2,838, and in the notes referenced there.
+
+**To the SHaN"D fund:** See the letter above, 3,073.
+
+## Gerant
+
+B"H, 9 Shevat, 5715
+Brooklyn
+
+To the esteemed and distinguished, etc., R' Yisrael Zusman, may he live.
+
+Peace and blessing!
+
+In response to your letter of 3 Shevat, in which you write that you have established shiurim in Nigleh and in Chassidus, and since you have heard the report regarding the study of Chassidus on the weekly parsha from Torah Or and Likutei Torah, you ask whether you should discontinue one of the aforementioned shiurim to begin the weekly parsha.
+
+I have already explained my opinion many times: I have come only to add, and G-d forbid not to subtract. This applies to your question as well. Even though the basis for this instruction is the adage of the Alter Rebbe that one must "live with the times," nevertheless, since in my opinion, if it is impossible to study more, one should at least find additional time to study some segments of Chassidus on the weekly parsha. For although regarding a businessman, the sicha was that they should study the entire weekly parsha, this is not the case regarding shiurim studied in public, as is understood.
+
+Regarding what you wrote, that you have a custom for someone who has a yahrtzeit to hold a Melaveh Malkah meal and study from the holy sichos: even though I have not heard of this custom, the gathering of a number of Yidden—especially at a farbrengen where words of Torah are studied, and in addition to this, the *seudata d'David Malka Meshicha* (the meal of King David, Mashiach)—is something I have mentioned in many places in the letters of my father-in-law, the Rebbe, regarding farbrengens held as a Melaveh Malkah. Therefore, *yashar cheilam* (may their strength be firm), and may they continue this hisorerus throughout the entire week. One can find support for this in what is explained in the writings of the Arizal: that the soul which ascends on the day of the yahrtzeit, when it falls on a weekday, ascends on the Shabbos preceding it and does not descend again, as is explained in Shaar HaMitzvos in Parshas Vayechi and in several other places.
+
+May Hashem grant you success in spreading the wellsprings outward—where "outward" also includes the first point that is outside the wellspring itself (and not necessarily "outward" in the sense of the depths below, G-d forbid, and according to what is explained in the Reshimot of the Tzemach Tzedek on Tehillim, that Ze'er Anpin is called "outward"). May this be with proper health, both physically and spiritually.
+
+With blessing and regards.
+
+## G'ras
+
+B"H, 9 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing and refined, etc.,
+Rabbi Schneur Zalman, may he live, Halevi,
+
+Peace and blessing!
+
+Regarding your question about the Kaddishim recited after Kaddish Tiskabel: whether they should be recited by someone else when there are no *chiyuvim* (those obligated to say Kaddish) in the shul.
+
+I have already expressed my opinion to you—that the Kaddishim should be recited. I am writing now to explain my reasons and rationale, as I have not heard a definitive ruling on this. By way of introduction:
+
+Regarding Kaddishim in general, there is an argument in favor of being diligent to recite them, and an argument in favor of being diligent to avoid them. They are as follows:
+
+1) It is well known that one should not multiply Kaddishim beyond what the early authorities established. This is cited in *Shaar HaKollel*, Chapter 11, subsection 29, in the name of the *Knesses HaGedolah* and the responsa *Dvar Shmuel*.
+
+2) The aforementioned Kaddishim—those after *Shir Shel Yom*, *Kaveh*, and especially after *Aleinu*—are merely a custom (see *Shulchan Aruch* of our Rebbe the Alter Rebbe, *Seder Tefillas HaShachar*, and the sources cited there).
+
+3) In addition to this, there is the consideration of avoiding burdening the congregation (*tircha d’tzibura*), and on weekdays, the consideration of interrupting work (*bitul melachah*) (see *Berachos* 31a, regarding Rabbi Akiva when he would pray with the congregation, etc.; and *Megillah* 22b).
+
+Even without all the above, one must clarify whether there is any significance to reciting Kaddish—aside from the obligation of mourning, the conclusion of a study of *Aggadata*, and the like.
+
+***
+
+Regarding the aforementioned clarification:
+
+1) It has already been ruled in *Shulchan Aruch Orach Chayim*, Section 132, Paragraph 2, in the gloss, that even in a place where there is no orphan, the Kaddishim should be recited for the sake of the deceased of the entire world, provided that they are recited by someone who does not have a father or mother, or when the parents do not object. The same is also stated in the *Rema* in *Shulchan Aruch Yoreh Deah*, Section 376, Paragraph 4.
+
+2) In a place where there is no clear ruling in the *Nigleh* (the revealed Torah), we rely on what is found in *Kabbalah* (see *Shaarei Teshuvah Orach Chayim*, Section 25, subsection 14). According to what is explained in *Pri Etz Chaim* in the *Shaar HaKaddishim*, and in many other places, in *Shaar HaKavanos*, in the *Siddur* of the Arizal, and elsewhere, the recitation of Kaddish is between one world and the next. This is why they should be recited even between *Tehillah L’Dovid* and *Kaveh*, and between *Kaveh* and *Aleinu*; see there. See also *Likutei Torah*, *Masei* (92b), and the *Sicha* of 12 Tammuz 5707 (sections 14-18) by my father-in-law, the Rebbe. Even though the Kaddish after *Aleinu* does not have the aforementioned reason—as explained in *Pri Etz Chaim*, etc., there—another reason is brought there that applies even when there is no *chiyuv* in the *beis medrash*. And according to the ruling of the *Rema*, it is for the sake of the deceased of the entire world.
+
+3) Especially since the recitation of Kaddish has significance in its own right—as is understood from what is explained (*Rosh Chodesh*, *Shaar HaKedushah*, Chapter 17, *d.h. B'prat*, and in the introduction to *Etz Chaim*, *d.h. V'aseh Tov*) regarding the interpretation of the word *Tzaddik*: 90 (*Tzadi*) *Amens*, 4 (*Dalet*) *Kedushos*, 10 (*Yud*) *Kaddishim*, 100 (*Kuf*) *Berachos* (cited in the later authorities and in the *Shulchan Aruch* of our Rebbe the Alter Rebbe, *Orach Chayim*, beginning of Section 55. It should be noted there that the Kaddishim of the prayer service are no fewer than seven).
+
+He concludes, based on the above, that it is appropriate for every person to be careful not to answer fewer than ten Kaddishim every day. It is forced to say that this is warning a person to be in certain *minyanim* to fulfill the number of Kaddishim; rather, the intention includes those Kaddishim that are by custom, or those after studying *Aggadah*.
+
+4) This is not considered reciting Kaddish without need, since the custom of Israel is Torah, and they are recited for a specific *kavanah*.
+
+5) Furthermore, the reason of burdening the congregation and interrupting work does not apply here—for since if there were *chiyuvim* in the shul, they would recite the Kaddishim, this is already included in the order of the congregation’s prayer and its duration—and it is accepted.
+
+6) One should not raise a difficulty from the letter of my father-in-law, the Rebbe (printed in *Kuntres 68*), where he writes to be careful with the recitation of *Kaddish D’Rabbanan* after the *Baraisa* of Rabbi Yishmael, for seemingly, why does he not warn about the Kaddishim after *Shir Shel Yom*, etc.? 
+It can be said simply that the recitation of that Kaddish had been abolished in the shul to which that letter was written, as is written there, but the aforementioned Kaddishim were not abolished.
+
+7) Regarding the Kaddish after *Tehillim*, my father-in-law, the Rebbe, makes a distinction: if there is a *chiyuv*, it should be recited after every book. If not—only once after the entire *Tehillim* (as printed in *Siddur Tehillas Hashem* – 5701).
+
+However, this cannot be compared to our current case, because reciting Kaddish between books of *Tehillim* is an innovation. As is known, our custom regarding the recitation of *Barchi Nafshi* and *L’Dovid Hashem Ori* after *Shir Shel Yom* is that we recite Kaddish only once after *all* the psalms, so as not to multiply Kaddishim between one psalm and another (cited in *Shaar HaKollel*, Chapter 11, subsection 29, mentioned above).
+
+And this innovation is sufficient—when there is a *chiyuv* on the spot.
+
+**Note.** Consistent with our aforementioned custom, it seems to me that in a case where one recites Kaddish between books, one should recite the *Yehi Ratzon* that follows the book **beforehand** (at the very least, the one reciting the Kaddish should say it), as its content is the **conclusion** of the recitation of the psalms, which is why one recites Kaddish afterward. And afterward, when one begins the book that follows, it is **akin** to a new matter.
+
+Similar to *Birkas HaMazon* when a meal is divided into two (see *Shulchan Aruch* of our Rebbe [the Alter Rebbe], Section 291, end of subsection 9).
+
+***
+
+The conclusion from all the above is that, in my opinion, all the Kaddishim that are our custom to recite should be recited even when there is no *chiyuv* in the shul—meaning also the Kaddish after *Shir Shel Yom*, *Kaveh*, and *Aleinu*. Furthermore, even the Kaddish after the *Tehillim* lesson **that was established** to be recited after *Shacharis*, as written in the *Levush*, Section 132, that one must always recite Kaddish after reciting verses.
+
+With blessing,
+
+**M. Schneerson**
+
+P.S.
+Seemingly, this requires study: based on the above in *Pri Etz Chaim*, etc., that the recitation of Kaddishim is between one world and the next—why are the Kaddishim until *Shir Shel Yom* obligatory, whereas the Kaddishim after that are not? The reason can be said to be based on what is explained (*Pri Etz Chaim*, *Shaar Krias HaTorah*, Chapter 3, and in many other places) that until the *Amidah* prayer, and including it, which consists of the four worlds—*Asiyah, Yetzirah, Beriah, Atzilus*—each one is in its place, and the Kaddish is the pillar through which one ascends from *Asiyah* to *Yetzirah*, etc. Not so the four worlds of *ABYA* after *U’Va L’Tzion*, for they are all found in *Atzilus* (until *Aleinu*). Rather, within *Atzilus* itself they are divided. From this it is understood that the necessity for Kaddish is not as great, but nevertheless it has a place—and therefore it left the category of obligation and remained in the category of the custom of Israel. And this is not the place to elaborate.
+
+I have just found it cited from the responsa *Zichron Yehudah*, *Orach Chayim*, Section 73, that the author of *Ksav Sofer* had the custom—if there was no one to recite Kaddish after *Aleinu*, *Shir Shel Yom*, etc.—to recite these Kaddishim himself, and that he presumably saw this from his father, the *Chasam Sofer*. See also *Sdei Chemed*, Part 1, *Asifas Dinim*, *Ma’areches Aveilus*, subsection 163.
+
+## G'rassa
+
+[10 Shevat, 5715]
+
+On the day of the Hilula, [Anash] should specifically strengthen their faith in Hashem and in Moshe Avdo, and in his extension—the Baal HaHilula. They should strengthen their trust that even now, he stands and serves, and awakens [the flow of] blessings and success in both material and spiritual matters for all his flock. [They should trust in] the protection of the "open eye that never slumbers." And as per the ruling of our Rabbeinu HaZaken, the Mitteler Rebbe, and the Tzemach Tzedek, it is not correct to uproot a dwelling because of the event, for it is precisely there that Hashem will command the blessing and mercy, an inheritance without boundaries.
+
+With blessings, and participating in your farbrengen.
+
+***
+
+**G'rassa**
+
+Published in *Bitaon Chabad*, issue 8, p. 12, under the title: "The Rebbe Shlita sent the following telegram—on the day of the Hilula, 10 Shevat—to Kfar Chabad regarding the shocking event" [see the previous letter, 3161, and the notes referenced there].
+
+**And as per the ruling of our Rabbeinu:** See the following letter.
+
+## 3262
+
+By the Grace of Hashem, the day of the Hilula of my revered father-in-law, the Rebbe
+Brooklyn, N.Y.
+10th of the eleventh month, which is the month of Shevat, 5715
+
+To the residents, to those settling, and to those who will settle in Kfar Chabad, which is in the Holy Land—the land upon which the eyes of Hashem your G-d are from the beginning of the year until the end of the year—may it be built and established speedily in our days by Mashiach Tzidkeinu, they and all that is theirs.
+
+May Hashem be upon them, and may they live.
+
+Peace in abundance and blessing in abundance!
+
+I was pained to hear that there are those among you whose spirit has fallen within them following the well-known event, may Hashem avenge his blood, and that their resolve regarding settlement and their hiskashrus to Kfar Chabad in the Holy Land has weakened.
+
+I am acting as an emissary of our Sages to transcribe letters of holiness from our holy Rebbes, the Nesi'im of Israel. Their words are as follows:
+
+**A. Rabbeinu HaZaken — the Baal HaTanya (the authority on the hidden aspects of Torah) and the Shulchan Aruch (the authority on the revealed aspects of Torah):**
+
+"I have heard from the mouths of holy men of old regarding the common saying that after a fire, one becomes wealthy. This is because the unfolding of the holy supernal middos and their order is thus: Chesed, Din, Rachamim. Therefore, after the middah of Din [manifested] in a fire, the middah of Rachamim is awakened, which is greater than the middah of Chesed that preceded it, as is known—for it is the middah of Yaakov, an inheritance without boundaries, extending from one end to the other, etc." These are his golden words.
+
+**B. The Mitteler Rebbe:**
+
+"I have come to comfort your hearts regarding that which the hand of Hashem has touched... let your hearts not fall, for Hashem will surely awaken His great Chesed and compassion upon you... with additional blessing after that which... And it is known that every Din is clothed in an aspect of Chesed in a hidden way. Therefore, everything the Merciful One does is for the good, for no evil descends from Above. And for this reason, one recites a blessing over the 'evil' just as [one does over the good], etc. And upon the conclusion of the middah of Din, it is precisely then that the intensity of the love that was clothed within it will be revealed, like the parable of a father who disciplines his son, clothing his love within the afflictions with which he disciplines him. Yet, immediately after he disciplines him, the inwardness of his love and compassion is revealed even more, to the point that he grants him kindness and goodness. And as I heard from my father, the Rebbe, of blessed memory, regarding the root of the matter of the curses in the rebukes—that they will be transformed into blessings due to the power of the intense Chesed clothed within them, and they are revealed precisely after the conclusion of the 'garment' of the harsh act of Din. And this is what is meant by 'I will turn their mourning into joy'—their mourning specifically, such as Tisha B'Av, when their hand was sent forth, etc.—it will be turned into joy and a revelation of light, the 'abundant kindness' within it, just as on the first day of Pesach, which was the essential Chesed, etc. And as this matter is explained at length in the writings, etc. Therefore, I said by way of advice that it is not right in my eyes that it has entered the minds of some people from your camp to uproot their dwelling from... for in my opinion, it is precisely there that Hashem will command the blessing, for the reason mentioned above. And as I have instructed my friend, the bearer of this letter, that for this reason I heard from him, of blessed memory, that he did not wish to uproot his dwelling from the holy community of Liadi after the burning of his house, as is known. And may Hashem return and have mercy upon us after His anger has subsided, and may He comfort them and raise their horn on high for all days of the world... The words of one who loves them truly, awaiting the salvation of Hashem for them soon. DovBer, son of my father, the Rebbe, of blessed memory."
+
+**C. The Tzemach Tzedek:**
+
+"I have received your letter, and my soul had also heard of this previously. I am here to comfort you with that which was transcribed from the holy handwriting of my father, the Rebbe, of blessed memory, who wrote to a man of Anash whose house was burned, the late Yosef of Zhuravitch. His words are: 'I have heard from the mouths of holy men of old regarding the common saying that after a fire, one becomes wealthy. This is because the unfolding of the holy supernal middos and their order is thus: Chesed, Din, Rachamim. Therefore, after the middah of Din [manifested] in a fire, the middah of Rachamim is awakened, which is greater than the middah of Chesed that preceded it, as is known—for it is the middah of Yaakov, an inheritance without boundaries, extending from one end to the other, etc.' These are his golden words. Therefore, he instructed the aforementioned in his holy handwriting to the aforementioned man to strengthen himself and build his house in its place. And from his holy words, of blessed memory, it seems to me regarding your situation that you should strengthen one another to build your homes in their place. For it is known that the merit of the many is greater than that of the individual in awakening great mercies to support them and raise their horn. Therefore, let them strengthen themselves, and let one help his fellow, and Hashem, who gives strength to perform valiantly, will bless them with all goodness in all that they do, according to their desire and the desire of one who loves them, and who awaits their good tidings: Menachem Mendel."
+
+The words of the Tzaddikim endure forever and accomplish their effect.
+
+May the Holy One, Blessed be He, bless each and every one of you, within the entirety of the Jewish people, that all that is stated in the aforementioned holy writings be fulfilled in its entirety, in a revealed and manifest good, and very soon.
+
+With blessing, the one who awaits and expects good tidings.
+
+P.S.
+Iggeres HaKodesh A — Sefer HaMitzvos of the Tzemach Tzedek, end of page 228.
+Iggeres HaKodesh B — In Siddur Meah Shearim, end of page 28.
+Iggeres HaKodesh C — Ibid., page 36.
+
+## 3263
+
+B"H, 11 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, etc., Moreinu Harav Mordechai, may he live, Hakohen.
+
+Greetings and Blessings!
+
+I was pleased to receive your letter (though it was undated), in which you wrote regarding the establishment of fixed times for Torah study in the shul. There is already a beginning in this regard with the study of necessary halachos, and surely—not only will you continue in this, but you will also increase, in accordance with the ruling of our Sages, "we ascend in matters of holiness." May it be Hashem’s will that it be successful. It was an additional pleasure to read what you wrote regarding the establishment of a fixed study session in Nigleh and Chassidus five times a week, in addition to the study of necessary halachos at that time. The magnitude of your merit in bringing this to fruition is beyond measure. This is already known from the explanation of the Mishnah regarding "two holding onto a tallis," which we have heard many times from my father-in-law, the Rebbe, the author of the Hillula, and which is also printed in the *Kuntres Limud Toras HaChassidus*. Surely you will endeavor to increase the number of participants in this shiur as well, and may Hashem grant you success.
+
+I am certain you gathered on the day of the Hillula, and may it be Hashem’s will that the inspiration be drawn out throughout the entire year.
+
+With blessings.
+
+#### ***3263***
+
+Printed in *Likkutei Sichos* Vol. 18, p. 438, and completed based on the secretariat's copy.
+
+**Moreinu Harav Mordechai, may he live:** Dubinsky.
+
+**With the study of necessary halachos:** See above, Letter 3141, and the references in the notes there.
+
+**In the explanation of the Mishnah regarding "two holding onto a tallis":** See also above, Letter 3189.
+
+## 3144
+
+B"H, 11 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+After such a long silence, your letter has finally been received. Surely, the words of my revered father-in-law, the Rebbe, the author of the *Hilula*, regarding "the pain of Chassidim" have been publicized among the *Temimim* and *Anash*. He explained that there are those who only write—Heaven forbid—when some pain or distress occurs, *G-d forbid*. It is surprising that you, too, seem to want to fall into this category. Consequently, when you wanted to inform me about establishing a *shiur*, there was, so to speak, no other way but to involve a matter of distress, *G-d forbid*, and thus you sent a letter, and in the process, also informed me about the *shiurim*.
+
+It would be far better for all parties if *Anash* were to get into the habit of writing and reporting on every matter of joy. In this way, habit would become second nature, and even in the natural order of things, a shift would be felt in this direction, so that joy would increase in all their affairs. See also *Zohar*, Vol. II, 184b, s.v. *Ta Chazi*. May it be His will that you be a good *shaliach* in instilling this good custom, not only regarding yourself, but for your entire environment.
+
+I was pleased with what you wrote regarding the *shiurim*. Surely all the participants are making an effort to bring more people to each and every *shiur*. It is certainly unnecessary to prompt you to speak and explain, from time to time, also about the *derachim* of Chassidus, its guidance, and its customs. May Hashem grant you success with your students and those you influence.
+
+Regarding your question about the *maaser* that you set aside (and surely you set aside a little more than a *maaser*—as is known from our Sages, one should not be overly precise with *tzedakah*), you may also use this for the distributions of 10 Shevat, Purim, 12 Tammuz, etc.
+
+With blessings for good tidings in all the above,
+
+**M. Schneerson**
+
+#### ***3144***
+
+Part of this was printed in *Likkutei Sichos*, Vol. 21, p. 420, and part there, p. 434; it was completed based on a photocopy of the letter.
+
+**Tzaar Chassidim:** See above, Vol. 3, letter 513, and the references in the notes there.
+
+## 315
+
+B"H, 11 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...Regarding your question about traveling here for a few weeks: although I do not see this as a necessity, since you write that you have a source to cover the majority of the expenses, then why not? However, I do not think the trip should be before Pesach, nor that you should celebrate the festival of Pesach here. It is the custom of Jewish men, whenever possible, to celebrate together with their families. Since it has not been necessary until now, surely it does not matter if the trip is delayed by a few weeks.
+
+Regarding your purchase of the apartment and your moving into it in the near future (and surely, first and foremost, you will bring a Siddur, Chumash, Tehillim, and Tanya into the apartment), may it be the will of Hashem that it be at a good and auspicious time, and may it be a case of "change of place, change of fortune" for the good and for a blessing. May your hearts be gladdened with joy and happiness soon.
+
+The *pidyon nefesh* has been received.
+
+With blessings.
+
+#### ***315***
+
+**Siddur... and Tanya:** See also above, Vol. 6, Letter 1886; below, 374.
+
+## Gerso
+
+B”H, 14 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+Your letter of 8 Shevat was received, as well as the three *pidyonos nefesh* from the day of the *hillula*. Regarding what you wrote—that you have no justification for not writing—I have written to several of those who are in contact with me that this is not my intention. Beyond the fact that in these days we are particularly thirsty and longing for every bit of good news, given that we are in a "parched and weary land without water," the main point of writing is in accordance with the words of our Sages: "If Reuven had known that his action would be recorded..." (*Vayikra Rabbah*, ch. 31; see *Yefeh Toar* there). We see tangibly that when one knows they must report on their activities—and that if they do not, they will be asked the reason for their silence, and will surely have to answer truthfully without any pretense—it naturally stimulates them to act with greater intensity and strength, to the point that it sometimes awakens and brings forth powers from concealment into revelation. And things that are well-known do not require elaboration.
+
+Regarding what you wrote—that in the new neighborhood you do not know of a suitable location—all matters of *Torah* and *mitzvos* come specifically through exertion. For it is only regarding the side of *sitra achra* that it is said, "that we ate for free," as explained in *Zohar* Vol. III, 128a. Why should you pray for a miracle to find a place without exertion? As is well-known, the expression "how bad is..." (*Shabbos* 53b), and even "they deduct from..." (*Shabbos* 32a).
+
+I was pleased to hear that you have accepted a position... which will certainly influence the attitude toward you and your wife, *tichye*, in all circles of *Bnei Yisrael* there. Ultimately, the *parnassah* will also come, and in time, *parnassah* with abundance as well. (Although, if you had listened to my words regarding the thirteen *tikkunei dikna*, and according to what is explained in the *peirush hamilos* of the *Tzemach Tzedek* on the verse *Vehu Rachum*, section 4—also printed in *Tehillim Yahel Ohr*, published by Kehot—and regarding your wife and the *sheitel*—according to what is explained in *Zohar* Vol. III, 126a—a tangible change in the reality of your *parnassah* would already be visible to the physical eye. What more can I do regarding these two matters, beyond speaking?)
+
+I will read your *pidyon nefesh* at an auspicious time at the holy gravesite of my father-in-law, the Rebbe, *ztzukulleh"h, navgam, ze"a*.
+
+May Hashem fulfill the days of your wife’s pregnancy, *tichye*, properly and with ease, and may she give birth to a healthy child at the proper time, properly and with ease.
+
+With blessings.
+
+## 3766
+
+B"H, 14 Shevat, 5715
+Brooklyn
+
+Greetings and blessings!
+
+In response to your letter of 20 Teves, which was delayed in transit.
+
+Regarding what you wrote—that my letter to you contained an urgent demand to begin working in the vineyard of Chabad: It is not my way to write in an urgent manner. The reason I used the expressions in my letter—which are indeed urgent and sharp—is because this is not my own demand, but rather the demand and necessity of the hour. This is something I heard many times from my father-in-law, the Rebbe, during his lifetime in this world. In my letter to you, I did not come to convey anything other than the content of his words and sichos, albeit in my own words and expressions. I do not see it as my prerogative to conceal this and take upon myself the responsibility for [your] lack of awareness regarding such a vital matter; further elaboration for one such as yourself is unnecessary.
+
+Regarding what you wrote—that you are not involved with people, etc.: Even if the situation were as you describe, the avodah of *is'hapcha* is not in heaven, nor was it given to the ministering angels, but specifically to human beings fashioned from material. The main point is that all those who merited to study in Tomchei Temimim—the founders of which are the Rebbe (Rashab) and his son, my father-in-law, the Rebbe—were crowned by them with the title "candles to illuminate." The words of tzaddikim are piercing and penetrating, and they certainly exert their influence to grant the ability for this to all those whom they crowned with this title. The matter depends only on you bringing it from potential into action. However, as explained in Tanya regarding various matters, sometimes a light contemplation for a short time suffices for this, and sometimes it requires *yegias nefesh* and *yegias basar* through deep contemplation in order to arrive at this truth.
+
+Regarding what you wrote about specific events—that you turned to a certain organization and to Anash, etc., and it did not come to fruition: It is understood that from a distance it is impossible to offer an opinion on this, especially based on a report coming from only one side. But based on the above, the statement of the Tzemach Tzedek applies to each and every one of our generation: "We are the workers of the day, to illuminate the world with light." Certainly, the possibilities for this have been granted to everyone. If it is not possible in one partnership, there are surely other possibilities within the vineyard of Chabad itself, and further elaboration is unnecessary.
+
+Under separate cover, I am sending you the Kuntres that was published in connection with the Yahrtzeit. You will surely study it, and you are familiar with the statement that the Holy One, Blessed be He, looked into the Torah and created the world—which is the "great world"—and every person, through the study of Torah, creates his own world, the "small world," and sustains the "great world" (see Zohar Vol. III, 161a).
+
+With blessings for success—and awaiting good news—in all of the above.
+
+***
+
+**The statement of the Tzemach Tzedek:** See also above, 3411, and the references in the notes there.
+
+## 676*
+
+B"H, 14 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+It was a pleasure to receive your letter bearing the good news that the wedding took place at a favorable and auspicious time, and as it should be in every detail. May it be the will of Hashem that all the blessings with which you were blessed be fulfilled in their entirety. According to our Sages, of blessed memory, that whatever kindness is shown to a person is for long days, it is certain that success will shine upon you in other matters as well, including the specific details you mention in your letter.
+
+It is surely unnecessary to remind you of what is explained in the Iggeres HaKodesh of the Alter Rebbe, in the discourse beginning "Katonti," that for every kindness Hashem performs for a person, one must be extremely humble, for it is a drawing closer to Elokus to a greater degree than before. Through simple contemplation, this leads to an increase in Torah and mitzvos, as explained in Tanya, Chapter 32, since for him, the primary focus is spirituality, etc. And as explained there, since this impacts the matter of ahavas Yisrael, you will **certainly** increase your efforts and influence upon your peers to bring them closer to the performance of practical mitzvos and to Yiddishkeit in general. May Hashem grant you success.
+
+Blessings.
+
+P.S.
+Regarding your question about a place of residence: It is understood that it must be in a place where those who observe Torah and mitzvos reside, for even the atmosphere has an influence.
+
+## 3168
+
+B”H, 14 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of the 5th and 7th of Shevat regarding the cheder: You should certainly continue to be involved in this, as the great value of this matter is well known, as is the absolute necessity in our generation—especially regarding chinuch al taharat hakodesh—which strengthens the sons and daughters of Yisrael in the fundamentals of Yiddishkeit, etc., as discussed at length in the sicha of the day of the Hillula. Therefore, there will surely be success in this, provided it is pursued with the appropriate energy, and may Hashem grant that it happens speedily.
+
+Regarding the position of your daughter, tichyeh, at the Jewish library: You should certainly utilize her influence and the fact that her opinion is valued to instill matters of yiras shamayim there, especially since she meets people there who are involved in chinuch. May Hashem grant her success. However, despite the above, it is distressing to read the conclusion of your letter that you have nothing to report regarding a suitable shidduch for her. Apparently, this means that there are currently no proposals, and this is most distressing for several reasons. For someone like you, it is surely unnecessary to elaborate on this, given the words of our Sages regarding the great obligation incumbent upon parents, and especially upon the father, to marry off his daughter in a manner that he can say, "I have given my daughter to this man." It is already well known what our Sages declared: "If you have labored and not found, do not believe it." May it be the will of Hashem that this happens soon, without any concealments or hidden obstacles.
+
+With blessings, and awaiting good news.
+
+## Gerst
+
+B"H, 14 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, engaged in communal needs,
+Rabbi Yitzchak Zalman, may he live and be well,
+
+Greetings and blessings!
+
+I hereby acknowledge receipt of your letter from 3 Shevat. It is surprising that you are so brief regarding the content of your speeches at the rabbinical assembly in your district. Surely you emphasized, are emphasizing, and will continue to emphasize at every opportunity the magnitude of the matter and the absolute necessity in our times to utilize every occasion to stress the importance of fulfilling the *mitzvos maasiyos* in daily life, for "this is the whole of man: fear G-d and keep His *mitzvos*."
+
+Incidentally, I saw in the program that there was also a session dedicated to *divrei Torah*, and I am interested in knowing the level of the *shakla v'tarya* and its content—that is, whether it was merely for the sake of *pilpul* or also regarding practical *halacha*. Details on this would be appreciated.
+
+Enclosed is a *kuntres* published in connection with the days of the *hillula* in a new edition with additions, the content of which is, of course, relevant all year round.
+
+With blessings for success in all the above.
+
+#### ***Gerst***
+
+**Rabbi Yitzchak Zalman, may he live and be well:** Poisner. Additional letters to him appear above in 3404, and in the notes indicated there.
+
+## 370
+
+B"H, 14 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+Through the esteemed Rabbi and Chassid, a man of energy and many accomplishments, Rabbi A. Hecht, may he live, I was informed regarding the state of your health and your request for a blessing. Being at the holy gravesite of my father-in-law, the Rebbe, of blessed memory, the Nasi of Israel, on the day of his Hilula—a time when the soul ascends from a supernal world to an even higher world, and the ascent of the faithful shepherd of Israel, who does not abandon his flock, brings about an increase in blessing and success in the descent from above to below, especially regarding requests made on the day of the Hilula itself—as is explained in many places, it is analogous to the seven days of celebration [following a wedding], where it is difficult for the host to see the distress of another, and he acts to sweeten the distress, transforming *tzarah* (distress) into *tzohar* (light), and from *nega* (affliction)—Heaven forbid—into *oneg* (delight). Therefore, I was pleased to learn afterward from Rabbi Hecht, may he live, that your health has improved.
+
+May it be the will [of Hashem] that, in the language of the Parsha we read this past Shabbos, "He shall bring healing" (*ya'aleh arucha*). As is explained regarding the acronym of this phrase, *Ki Ani Hashem Rofecha* (For I am Hashem your Healer): *Aruch*—for all healing comes from above (see Zohar Vol. III, 292b; *Ma’or Einayim*, entry *Aruch*; *Koheles Yaakov*, entry *Arucha*; and see also Zohar Chadash, Vol. III, 204a; 206, bottom of side b; Zohar Chadash, Balak 54c).
+
+With blessings for good tidings in all the above.
+
+## 3,171
+
+B"H, 14 Shevat, 5715
+Brooklyn
+
+Greetings and blessings!
+
+It is surprising that for a long time I have not received any letters or news from you. I am writing now because just recently I received a letter from the brilliant Rabbi, a man of many accomplishments, Rabbi Chaim Yom Tov Lipa Deutsch, may he live, from Cleveland. He writes to me, among other things, that he is in contact with you regarding the mikveh in your camp. Although I am certain that it is unnecessary to emphasize to someone like you the immense value of this matter—for even for the sake of a single woman, the authorities permitted, even in previous generations, the sale of a Sefer Torah, etc., and all the more so for the sake of many women in our generation, which is one of double and redoubled darkness—nevertheless, relying on the words of our Sages that "one only encourages the diligent," I wish to add my own emphasis to the great importance of this matter. Who knows if it is for a time such as this that you have attained the position of a Rabbi in Israel—for "who are the kings? The Rabbis." As is well known, the Baal Shem Tov taught that in order to do a favor for a fellow Jew, whether in material or spiritual matters, even once, it is worth the soul’s descent from the highest heights to this world for seventy or eighty years. I would be pleased if you would inform me that the aforementioned matter is progressing as it should. Rabbi Deutsch, may he live, is an expert in such matters, and he will surely assist you as much as he can in this regard.
+
+I am certain you will inform me of the good news regarding yourself and your family, may they live, and of your activities in your community within our vineyard, specifically the vineyard of Chabad.
+
+With blessings for good news soon.
+
+***
+
+3,171
+
+**The Baal Shem Tov’s teaching:** See also above, Letter 2,985, and the references in the notes there.
+
+## 3174
+
+B"H, 14 Shevat, 5715
+Brooklyn
+
+Greetings and blessings!
+
+In response to your letter of 5 Shevat, in which you lament your standing and situation in spirituality, and that all the resolutions you make do not last more than a few days, etc.
+
+The advised counsel for this is a paved path, the path of the many, and an even broader path—since it is the path that leads to the city of refuge, which is 32 cubits wide, and according to what is explained in the sicha of Shabbos Mevorchim Elul regarding the concept of the city of refuge—and the main thing is not to "grub" (dig) into oneself, for we are the "workers of the day," and as per the saying of the Tzemach Tzedek that we heard from the Rebbe Rayatz: "to make it bright." And since Hashem has placed you in a situation where you can influence one avreich and then a second avreich, etc., Divine Providence has placed you in a beautiful portion and is saying to you, "Choose this." And surely this influence will draw down an added blessing from Hashem regarding your own avodah as well, until, in time, you will see good fruit from your labor and toil, even openly.
+
+Surely you conducted yourself on your birthday according to the custom of Anash: an aliyah to the Torah, giving tzedakah, and reviewing a maamar of Chassidus. I await good news regarding all of the above.
+
+With blessings for a year of success in both material and spiritual matters.
+
+#### ***3174***
+
+Printed in Likkutei Sichos, Vol. 23, p. 532, and completed according to the secretariat's copy.
+
+**In the sicha of Shabbos Mevorchim Elul:** Printed in Likkutei Sichos, Vol. 2, p. 380, 623.
+
+**And as per the saying:** See also above, letter 3141, and the references in the notes there.
+
+**On his birthday:** See above, Vol. 9, letter 2774, and the references in the notes there.
+
+## 3773
+
+B"H, 15 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I have received your *pidyon nefesh*, which will be read at an *eis ratzon* at the *tziyon* of my father-in-law, the Rebbe, *ztzukulleh"h, navgam, zya*. You have surely seen excerpts from my letters to various *anash* regarding what is discussed in many places in *Chassidus* concerning the matters and *mitzvos* one must be especially careful with, for this is the "gate" for each individual in the process of *ha'alaah* from below to above and from above to below.
+
+Since your "gate" is the work in the field of *chinuch* based on *taharas hakodesh*—as is evident from the conduct of *hashgacha pratis* with you until now—you must be healthy, not only in *neshamah* but also in body. As the ruling on this is explained with a clear and simple premise in the *Hilchos Talmud Torah*, and see also the *Alter Rebbe* in these *halachos*, you must guard your physical health in the literal sense, without any cunning. Consequently, you will have the strength to perform your work as it should be done, and as a result, the *bracha* and *hatzlacha* will increase regarding you and your entire household—may they live—and you will bring good news regarding all of the above.
+
+With blessings for *hatzlacha*.
+
+***
+
+3773
+
+Published in *Likkutei Sichos*, Vol. 22, p. 376.
+
+**For this is the gate:** See above, letter 2990.
+
+## 334
+
+B"H, 15 Shevat, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished individual, of noble lineage, Moreinu HaRav Shmuel Abba, may he live and be well.
+
+Peace and blessing!
+
+After your long silence, I was pleased to receive your letter, especially since I had been concerned about the state of your health.
+
+Many thanks for the good news that you are already feeling better. May it be the will of Hashem that from now on you bring only good tidings, as is the desire of your hand.
+
+I read with interest the article regarding the inheritance of a Sefer Torah that you enclosed with your letter. You are surely aware of how much my revered father-in-law, the Rebbe, of blessed memory, was interested in the recording of memories of days gone by, which often awaken and bring to life — *b'leiben* — matters concerning our daily lives as well. Surely you possess further records of memories, especially regarding that golden chain from the holy Rabbi Pinchas of Koritz until the brothers of Slavita. How good it would be if these, too, were published; who is like our confused generation, which is so in need of a fitting example of *mesiras nefesh* for all that is holy to the Israel of old, the foundation and essence of our existence.
+
+Enclosed is the *sicha* published in connection with today — the *hilula* — with additions, which I am certain will interest you.
+
+With blessings for health and good tidings, and with respect,
+
+**M. Schneerson**
+
+#### ***334***
+
+**Moreinu HaRav Shmuel Abba:** Shapira. Additional letters to him appear above in 2866, and in the references noted there.
+
+**Sefer Torah:** See above, ibid.
+
+**The article regarding the inheritance of a Sefer Torah:** Printed in the book *Yechidei Segulah*, p. 272.
+
+## G'erah
+
+B"H, 15 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter and the *pidyon nefesh* that I received through your son, may he live and be well—who will surely convey to you the content of our conversation—nevertheless, in order to fulfill your request as you wrote, and also what was conveyed orally, I am writing a few lines, albeit briefly as time permits. They are as follows:
+
+One of the matters of our generation in which it is evident how great the darkness of the double and redoubled *galus* is, is that despite what is explained in many places—including in *Iggeres HaKodesh* by our Rebbe the Alter Rebbe, the authority on the *nistar* (hidden) dimension of Torah, and in *Shulchan Aruch*, the authority on the *nigleh* (revealed) dimension of Torah, *Siman* 22 [134], that "a person does not know in what he will profit," and this lack of knowledge is equated to the lack of knowledge regarding when the kingdom of the House of David will return (see there)—nonetheless, from a young age, people begin to seek out a material "purpose" and disrupt all the matters and arrangements necessary for a person’s true happiness. It is as if each one of us knew the future, and consequently, that he must specifically arrange the manner of his children’s education or his own affairs in a certain way, and only then will the *Ribono shel Olam* be able to provide for him over time—as if that were the only way for the One who is "all-powerful" to be the One who feeds and sustains everyone with kindness and mercy.
+
+Now, it is known that the command of the *Chazal* is, "And Hashem your G-d will bless you in all that you do." However, there is a time for everything, and preparation for an action should begin close to the time of the action, and even then, not in a way that disrupts the essential matters and the affairs of this person or that. To my regret, as with all these things, this concerns your son, may he live and be well. It seems that for some years, due to certain reasons, he began to be concerned about what his "purpose" would be and in what manner he would find his livelihood. This worry touched the depths of his soul and caused a "constriction" in his inner being. Because of the intensity of this worry (even though it is possible that he does not realize, in his own **understanding and perception**, that he is worrying about this), he looks at the craft of *shechitah* that he learned as if it were the only way upon which his entire future depends. This hidden thought has also led to the phenomenon of which you complain. As mentioned, it is possible that in his conscious perception and understanding, this is not clear even to your son himself, but in my opinion, this is the matter and this is the cause.
+
+It is understood that it is impossible in one conversation to change his entire outlook, especially since it has been deeply embedded in his heart for several years, to the point that he does not feel how this is the **opposite** of the quality of *bitachon*. With honest contemplation, it is evident and proven that this is also the **opposite** of the faith in *Hashgacha Pratis*—that the *Ribono shel Olam* is all-powerful. It is obvious that if he were to arrive at this understanding, then because of the *yiras shamayim* within him, he would fight against his aforementioned outlook.
+
+Because it is impossible to change an outlook immediately, I told him—even though for **several** reasons I did not want to explain all that is stated above—that he must do a few things: 
+
+1) To begin immediately to prepare another path for his livelihood. That is, even in his own mind, there should be a source to say that it is possible for him to earn a living in another way, and consequently, his future does not depend solely on the craft of *shechitah*. Furthermore, since he studies in *yeshivah* and already knows the laws of *treifos* and the laws of *shechitah*, it would be best to prepare for the rabbinate and receive *semichah*. 
+
+2) If the manifestation of the "weakness of the hand" recurs, he should not fight against it—to try to overcome the weakness at that very moment—but rather, he should not give this manifestation any importance. Consequently, he will not be fighting against it either. If he does not sharpen the knife at that hour or on that day, he can sharpen it tomorrow or the day after. 
+
+3) In order to extract him from the state of anxiety, constriction, and the search for a material "purpose," and to bring him into a state of breadth, it is necessary that your son, may he live and be well, have a fixed time for studying the teachings of *Chassidus*—the soul of the Torah, the Tree of Life—and this should be every single day. My hope is strong that if he does all of the above, it will resolve itself on its own.
+
+Regarding his visit to a doctor, I also told him my opinion: that although, in and of itself, he does not need it, as mentioned above, since he has already accustomed himself to these visits, it is not human nature to stop all at once. Rather, he should increase the interval between one visit and the next until, eventually, he discontinues them entirely. May the *Ribono shel Olam* grant you the merit to receive much *chassidishe nachas* from all your descendants, may they live for long and good years.
+
+With blessings.
+
+## 3175
+
+B"H, 15 Shevat, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and learned R' Chananya Yosef, may he live.
+
+Greetings and blessings!
+
+In response to your letter of 3 Shevat: Thank you for the good news regarding the farbrengen on the auspicious day of 19 Kislev, the festival of our redemption and the liberation of our souls, and for fulfilling the directive in the Alter Rebbe’s Iggeres HaKodesh at the end of the day, where the celebrant distributed the tractates of the Shas among the participants of the farbrengen. The magnitude of this matter requires no explanation, especially after we have been instructed to do so. Furthermore, based on the understanding of the sugya regarding work that cannot be performed except by two or more people—where it is considered as if each one of them performed the entire task (see Shabbos 93b)—it follows that when the entire Shas is studied and completed by the group, according to Torah, it is as if each and every one of them began and completed the entire Shas by the designated day.
+
+May it be the will of Hashem that your study be conducted with joy and in connection with the study of Pnimiyus HaTorah, the soul of the Torah. For then, even the study of the revealed Torah—the body of the Torah—is imbued with wondrous vitality and with a revealed and hidden connection, as "Yisrael, the Torah, and the Kudsha Brich Hu are all one." This is especially true since the place of the beginning and the conclusion is in the beis medrash, where the line of tefillah and the line of Torah are united together.
+
+With blessings and regards to all the participants in the distribution of the Shas, those who farbreng, and those who daven and learn in their beis medrash.
+
+#### ***3175***
+
+**R' Chananya Yosef:** Halperin.
+
+**As if... the entire task:** See also above, Vol. 7, Letter 2133, and the references noted in the footnotes there.
+
+## 327
+
+B"H, 15 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter—which lacks the date of writing—in which you write that you are currently working in Gisen Bitan and ask for my opinion regarding your future arrangements.
+
+My opinion has long been known: all those who are suited for agriculture in Kfar Chabad should endeavor to eventually settle there. Even if, at first, you will not be able to earn a full livelihood from it and will need to supplement your income with side employment, the direction and aspiration should be to settle into agriculture—at the very least in vegetables, poultry, and the like. It is self-understood that this is dependent upon the state of one’s health and similar factors. May Hashem grant you the proper insight to decide what is best for you, both materially and spiritually.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 3728
+
+B"H, 16 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...It is already known that my opinion, which I have written to several of anash, is that the village and settling there serves as a channel and vessel for anash to receive the blessings of Hashem and success in all that they require, both materially and spiritually. Consequently, one should endeavor to be among the residents there as much as possible... From the above, it is understood that it is good to engage in agriculture. If the aforementioned reasons are true such that this is impossible, perhaps there is room for another profession, provided that one is a resident of the village and lives among those who cleave to the Torah of the Alter Rebbe—which is the Torah of Chassidus—and who follow its guidance and customs.
+
+With blessings.
+
+## G'ret
+
+B"H, 16 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, occupied with communal needs,
+Rabbi Menachem Zev, may he live, Halevi Shad'r
+
+Peace and blessing!
+
+...In continuation of the hint he heard regarding the month and day of the Hilula from what is written, "The tenth shall be holy to Hashem" — the combination of the Name Havayah that pertains to the month of Shevat is the one that appears in the verse adjacent to the aforementioned: "He shall not exchange it, and if he does exchange it, then it and its substitute shall be" (see [the source]... regarding the months of Teves and Shevat). The concept of this combination is explained in Etz Chaim, Shaar HaShemos, Chapter 7.
+
+#### ***G'ret***
+
+Printed in Likkutei Sichos, Vol. 11, p. 228, and completed according to the secretariat's copy.
+
+**Rabbi Menachem Zev, may he live:** Gringlas. Additional letters to him appear above in Vol. 9, p. 290, and in the references noted in the footnotes there.
+
+## 3,180
+
+B"H, 16 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+Surely, for one such as yourself, it is superfluous to elaborate on how much our Rebbes, our holy masters—and in particular my revered father-in-law, the Rebbe, of blessed memory—concerned themselves with Chassidic farbrengens, as is explained in many places in both manuscript and print. One of the intentions in this was to draw in even those who are, for the time being, outside the guidance and conduct of Chassidus, and subsequently, to the study of its teachings. It is understood that to people of this type, one must speak in terms appropriate to their current state, and not in the "sharp" terminology of Chabad, which might repel them rather than draw them near. This applies not only to the manner of speech, but even more so, and with greater reason, to one’s conduct in practical matters. If in the generations prior to this, the leaders of Anash in every location—and their elders—needed to be careful in this regard, and if their conduct was as it should be, it would not have mattered as much how the rest of Anash and the Chassidim conducted themselves; however, in these days, when people look at Chassidim—and especially Lubavitcher Chassidim—with a critical eye, each and every one, even those younger than sixty or fifty years old, must conduct themselves in such a way that their behavior draws in even those who are on the outside, and not the opposite...
+
+My request is that you do everything in your power to influence all those participating in the farbrengen so that the conduct of the participants will be in ways of pleasantness and ways of peace. This applies not only internally—for they are not suspected of lacking this—but even externally, in their speech and outward demeanor. I am confident that you will fulfill this request of mine as if it were your own. May it be His will that this be met with immediate success, namely, in the ever-increasing number of participants, including those who are not from Anash.
+
+With blessings, and awaiting good tidings.
+
+#### ***3,180***
+
+In continuation of this—see letter 3,257 below.
+
+**The combination of the Havayah:** See also Likkutei Sichos, Vol. 26, p. 90 and onwards.
+
+## 351
+
+B"H, 17 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings,
+
+In response to your letter in which you write about your situation in the yeshiva, what you have experienced in the past, and the ways to rectify this.
+
+First and foremost, you must increase your diligence and perseverance in the study of the revealed Torah and in the study of the inner dimension of the Torah—the *neshamta d'oraysa*—the study of Chassidus. Regarding the rectification of the matter you write about—where the vitality of holiness is clothed in matters of *kelipah*, Heaven forbid—you must strive all the more to add vitality to your aforementioned studies and also influence your peers so that their vitality in their own studies increases. Do not pay heed to the enticements of the *yetzer hara*, which confuses a person with various strange thoughts and thoughts of matters that are foreign to them. If you truly desire all of this, Hashem will grant you success.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 3282
+
+B”H, 18 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+It is somewhat surprising that since you left here, no letters have arrived from you. Therefore, I was doubly pleased to receive news regarding you in general, and specifically regarding the fact that the G-d-fearing, Torah-studying, and noble [name] has a position in his business. As is explained in many places in the words of our Sages, the true good is that which is good for Heaven and good for people. This is especially true according to the words of our Alter Rebbe and his well-known adage that "‘Love your fellow as yourself’ is the vessel for ‘Love Hashem your G-d’" (and some explanation of this can be understood from what is written in Tanya, Chapter 32). May Hashem grant him success in material livelihood, and especially in spiritual livelihood, and may he increase in both of these aforementioned avodos—between man and Hashem, and between man and his fellow—together.
+
+With blessings for success.
+
+## 3,183
+
+B"H, 18 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I have received the request for a blessing regarding your son, may he live, and his conduct. At an auspicious time, I will mention him at the holy gravesite of my father-in-law, the Rebbe, of blessed memory, for fear of Heaven, for proper conduct, and for the building of a home in Israel upon the foundations of Torah and mitzvos.
+
+However, it is self-understood:
+
+a) Regarding what you write—that you have followed all the advice and yet, until now, [the situation remains] as it was—in matters such as these, one must act and act again. Every single action brings closer the matters for which one is praying, especially when these are words that come from the heart.
+
+b) It is essential that you have complete and firm trust in Hashem, who performs wonders, that ultimately your son’s heart will be turned toward His service, may He be blessed, since it cannot be otherwise, and "no one shall be cast away from Him." Your firm trust and your service of Hashem in this matter as well—conducted with joy, even if it is mingled with bitterness—will hasten the change. May it be His will that this happens speedily in our days.
+
+With blessings.
+
+## 3194
+
+B"H, 18 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+To my surprise, I have learned of your daily schedule, which is not as it should be regarding the guarding of Hashem’s property—which is the body (see Shulchan Aruch of the Alter Rebbe, Hilchos Nizkei Guf V’Nefesh, section 4; and Rambam, Hilchos Rotzeach, chapter 1, halacha 4, and the commentary of the Radbaz there; Hilchos Sanhedrin, chapter 18, halacha 6). This is especially true according to what is explained in the maamarim and in several sichos, that the health of the body is one of the ways of Hashem, and the order of avodah must be specifically that of "you shall surely help him" (azov ta'azov imo). This is particularly relevant in our weak generation, even in the literal, physical sense (see Iggeres HaTeshuvah, beginning of chapter 3)—for we see clearly that physical weakness is the primary distraction from the avodah of Hashem in tefillah, as well as in the study of Torah and even in the performance of mitzvos. Therefore, for the vast majority, self-affliction brings more loss than gain. It is surely unnecessary to elaborate on a matter that is already explained.
+
+My hope is strong that upon receiving this letter of mine, you will not starve yourself for many hours of the day. Rather, you should drink something that strengthens the body and also eat some food in the morning, even before davening. The saying of our Rebbes and their instruction is already well-known: "One must eat in order to daven, not daven in order to eat." Their intention was also simple: if one is hungry during davening, it is impossible—for people of our stature—for this not to affect one's hisbonenus during tefillah and the length of time spent in it. Conversely, when one eats before davening, this distraction is removed, and it is within one's ability—if only one has the will—to perform one's avodah in a better and more elevated manner.
+
+As a rectification for having conducted yourself otherwise until now, you should also influence your surroundings so that all those who are not healthy, and in accordance with what is written in the aforementioned Iggeres HaTeshuvah, will not starve themselves. They should daven in the morning and also learn while the neshamah is in a body that does not distract it, and may the Ribono shel Olam grant you success.
+
+With blessings.
+
+#### ***3194***
+
+Published in Likutei Sichos, Vol. 21, p. 475, and a portion also in Vol. 24, p. 402.
+
+**The saying of our Rebbes and their instruction:** See above, Vol. 9, letter 2790, and the references in the footnotes there.
+
+## Djerba
+
+*[19 Shevat, 5715]*
+
+I hereby acknowledge receipt of your *pan*, and it is surprising that you do not mention anything regarding *farbrengens*, which surely have been held from time to time in your camp. My surprise is even greater, considering that when you were overseas, you were one of the primary individuals involved in such matters—even though you were together with several of *anash*—and now, in your city, you do not report on your activities in *hafatzas hamaayanos chutzah*, or in general regarding the strengthening and dissemination of Yiddishkeit. You will surely rectify this at the earliest opportunity, and may Hashem grant you success.
+
+With blessings for success.
+
+P.S.
+
+Enclosed is a copy of my letter to the branches of Agudas N'shei U’Bnos Chabad, which I hope you will utilize, as its content is truly relevant throughout the entire year, albeit with some variations.
+
+#### ***Djerba***
+
+Printed in *Likkutei Sichos*, Vol. 23, p. 545.
+
+**To the branches of Agudas N'shei U’Bnos Chabad:** See above, letter 243.
+
+## G'refo
+
+B"H, 21 Shevat, 5715
+Brooklyn.
+
+To the members of the Gemach Shomrei Shabbos Society,
+May they live,
+
+Peace and blessing!
+
+I was pleased to receive the news through the esteemed R' Yochanan Gordon, the secretary, that today (the day to perform them) — the parsha of "If you lend money" (if it is an **obligation**, not a choice, as per Mechilta; and in the vein of "Today, if you will listen to His voice," which brings the coming of Moshiach today, Sanhedrin 98a) — an extraordinary gathering is taking place in honor of the forty-sixth anniversary of the society’s existence.
+
+I hope that, according to the ruling of our Sages, "Whoever adds, they add to him," Hashem will add success to your work of gemilas chasadim. This is even greater than tzedakah, for gemilas chasadim can be performed simultaneously with parnassah and wealth among Jews, as our Sages say (Sukkah 49b) that gemilas chasadim is also for the wealthy.
+
+My hope and blessing is that your work in this area will be conducted with the feeling expressed at the end of the aforementioned verse: "If you lend money... **to the poor person among you**." That is, the sum that the borrower needs—at which moment he is indeed a poor person—is only in the hands of the one performing the kindness as a deposit. The borrower is the one who enables the giver to be privileged with this great mitzvah, and without the borrower, he would not have attained the merit of the mitzvah (see there in the Ohr HaChaim HaKadosh).
+
+From this feeling, one should arrive at an even higher level of feeling in tzedakah and gemilas chasadim, according to the famous saying of the early Chassidim, which was transmitted to us by my father-in-law, the Rebbe, of blessed memory: "The piece of bread that I have is more yours than mine," placing the word "yours" first—"yours than mine."
+
+This is a concept that is easy to understand according to the explanation of the Alter Rebbe in Iggeres HaKodesh in many places: that in order to receive influences from Above, and especially material influences in actual physicality, it is specifically through the mitzvah of tzedakah, which draws [Divine light] down to the lowest levels.
+
+With blessings for success in your holy work, and may this also bring an increase of blessing and success to each and every one of those involved—both in their bodies and in their finances—to them and their households, may they live,
+
+**M. Schneerson**
+
+## 3787
+
+B"H, 21 Shevat, 5715
+Brooklyn
+
+Greetings and blessings,
+
+It gave me pleasure to receive your letter, in which you write about various problems, but you do not mention what you went through since the year 5687. At that time, my father-in-law, the Rebbe, of blessed memory, spoke to me about you, about your talents and your capabilities, and it was to be hoped that if you would utilize them and bring them from potential into action, there would be great benefit for many. Since the words of the tzaddikim are alive and enduring—and the meaning of this is that they also continue to exert their influence—surely, to a certain extent, the aforementioned has been realized. I would be interested to know the details regarding this, and I thank you in advance.
+
+It is surely unnecessary to remind you that if in our place in the past, they demanded from each and every one of those present there work in supporting yeshivos and disseminating them in the spirit of the elders of Israel—even though this was connected with actual mesiras nefesh, meaning literally the sacrifice of the body—then how much more so is this demand great when one is in a place and a country where one is not required to do anything other than the mesiras nefesh as explained in Chassidus: the sacrifice of the will. For just as the giving of the Torah and its mitzvos at the time of the general Matan Torah was specifically through the precedence of "we will do" to "we will hear"—the language of understanding—so too is it for the giving of the Torah and its mitzvos every day. As in the phrasing of the blessing, "Giver of the Torah," which is in the present tense, the foundation and the beginning must be through the precedence of "we will do" to "we will hear." Only afterwards are the power of chochma, the power of binah, and the power of daas—the intellect within a person—harnessed for the avodah, as is explained in many places in the books and maamarim of Chabad. The merit is greatest of all for those who have influence over the youth, for it is easier to shape the character of each and every one of the younger generation than that of a person in middle age, and certainly old age.
+
+2) Regarding what you wrote about the question of continuing the publication of *HaKria VeHaKedusha*, you are surely aware that together with the end of the Second World War, my father-in-law, the Rebbe, of blessed memory, also ceased the publication of the monthly journal.
+
+3) Regarding what you wrote about preparing instructors and mashpiim who will teach the study of Chassidus in Lashon HaKodesh, you are surely aware that there are many who teach the study of Chassidus in public in Eretz Yisrael, may it be rebuilt and established, who do this in Lashon HaKodesh. Since you cite in such a matter the verse, "Apples of gold in settings of silver," it is surely unnecessary to emphasize that, at the very least, the relationship between the content and the language must be like that of gold to silver, if not more so. As is known, the Rambam cites this verse regarding the parable and the subject matter of the Torah, whereas here we are speaking of the content of the words and their language. Therefore, I find it somewhat strange that you elevate the silver so much in your letter in relation to the gold. It seems from your letter that in certain offices in Eretz Yisrael, may it be rebuilt and established, they emphasize the external specifically at the expense of the internal. Naturally, I did not want to suspect you in this matter, and I justified you by saying that the "air of Eretz Yisrael" is liable to influence such things. If this is a suspicion that has no basis, then my heart will also rejoice. You will surely utilize your influence in the aforementioned offices as far as your reach extends, so that they will provide the ability for the youth of Chabad to increase their work by increasing the budget for them. It is understood that there is room to say that they will immediately come with the argument that this is against the principle and the plan of the office, etc., etc.—but surely they too admit that an even more internal principle is to prepare a public of listeners for words of Torah, and not, G-d forbid, rebels against it.
+
+4) It gave me pleasure to read at the end of your letter that you will send me the offprints of the chapters and maamarim that you have published, as well as your book that is currently in print. You have surely already sent them, and I thank you.
+
+5) As per your request, I have instructed the secretariat to send you a catalog from our publishing house, and when you inform us of the books and maamarim that interest you, they will be sent to you, G-d willing, if they have not yet gone out of print.
+
+6) You surely participated in the farbrengen of the day of the Hillula, and you have surely seen the maamarim of the day of the Hillula that were published with additions.
+
+With respect and blessing.
+
+## 278
+
+B"H, 21 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 15 Shevat, in which you write that you lack a connection to your learning because your thoughts distract you:
+
+It is well known that every single Jew has a letter in the Torah, and all matters concerning a son or daughter of Israel are drawn down through the Torah. Therefore, it is impossible for one not to have a connection to the Torah—the Torah of life. It is only that the *yetzer hara*, the "old and foolish king," conceals and hides the truth. The advice for this is what our Sages of blessed memory said: "If this scoundrel encounters you, drag him to the *beis medrash*." When one exerts himself in his learning with *hasmadah* and *shekidah*, Hashem will grant him success. Surely, his learning will be in purity through the *avodah* of *tefillah*, the *mikveh* of *taharah*, and the study of *nishmata d'oraysa*—the inner dimension of the Torah, the *Torah* of *Chassidus*.
+
+With blessings,
+
+On behalf of the Rebbe, *shlita*,
+
+Secretary
+
+## 345
+
+B"H, 21 Shevat, 5715
+Brooklyn.
+
+To the esteemed Rabbi, the G-d-fearing, of noble lineage, etc., etc.,
+Rabbi Shalom Yechezkel Shraga, shlita
+
+Peace and blessing!
+
+I was pleased to receive your letter in due time, along with the enclosed questions and answers regarding the laws of compelling a plaintiff, which is returned herewith as you requested. Your Honor has already demonstrated in your response the relevant passages in the Gemara and the poskim that discuss such matters. In my opinion, the essential point here is that the dayanim must clarify, to the best of their ability, whether the concern that the plaintiff will evade [the proceedings] is genuine or a ruse. It is the duty of the dayan to judge a true judgment, as our Sages of blessed memory stated (Shevuos 30b, also cited in Tosafos, s.v. "Din," Bava Basra 8b) as a halachic ruling, that in the vast majority of cases, the dayan must decide based on this whether to grant the defendant’s request when he claims that the plaintiff will subsequently evade [the proceedings].
+
+Enclosed is what I wrote in connection with the yom hilula of my revered father-in-law, the Rebbe, of blessed memory, on the 10th of Shevat, which I am sure will be of interest to Your Honor.
+
+With respect and blessing.
+
+***
+
+**Rabbi Shalom Yechezkel Shraga:** Rubin-Halberstam, the Rebbe of Cieszanów. Another letter to him appears above in Vol. 8, 2397.
+
+## 3190
+
+B"H, 21 Shevat, 5715
+Brooklyn.
+
+To the esteemed and distinguished individual, known as Dr. Ullman, may he live:
+
+Peace and blessing!
+
+I acknowledge receipt of your letter dated [10/2/55], and I was pleased to hear that Dr. Zuber, may he live, is prepared to assist you...
+
+It is surprising that you do not mention in your letter your good deeds regarding the strengthening and dissemination of Yiddishkeit in your current location. After all, regarding every such good deed, our Rabbeinu HaZaken, the Baal HaTanya—who is the arbiter of the hidden dimension of Torah and the Shulchan Aruch of the revealed dimension of Torah—states in his holy Tanya, at the end of Chapter 25, that above, it is eternal forever and ever, and only below is it subject to time (see there). From this, one can understand the magnitude of the merit, as well as the responsibility, inherent in every single action, even one that appears to the physical eye to be minor and insignificant.
+
+One can also find an analogy for this in the field in which you are engaged: research into the disease of cancer, may Hashem spare us. The beginning is a single cell that starts to grow in an abnormal fashion; if this growth is not checked, it brings destruction and ruin upon the entire collective of which it is a part. And if this is true regarding the measure of punishment, how much more so is it true regarding the measure of goodness: when it enters a person’s heart to act upon a "single cell" so that it grows and develops in a supernatural way—but toward the good—the success of the entire collective of which this cell is a part is concealed within it. And for one such as yourself—who is engaged in this research—the explanation is surely superfluous.
+
+I have now received the newspaper. Many thanks.
+
+With blessings for success, awaiting good news.
+
+## 3191
+
+B"H, 21 Shevat, 5715
+Brooklyn
+
+To the distinguished Rabbi and Chossid, scion of holy ancestors, possessor of fine character traits, etc.,
+Rabbi Chaim Shimon Zev, may he live.
+
+Peace and blessing!
+
+It was with pleasure that I received your letter from the day of the Hilula of my revered father-in-law, the Rebbe, of blessed memory, regarding the significance of the name of the one whose Hilula is being observed. If it is said of every person that the Ribono shel Olam places in the mouths of the parents the specific name that is essential to that soul, according to the place in the *Adam HaElyon* from which it was hewn, and that this name is inscribed above on the *Kisei HaKavod* (see *Shaar HaGilgulim*, Introduction 23; see also *Emek HaMelech*, Shaar 1, end of Chapter 4; *Ohr HaChaim HaKadosh*, Devarim 29:19; *Degel Machaneh Ephraim* on Bereishis, and elsewhere), then this is certainly true of the name of a Nasi of Yisrael, whose soul is the aspect of the "head and brain" for the souls of our generation, as brought in *Tanya Kadisha*, Chapter 2.
+
+One may add a hint regarding the contents of your letter based on what is explained: Yosef is *gematria* six times *Havayah* (*Likkutei Torah* of the Arizal, Parshas Vayeshev, and elsewhere), and he was the sixth generation from Rabbeinu HaZaken, the founder of the Chabad Chassidic path. And Yitzchak is *gematria* eight times *Havayah* (*Pri Etz Chaim*, commentary on the Haggadah, 28) for he was the eighth generation from the Baal Shem Tov, the founder of the general Chassidic path (see also *Likkutei Torah* of the Arizal, end of Parshas Vayeira, regarding the connection between Yosef and Yitzchak and the aforementioned *gematria*). As is known in the interpretation of our Sages regarding the verse "In the beginning, *Elokim* created"—the Ribono shel Olam sought to create the world with the attribute of *Din* (judgment), but saw that the world could not endure, so He combined with it the attribute of *Rachamim* (mercy), as it is written, "On the day that *Hashem Elokim* made earth and heaven." The meaning of this combination is the conduct of miracles in the world through the Tzaddikim, and all of this is hinted at in the names themselves: Yosef, as it is said, "May *Hashem* add (*Yosef*) for me another son," and the Tzemach Tzedek explained that he transforms the "other" (*acher*) into a son. Yitzchak, "Laughter (*tzchok*) has *Elokim* made for me"—through the clarification and refinement of the concealment of the name *Elokim*, which is a shield for the sun, which is the name *Havayah*, "our mouth will be filled with laughter" in the time to come (see *Midrash HaNe'elam*, Bereishis 115a and onwards), through the *avodah* of *birurim* and refinement here during the time of *galus*. One who contemplates the history of the life of my revered father-in-law, the Rebbe, in this world and his activities, will see that these two, which are one, as mentioned above, are the very foundation and purpose of his *avodah* in holiness.
+
+Enclosed is a copy of my letter regarding one of our customs, which I am sure will interest you.
+
+With respect and blessing for health.
+
+## 3192
+
+B"H, 21 Shevat, 5715
+Brooklyn.
+
+To the esteemed, G-d-fearing, and distinguished R' Gershon Chanoch Henich, may he live:
+
+Peace and blessing!
+
+I was pleased to receive your letter, in which you write about the work to strengthen and spread Yiddishkeit in the spirit of our ancestors. If in all times it was necessary to engage in this and it was a personal obligation, it is certainly true that in this time of double and redoubled darkness, it must be done to a much greater extent and with more energy. Even though we have not yet merited the true Geulah, and not even the *aschalta d’geulah* (beginning of the redemption), yet according to all the signs, and according to what we have heard from our Nasi, my father-in-law, the Rebbe, of blessed memory—"Behold, he stands behind our wall" (in the language of the Rambam, *Hilchos Melachim*, Chapter 11, Halacha 4). He will be a Jew who studies Torah and fulfills mitzvos just like King David, both Torah Shebichtav and Torah Shebaal Peh. He will compel all Jews to walk in the proper path, the path of Torah, and will strengthen the areas that are still lacking, and will wage the wars of Hashem. At that time, he will build the Beis Hamikdash, and afterward, he will gather all the Jews from exile. He will not be satisfied with that alone, but will also ensure that the entire world serves the Ribono shel Olam, as it is written, "to serve Him with one accord." This Mashiach is already standing behind our wall.
+
+Therefore, everyone must not only do their part in Torah and mitzvos in general and teshuvah in particular—teshuvah in its simple sense, observing all the practical mitzvos—but must also influence friends and acquaintances so that they, too, will do teshuvah and begin to fulfill practical mitzvos in their daily lives, in the most literal sense: keeping kosher, observing Shabbos, observing taharas hamishpachah, raising children according to the law of Moshe and Yisrael, etc. This, and only this (and not any political "ideals," and not any "mitzvos" that one chooses for oneself—for the Torah does not recognize such mitzvos), will bring, first, the *aschalta d’geulah*, and subsequently the completeness of the Geulah, speedily in our days.
+
+With blessing.
+
+## 3,193
+
+B"H, 21 Shevat, 5715
+Brooklyn
+
+To the esteemed Rabbi, G-d-fearing and learned, Rabbi Yaakov Yitzchak, may he live.
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your two letters from the week of Parshas Bo. Time does not currently permit engaging in *pilpula d'oraisa*. Regarding your question as to whether our women follow the custom mentioned in the *Bach* (Tur Yoreh Deah, siman 188) not to go to the bathhouse during the days of *levonen*: I have not heard that they follow this practice. See the various opinions on this in *Darkei Teshuvah* (siman 188, sub-section 9). See also *Responsa Maharsham* (Part 2, siman 40) and *Responsa Maharash Engel* (Part 6, siman 97).
+
+2) The *Responsa Pekudas Elazar* that I mentioned in my letter is by the esteemed Rabbi, etc., Elazar Loew (Satmar, 5691). It discusses the matter of electricity regarding Chanukah and the like; see also *Sefer Mishpetei Uziel* (Part 1), *Kaf HaChaim* (siman 673), *Yaskil Avdi* (Part 2, Orach Chaim, siman 9), *HaMe'assef* (Year 9, Part 8, siman 91), and *Shoshana* (Djerba, 5715, Part 10).
+
+With blessing,
+
+On behalf of the Rebbe, shlita,
+Secretary
+
+When one recites the chapters of Hallel as part of the order of reciting Tehillim—meaning without a *bracha*, while seated, without repeating verses, etc.—it is as if they are **clarifying**, through these changes, that their intent is not the recitation of praise and Hallel, but merely the recitation of verses. Therefore, some say the entire Tehillim by heart, even though one who recites Hallel by heart, etc. (See *Magen Avraham*, beginning of siman 484; *Shelah*, Maseches Tamid, page 257; *Tzemach Tzedek* on Tehillim 40:7, sub-section 10).
+
+Canned goods—whether they are considered "cooked" such that their *bracha* is *Shehakol*—depends on the common consensus of people. It is not a matter of "pickling being like cooking." Follow the reason (*zil basar ta'ama*).
+
+An **empty** old pot on the fire—it is puzzling what benefit there is in this, as it is **damaging**, especially with metal. This is evident to the senses, and it is explicitly written in the context of calamity (*Yechezkel* 24:11): "Set it empty upon the coals thereof, that the brass of it may be hot..." Regarding what is written in *Shulchan Aruch* (Orach Chaim, siman 318, section 12)—that refers to when there is water inside. (And if it was permitted in such a case, how much more so that one should not forbid an empty one, which is damaging, **lest** one intend to **begin** the work of smelting!) Therefore, all the *poskim* in siman 253, section 3, state it generally: "An old empty pot," and they did not distinguish between earthenware and metal. (Regarding what is written at the end of siman 502 concerning **earthenware**, it could be argued that, on the contrary, metal is more lenient, and there is room to permit it even with a new one. See there.)
+
+The prohibition of healing a non-Jew and the like is due to *Lo Sechaneim* (*Avodah Zarah* 20a), and not because "we do not lower them [into a pit]," for not every non-Jew falls under the law of "we do not lower" (*Shulchan Aruch*, Yoreh Deah, beginning of siman 158). Therefore, one should not distinguish between whether there is a danger or no danger. It is simple.
+
+***
+
+**Rabbi Yaakov Yitzchak:** Saltz. Additional letters to him are above, 2,998, and in the notes referenced there.
+
+**That I mentioned in my letter:** Above, 3,192.
+
+## 3,794
+
+B"H, 21 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+Following your silence, your letter of 17 Shevat was received. It is surprising that you do not mention anything regarding the yom hilula of my revered father-in-law, the Rebbe, of blessed memory—the tenth of Shevat—which surely must have brought about a change for you, whether in the study of the Torah of the baal hilula or in similar matters. As is the custom of those who give tzedakah, I hope that you had a generous eye regarding your own affairs and the affairs of others as well.
+
+Regarding what you write about the various people in your location who cannot, or do not have the desire to, engage in strengthening Yiddishkeit and its dissemination due to various strange reasons: it is the truth of hashgacha pratis that it is precisely this which brings a specific person to a specific place at a specific time, where there is no lack of ability for a person to fulfill their role in such a manner. Rather, a person is given free choice, and two paths are set before them, as it is written, and the verse concludes—and this itself is also the granting of strength—"Choose life."
+
+However, just as all the above applies to those you write about, it applies equally to you yourself. And even though one person, or a few, doing something is not the same as the many doing something, once an individual has done what is in their power to arouse the many and to join them to this holy avodah, then even if, for the time being, those individuals have not responded to their words, it is understood that this does not exempt them from their share in this avodah. On the contrary, sometimes this also relates to the teaching of our Sages, "They merit and take their share and the share of their colleague" (in the avodah of Torah and mitzvos in the beis medrash, they take their share and take the share of their colleague) in Gan Eden. For the true Gan Eden, and even higher than that, is the hiskashrus to Hashem, the performance of the mitzvos, and dveikus to the living G-d, as our Sages say, "The reward of a mitzvah is a mitzvah." It is unnecessary to elaborate on a matter that is understood and also simple.
+
+Enclosed are the maamarim for the yom hilula that have been published with additions, and surely you will merit to share their content with the many.
+
+With blessings for health and success in all of the above.
+
+## 375
+
+B.H., 22 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I hereby acknowledge receipt of your letter from 2 Shevat, along with the *pidyon nefesh* enclosed therein, as well as the *pidyon nefesh* from the day of the *hilula*. I will read them at an auspicious time at the holy *tziyun* of my father-in-law, the Rebbe, of blessed memory.
+
+Regarding what you wrote concerning your situation—that my letter caused you distress, and so on—it is understood that this was not my intention, and therefore my letter could not have caused it. This distress is also a tactic of the *yetzer hara*, which confuses a person in every way it can find, to the point that it sometimes agrees to dress itself in the mantle of a *chossid* and a G-d-fearing person, as is brought in *Hayom Yom* for 23 Sivan. I have already written this many times, and I repeat it once again: in truth, you can be happy with your lot, even after taking into account all the matters you write about. Especially since, through being happy with your lot, the state of many of these matters will improve, as is explained in those places I noted in my previous letters and in this letter itself.
+
+Regarding what you wrote—that even if your nerves are frayed, this too is a matter that is not as it should be—it is understood that I agree with you on this. The difference between us is only that my opinion is clear: the most excellent remedy for this is *hesech hada'as* (diverting one's attention), and even refraining from entering into any analysis or debate about it. This is in contrast to your habit, where you begin to contemplate your situation and argue with yourself about your manner and state. If only, from now on, you would divert your attention from all these concerns regarding your health, and so on. And if it is difficult to achieve this on your own, the advised remedy for this is to study *bifnim* (deeply) in a place where your heart desires. When one is immersed in Torah, thoughts that are not as they should be are naturally pushed aside; and that which is well-known and visibly apparent requires no explanation.
+
+With blessings for health and success in all your endeavors, with joy.
+
+#### ***375***
+
+**In the mantle of a *chossid*:** See also above, letter 311, and the references in the notes there.
+
+## 375
+
+B"H, 22 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter in which you write that you are a mohel, and you ask regarding the specific Chabad customs related to the entry into the bris and the days preceding and following it:
+
+I have not heard of any specific instructions regarding this. In general, we follow what is written in the Siddur of the Alter Rebbe; see also the *Shaar HaKollel* there. It was the custom of my father-in-law, the Rebbe, of blessed memory, that when he was invited to a bris—where he would, of course, serve as the sandak—at the beginning of the seudah, he would give a sum of money to the yeshivah. He would say that this was an *aufgab* (an initial payment) for tuition for the child being circumcised, for when he grows up. Since it is a person’s duty to speak in the language of his teacher, on the occasion when I was present—this was in Warsaw—he gave twenty zlotys and said, "This is for Tomchei Temimim, an advance on tuition."
+
+Regarding what you wrote, that you have merited to taste a little from the Tree of Life—the teachings of Chassidus—you should delve deeply into the statement you wrote, that it is indeed a Tree of Life. Therefore, you should certainly do everything in your power to establish regular shiurim in the study of these "words of the living G-d." According to the ruling of our Sages, "The study is not the main thing, but the action"—walking in its ways and conduct. This is especially true since your profession is to bring the children of Israel into the bris, and the concept of the bris is above intellect and understanding (see *Likutei Torah*, beginning of Parshas Nitzavim). This is performed on the human body before it has reached the stage of understanding, as it is written, "On the eighth day he shall be circumcised," at which point it is the **beginning** of the entry of the holy soul (*Shulchan Aruch* of the Alter Rebbe, second edition, end of section 4). Therefore, your own conduct must also follow this path—namely, the study of the inner dimension of the Torah, the secrets of the Torah, which in themselves are above comprehension and understanding. Thus, the beginning of this study is through the path of *kabalas ol* (accepting the yoke), below the level of comprehension and understanding. Through this, the hidden aspect of the holy soul within a person is also revealed, for the "hidden of the Torah," when it comes into the open, reveals the "hidden" within the Jewish people as well.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+#### ***375***
+
+**It was the custom:** See also *Hayom Yom* for 28 Adar Rishon; *Sefer HaMinhagim - Chabad*, p. 23.
+
+*) R. Yosef ibn Migash, in the *Chiddushei HaRashba* to *Shevuos* 21a. [See *Likutei Torah* to *Likkutei Gimmel Parshiyos*, 54d, at length].
+
+## 3,797
+
+3,797
+
+B"H, 23 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I received your letter in which you write—albeit very briefly—about your safe arrival and that there is order and peace in your home and family. It is surprising, however, that you do not mention whether you have settled into the work at the yeshiva as we discussed before your departure. I am sure you will fill me in at the next opportunity.
+
+Regarding what you wrote—that since the thought occurred to you to settle in Jerusalem (may it be rebuilt and established) and be able to dedicate more of your time to avodas Hashem, you have encountered various troubles and obstacles from time to time—surely it is known to one such as yourself that this has always been the way of things. For words of Torah are acquired only through toil, as our Sages said: "If one says, 'I have not toiled and yet I have found,' do not believe him." Toil means not only in understanding and grasping the subject, but also the toil of removing distractions from the outside. Based on this, one can understand the precision in the Mishnah, which mentions the mode of studying and fulfilling the Torah while in poverty, and the neglect of Torah while in wealth, but does not mention the mode of fulfilling it while in wealth (the fact that it does not mention the neglect of Torah while in poverty is not a difficulty, for one is not always punished for that, as our Sages said that it is specifically Hillel who obligates the poor). Therefore, the way of Torah is "a morsel of bread with salt, etc.," and "be careful with the children of the poor," and it is acquired through a reduction of taanug, etc. When one merits it, Hashem succeeds his efforts such that after one stands the test during the initial period of concealments and obstacles—by not paying them any mind—the obstacles gradually diminish until they are nullified entirely. This is especially true through the study of the Torah, the *neshamta d'oraysa* (the soul of the Torah), which is called in the holy Zohar "the Tree of Life," without any mixtures (see there, Vol. 3, 124b).
+
+It is my hope that you remind yourself from time to time of what we discussed regarding the necessity of this study of the *neshamta d'oraysa*, the pnimiyus haTorah, and that you also fulfill it in practice. For the movement of one's lips is an act (at least a minor one), which subsequently leads to an increase in actual deed as well.
+
+With blessings, and awaiting good news.
+
+## 3,798
+
+B"H, 23 Shevat, 5715
+Brooklyn
+
+To the Administration of Kfar Chabad
+May they live
+
+Peace and Blessing!
+
+I hereby acknowledge receipt of your letter from the day of the Hilula of my father-in-law, the Rebbe, of blessed memory, as well as those preceding it. I wish to be certain that, at the very least, from this point forward you will write regarding the various farbrengens in Kfar Chabad, and with appropriate detail.
+
+I would like to note, specifically regarding what you wrote about the Yud-Tes Kislev celebration, that you were brief where you should have elaborated significantly. Surely, on the next occasion, you will make up for this—especially if the sending of the recording of the farbrengen is delayed, or if it was not recorded in its entirety. After all, at the Tzeirei Agudas Chabad gathering that took place some time ago in the village, they sent the speeches, etc., immediately after the gathering.
+
+Based on letters I have received from some who are concerned that the existence of orchards provides a place for hiding, you should have contemplated and examined whether there is room for this concern, and discussed the direction of what should be made known to the appropriate offices. This is especially true since, if the matter of the exchange with the Mehadrin land is delayed, there is room to say that they will plant orchards there as well. And it is doubtful whether they would agree to increase security in a manner appropriate to the expansion of the orchards.
+
+With a blessing for success in your holy work to strengthen and develop Kfar Chabad so that it becomes a "dwelling place for Him in the lower worlds." For this, one needs *gezunte ruchniyus* and *gezunte gashmiyus* (healthy spirituality and healthy physicality), and "the desire of Hashem will succeed in their hands," through the vessel that holds the blessing of the Holy One, Blessed be He: peace, unity, and *hiskashrus* to our Nasi, by fulfilling his intention and will in this village, and, of course, according to what is explained in *Tanya*, Chapter 2.
+
+Awaiting good news regarding all of the above.
+
+***
+
+**3,798**
+
+**Place for hiding:** For Arab infiltrators, which led to the murder mentioned in letter 3,661 and noted in the footnotes there.
+
+**The exchange with the Mehadrin land:** See regarding this, above, Vol. 7, letters 1,939, 1,978, 2,242.
+
+**There is room:** Meaning, the Mehadrin orchard company has land adjacent to Kfar Chabad that belongs to them and is not yet planted with orchards. This has been discussed for some time regarding receiving this plot of land for the construction of additional houses for Kfar Chabad (see also above, letter 3,660). If this plan is delayed, there is a possibility that the Mehadrin company will plant orchards there.
+
+## 3190
+
+B"H, 23 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...Regarding what you wrote, that some of the Yemenite community are hindering the efforts to hold Shabbos parties for boys and girls because, in their opinion, this is forbidden on Shabbos—you did not explain their reasoning for this. It is possible that the reason is due to the singing and dancing involved, based on Shulchan Aruch, Orach Chayim, section 339, paragraph 3. If this is the case, you should have spoken with the rabbis of the Yemenite community and explained to them that this has **long** been permitted by the authorities in the context of a *simchas mitzvah*. And the custom of Israel is Torah. Come and see what the people actually do. Even the Sephardim themselves surely conduct themselves this way on Simchas Torah, and I believe also on Pesach during the Seder; yet the reasoning of those who would abstain is the same for both Shabbos and Yom Tov [and *Simchas Beis HaShoeivah* in the Beis HaMikdash is different, as mentioned in Tosafos, s.v. *Rabbanan* (Sukkah 50b)]. You should explain to them that the concept of the Shabbos party was established by my father-in-law, the Rebbe, *ztzuklaleh, nbgm, zy"a*, the Nasi of Israel. This matter is discussed at length in the responsa *Minchas Elazar*, Part 1, section 29, and at the end of the second part, where he permits it even according to the *Beis Yosef*. Once their rabbis permit the matter, it will surely lead to an increase in these Shabbos parties. In any event, one should not create a dispute between the *Beis Yosef* and the *Rema* (see Shulchan Aruch and the commentaries there, Orach Chayim, section 339, paragraph 3), and consequently, there is no distinction between Ashkenazim and Sephardim.
+
+It is my hope that this matter will be arranged as soon as possible, so that they will not be suspected of wanting to force the Yemenite and Sephardic children to follow Ashkenazic customs...
+
+With blessings for success in your holy work.
+
+#### ***3190***
+
+Published in *Likkutei Sichos*, Vol. 21, p. 342.
+
+## Gimmel-Shin
+
+B"H, 24 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...It is understood that I do not wish to specify the name or names, but... as is known, the story in the name of the Tzemach Tzedek—(though I did not hear it from my father-in-law, the Rebbe, and therefore I am not certain if it is so)—in any event, the content is appropriate and true. It is as follows: He once said at a farbrengen, after words of rebuke, that his matter in this is like a hatter who makes hats of specific sizes. It is not written on the hat to whom it belongs; rather, afterwards, when someone comes and tries on different hats, it is possible that he will find the hat in the size that fits him, and then he wears it and it becomes his. And he concluded: "And I truly mean this." And the same applies to the matter at hand...
+
+## Gimmel-Shin-Alef
+
+B.H., 25 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and learned R' Dovid, may he live:
+Shalom u’Bracha!
+
+In response to your letter from Rosh Hashanah La’Ilanos: It is surprising and puzzling that each person asks for my opinion regarding settling in Kfar Chabad individually, and there are those who are meticulous and ask multiple times.
+
+It is clear that I have stated that, as it appears to me, the channel, the vessel, and the place for the blessing of Hashem and for one’s success—which the Rebbe, my father-in-law, of blessed memory, strongly urged for the benefit of anash, the refugees from our country who are now in Eretz Yisrael, may it be rebuilt—is Kfar Chabad, whether in the village as it is now or in the parts currently being built. Therefore, each and every one of them must strive to settle there permanently in an appropriate manner, without deceiving or incurring debt to others. Even those who, for whatever reason, currently require their livelihood—or part of their livelihood—from work elsewhere in Eretz Yisrael, must seek ways and means so that, little by little, their entire livelihood will be established in the village.
+
+We see tangibly that the sources of livelihood in the village are increasing through the new buildings and institutions.
+
+My hope is strong and certain that they will continue to grow and develop. Furthermore, even the younger, active members of anash who are in Eretz Yisrael in general should consider the possibility of them, too, settling in this village. It is understood that this applies only to those who are not tied to other places due to the nature of their work in the vineyard of Chabad, where their presence is required elsewhere and, consequently, their livelihood is there as well.
+
+Surely, a short time will pass and those who wish to settle specifically in the village will increase. It is understood that priority will be given to those who labored in its construction and development, as opposed to those who stood on the sidelines. And who can speak for those who were already there and moved to another place due to imagined matters and reasons that have no basis in reality? In truth, this is nothing but the incitement of the yetzer, which, in its external aspect, does everything to confuse a person from the avodah of Hashem and to hinder it with all its might. Furthermore, it has an "evil eye" even regarding their physical well-being, and consequently, it strives to confuse and diminish that as well. Consistent with the above, it is my opinion that even those who, for the time being, have moved from the village to other places must seek ways and means to return to their place and occupy themselves with preparing the channels and vessels for the aforementioned blessing and success.
+
+It would be good for you to **publicize** this opinion of mine among anash. The Torah is concerned for the money of Yisrael; [it is better not] to write to me with questions about matters where my answer is understood from the outset. May it be the will of Hashem that the concealments and hiddenness for each and every one—even in this matter—diminish until they are nullified entirely, and they will see the place of their spiritual and **physical** success where they are, and will not search in places that are not...
+
+With blessings.
+
+## 322
+
+B"H, 25 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...Regarding what you wrote about your son, may he live, that it distresses him that he does not know secular subjects and, consequently, does not know how he will manage in the future. (In truth, there is no wonder in this lack of knowledge, for it aligns with the statement of our Sages, of blessed memory, that this is the case for all people: no man knows how he will earn his livelihood. See the Iggeres HaKodesh of the Alter Rebbe, beginning of Chapter 22, where this lack of knowledge is compared to the lack of knowledge regarding when the Kingdom of the House of David will return. It is only that there are those who deceive themselves and bless themselves in their hearts, thinking they know clearly what the future holds regarding the livelihood of themselves and their households. And regarding the practical matter), since he is eighteen years old, it is best for him—not only in spiritual matters but also in physical ones—that he not be distracted by thoughts about his "purpose" and the like, and that he should study with tranquility, diligence, and persistence. The One who sustains and provides for all has certainly already prepared his channel of livelihood; what difference does it make if the channel and its nature are not yet known at this time? A father, especially one who merited to be educated within the walls of Yeshivas Tomchei Temimim, should offer thanks and praise to Hashem that, despite all the concealments and destructions, may Hashem spare us, Hashem has blessed him with a son who sits and occupies himself with Torah and avodah, fulfilling the purpose of man’s creation, which is to serve his Creator.
+
+It is surprising that when you write about your second son—who, as you write, lacks a sense of persistence, and consequently much time is wasted for him, even though he is talented—I did not find in your letter that this also distresses you. If only you would contemplate how to rectify the matters of this son, rather than changing the conduct of your eldest son. It is understood that my intention in the above is not to preach, Heaven forbid, but since you asked for my opinion, I am compelled to describe the matters as I see them, which is as stated above.
+
+As you requested, I will mention your wife and your children, may they live, at the holy gravesite of my father-in-law, the Rebbe, of blessed memory. Surely, he will arouse Divine mercy for the health of all those mentioned, and may you and your wife, may you live, merit to see from your children much Chassidishe nachas, through their being G-d-fearing, Chassidim, and scholars.
+
+With blessings for good tidings in all the above.
+
+P.S.
+
+Regarding your question as to how to understand what is sometimes mentioned in Chassidus concerning matters that, on the face of it, are contrary to the laws of nature—not all matters are the same in this regard. In the vast majority of cases, it has become clear, especially in recent times, that even researchers who are not of the Children of Israel agree with what is brought in the books of Israel—and not only in Chassidus, but even in the books of Jewish scholars.
+
+## 353
+
+B"H, 25 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 12 Shevat, in which you write about the economic situation in your family, noting that earning a livelihood is difficult for you, especially as you must also support other members of the family. Consequently, you ask whether the gates of heaven have been locked, Heaven forbid, and why the way of the wicked prospers.
+
+It is unnecessary to elaborate on the fact that this question—not only why the way of the empty-handed prospers, but even the way of the wicked—was already asked by Moshe Rabbeinu (Berachos 7a). Thousands of years have passed since then, and Bnei Yisrael continue to walk in the path of Torah and mitzvos; it is precisely through this that our nation exists, as it is written: "And you who cleave to Hashem your G-d (it is specifically through this, and only through this) are all alive today." This applies to each and every one of us. If there are matters that come with difficulty, especially regarding parnassah, it is not, Heaven forbid, because one is keeping Torah and mitzvos; on the contrary. By strengthening one’s bitachon in Hashem, who feeds and sustains everyone with kindness and mercy, the difficulties in this area are diminished, and eventually, the situation of one's parnassah improves as well. The segulah for this is also to increase one's involvement in Torah and mitzvos, as it is written: "If you walk in My statutes and keep My mitzvos... then I will give [you your rains in their season]..."
+
+You are surely aware of the takanah of my father-in-law, the Rebbe, of blessed memory, to recite a portion of Tehillim every day after Shacharis—according to the monthly division of Tehillim. You should observe this, at the very least from now on, and may it be the will of Hashem that this, too, will hasten the improvement of your situation.
+
+With blessings,
+
+On behalf of the Rebbe, shlita
+
+## 344
+
+B"H, 25 Shevat, 5715
+Brooklyn, N.Y.
+
+To the esteemed Rabbi and Chassid, G-d-fearing and upright, engaged in communal needs, a man of fine character and abundant accomplishments, etc., Moreinu HaRav Nissan, may he live:
+
+Peace and blessing!
+
+I, too, join those who are blessing you on the occasion of the thirtieth anniversary of your service at the Bnei Yitzchak Nusach HaAri Z"L synagogue.
+
+May it be the will of Hashem that you succeed in ensuring that the synagogue justly bears the name "Nusach HaAri Z"L," in accordance with the matters and instructions of the Arizal as explained in the teachings of Chassidus, and specifically by our Rebbes, the Nesi'im, of blessed memory.
+
+With respect and a blessing for success, for long days and good years—and as per the saying of my father-in-law, the Rebbe, "good" with all its interpretations.
+
+#### ***344***
+
+**Moreinu HaRav Nissan:** Telushkin. Additional letters to him appear above in Vol. 9, p. 385, and in the references noted in the footnotes there.
+
+**Joining those who are blessing:** See the following letter.
+
+## G'sha
+
+B"H, 25 Shevat, 5715
+Brooklyn, N.Y.
+
+To the congregants and members of Congregation Bnei Yitzchak Nusach HaAri z"l, and to the esteemed President and Gabbaim, may Hashem grant them life:
+
+Peace and blessing!
+
+I was pleased to receive the news that this coming Motzaei Shabbos Kodesh, a special Melaveh Malka celebration is being organized in honor of the 30th anniversary of your esteemed Rav, the great Torah scholar, the chossid, the man of action, engaged in the needs of the community, a man of fine character and many accomplishments, etc., Rabbi Nissan shlita Telushkin. I wish you success, that the celebration should have the success it deserves, fitting for the occasion.
+
+This celebration is especially important because it demonstrates that the congregants appreciate the activity of their Rav, and it gives expression to the feeling of *kavod haTorah* and respect for the Rabbis of Yisrael. It is to be hoped—and this is the most important blessing—that this feeling of respect and love for Torah and those who bear the Torah should permeate the homes of the members and congregants and express itself on every good occasion.
+
+It is a *minhag Yisrael* to connect the events of the week with the *inyanei d'yoma* of the weekly *parsha*, according to the famous teaching of the Alter Rebbe, author of the *Tanya* and *Shulchan Aruch*, which we have heard many times from my father-in-law, the Rebbe, of blessed memory, that one must "live with the *parsha*." It is therefore highly significant that this week’s *parsha*, *Va'eileh HaMishpatim*, contains mostly *mitzvos* which, on the face of it, one would not necessarily need *Matan Torah* to arrive at, for the normal intellect of a normal person demands and justifies them.
+
+Yet this is a lesson and a directive for all times and all places: that even the simplest matters connected with integrity and intellect only have an effect on a person—and protect him from the "inclination of man's heart [which] is evil from his youth"—if they are based on "na'aseh v'nishma" from the acceptance of the Torah. That is to say, they must be based on the feeling of *emunah* and the acceptance of the yoke of the Almighty, *Ribono shel Olam*, that these are His commandments and therefore one must obey them. Without this, one cannot rely on human intellect and integrity. Experience has shown that where the foundation of *emunah* and religious education is missing, a person, Heaven forbid, very often strays from the straight path and does things that are the opposite of integrity and even the opposite of intellect.
+
+May the Almighty grant that your shul should continue, for long days and years, to enjoy the leadership of your esteemed Rav and guide, the one who spreads *emunah* and Torah laws among your congregants and members, and as it is said, "The *mishpatim* which you shall set before them," for their spiritual and material good, as well as for their families, may they live.
+
+With respect and blessing.
+
+## G'shu
+
+B"H, 26 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...Even one who has committed a transgression in his lifetime, and who has been called by the name "wicked" at some point in his life, can be a *beinoni* — this is proven from *Tanya*, beginning of chapter 14, that every person, etc., at every time and every hour. And regarding what is written at the beginning of chapter 12: "and has not committed, etc., and will never commit" — this means that his situation **now** is such that he has not committed [a transgression], etc. (meaning that there is no *reshimu* in the *nefesh*, etc.). Although this is slightly forced, it is also necessitated by the words of our Sages that *teshuvah* is effective for everything, and it is also necessitated by King David, of blessed memory, who sinned in his years — as our Sages have said — and of whom it is said, "The righteous have the *yetzer hatov* judging them, etc." (*Tanya*, chapter 1).
+
+#### ***G'shu***
+
+Printed in *Likutei Beurim b'Sefer HaTanya* (Karf), Vol. 1, p. 75, and completed based on a transcript.
+
+## 3,607
+
+B"H, 26 Shevat, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, who engages in communal needs, R' Dovid, may he live:
+
+Peace and blessing!
+
+...You will surely utilize the days of Purim in an appropriate manner within the schools of the Reshet, and likewise regarding the special studies pertaining to the upcoming holiday of Pesach. In this country, it has been the custom in recent years—and they have succeeded—to demonstrate to the students the arrangement of the Seder, by setting up the *ke'arah*, etc. Through this, the *halachos* connected to these matters are engraved in their memories. And although regarding the students of the Reshet there are surely differences in custom, and it is understood that one must not interfere with this, as our Sages of blessed memory said, "Do not change the custom of your ancestors who rest in peace," nevertheless, one should contemplate and arrange the aforementioned in a way that does not interfere with the customs...
+
+With a blessing for success in your holy work and for good tidings regarding all of the above.
+
+#### ***3,607***
+
+**R' Dovid, may he live:** Chanzin. Additional letters to him—above, Vol. 6, 1,558, and in the references in the notes there.
+
+Below, 3,605.
+
+## Gimmel-Shin-Ches
+
+B"H, 26 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your question as to whether you should travel to Eretz Yisrael—may it be built and established speedily in our days by Moshiach Tzidkeinu—since your parents from Morocco wish to travel there: The ruling on this is already clear, and it is a matter of *kal v'chomer* (a fortiori). If regarding one who is already in Eretz Yisrael, where it is forbidden to leave, it is nevertheless permitted to leave Eretz Yisrael for the diaspora to study Torah (Rambam, Hilchos Melachim, Chapter 5, Halacha 9), then how much more so is this true for someone whom Hashem has enabled to study in a yeshiva where the study of the revealed Torah—the "body" of the Torah—is united with the study of Chassidus—the "soul" of the Torah. You must continue in this with persistence and diligence, and not listen to the enticements of the *yetzer* who wants to confuse you and interrupt your study of our Torah, the Torah of life. The *yetzer hara* clothes his arguments in a mask of *yiras shamayim*, hoping to succeed in deceiving you. I have already written to several of your friends—may they live—that they must continue in the study of our Torah, the Torah of life, and may Hashem, the Giver of the Torah, add His blessing to the students and their families.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 330
+
+B"H, 26 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of Friday, in which you write that until now you have studied at the Tomchei Temimim Yeshiva in Lod, and it seems to you that for various reasons you cannot continue your studies at the Yeshiva—with one of the main reasons apparently being the need to assist your parents with their livelihood. Surely, if you consult with the administration of the Tomchei Temimim Yeshiva, you will be able to arrange your affairs in a way that allows you to continue your studies at the Yeshiva for a significant part of the day, while at the same time also having an opportunity for livelihood. Since you have merited to be in the "tent of Torah" for several years, studying both the revealed Torah and the teachings of Chassidus—the inner dimension of Torah, the *neshamta d'oraisa*—you should make every possible effort to continue this for at least some time longer. I am confident that Hashem, who sustains and provides for all, will ensure that by continuing your Torah study, there will be no lack, *chas v'shalom*, in the livelihood of your parents, may they live long. On the contrary, regarding the verse "If you follow My statutes," it is explained in the Sifra and cited by Rashi in his commentary there, that you must be **toiling** in Torah—specifically with toil and exertion—and then "I will provide your rains," etc.
+
+Regarding your question as to whether your parents and relatives should move to a place where material conditions are more comfortable but which is not religious: the ruling has already been stated in the *Mishneh Torah* by the great teacher, the Rambam (Hilchos Deos, beginning of Chapter 6): A person must associate with the righteous and sit among the wise at all times so that he may learn from their deeds, and distance himself from, etc. And if he cannot, etc., he should sit alone, etc., or leave, etc.—see there.
+
+With blessings for success in Torah study and pure *yiras shamayim*, and to hear good news regarding all the above.
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 310
+
+B"H, 28 Shevat, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 24 Shevat: You are surely familiar with the story (though I did not hear it from my father-in-law, the Rebbe, of blessed memory, and therefore do not know its source; in any case, the content is intellectually sound and correct) regarding a Chassidic *avreich* who spent so much time preparing for *davening* that he missed the time for *Krias Shema* and *tefillah* according to all opinions, and then proceeded to begin and finish his *davening* in a very short amount of time. It was explained to him that while those who spend a great deal of time *davening* might have room for debate as to whether they should spend hours preparing—even if it results in a doubt regarding the time for *Krias Shema* and *tefillah*—for a *davening* that lasts only a few moments, what is the point of spending hours in preparation and incurring the aforementioned doubts?
+
+And, with an apology, this is also the case regarding your letter: the interval between one letter and the next is very great. Seemingly, this is understandable, as several matters accumulate that require concentration, attention, and detailed writing. But such extensive preparation and a long interval, followed by a letter that is brief in content—on the face of it, this is a contradiction in terms. May it be the will of Hashem that you write, and with the appropriate detail, in the very near future.
+
+...In general, I do not know what other words I can invent to explain to each one of them that the statement in the *Mishnah*, "I was created only to **serve** my Maker," does not necessarily refer to matters that are mind-boggling, etc., such as the *Kohen Gadol* in his eight golden garments. Rather, the true intent applies to each one of us in our daily lives, specifically in those matters that are called in common parlance "gray" matters, which a person tramples with his heels. Regarding the group of teachers—it is simple, in the most literal sense: the minute details of the daily schedule. If these details are arranged as they should be, a generation of the upright will be prepared—a blessed generation, the generation of *Geulah*—who will go with them to greet *Moshiach Tzidkeinu*, and in saying "See the great ones that I have raised..."
+
+I await good news regarding all of the above, and I bless you that you may continue to have success in actual practice.
+
+## 311
+
+B"H, 28 Shevat, 5715
+Brooklyn
+
+Greetings and blessings!
+
+In response to your letter of the 3rd, in which you raise a difficulty regarding what is written in Tanya—and at length in the introduction to the sefer *Shefa Tal*—concerning the souls of Yisrael being literally a "part of Elokus from above." You cite a passage you found in the sefer *Nishmas Chaim*, Maamar 2, Chapter 9, which challenges this premise with what you consider to be very simple questions.
+
+Now, beyond the well-known principle that the *halacha* follows the later authorities (*halacha k'basrai*) because they had the opportunity to see the various texts before them and resolve the contradictions, there is a further point regarding these matters. Since the subject of the source and nature of the soul falls into the category of the secrets of the Torah and the wisdom of Kabbalah, one must apply the rule that the *halacha* follows the one who is precise and accustomed to **these** specific matters. This is similar to what the Rosh writes (*Bava Kamma*, Chapter 4, Siman 4) regarding why the *halacha* follows Rav in matters of *issurim* (prohibited/permitted) and Shmuel in matters of *dinim* (civil law): because Shmuel was constantly accustomed to adjudicating *dinim*, and therefore he was precise in them, delved into their depths, and understood the truth of every matter. If this is said regarding Shmuel in his dispute with Rav, then it is certainly true in our case. The author of *Nishmas Chaim* was a well-known activist and a philosopher, but in his time, the wisdom of Kabbalah was not yet widely disseminated, and certainly not explained to the extent necessary, even though he does bring several matters related to this in his sefer *Nishmas Chaim*.
+
+Regarding your question about what is found in certain books concerning the use of *netilas yadayim* in place of a *mikveh*, this refers only to a *mikveh* for the purpose of "additional purity," but not for immersion to transition from *tumah* to *taharah*.
+
+Surely you have heard of the three daily study sessions established by my revered father-in-law, the Rebbe, *ztzukalleh"h, navgam, zya*, which are appropriate for every person: 1) Reciting the daily portion of Tehillim, according to the monthly division, each day after Shacharis. 2) Studying the weekly *parsha* of Chumash with Rashi’s commentary—on Sunday from the beginning of the *parsha* until the *sheni* portion, on Monday from *sheni* until *shlishi*, and so on. 3) Studying the daily portion of Tanya, according to the yearly division. May you add to this from your own initiative, and may Hashem grant you success.
+
+With blessings,
+
+On behalf of the Rebbe, *shlita*,
+
+Secretary
+
+## 312
+
+B"H, 28 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter of 7 Shevat, as well as the one preceding it which was received after a long delay—regarding what you wrote, that you have still not heard of a suitable proposal for you in matters of shidduchim: this is surprising. For Hashem only demands according to one's capacity, and when one acts with the appropriate energy—that is, by creating the *keli*—one draws down from Above what is necessary in this regard, especially in matters of shidduchim, as it is written, "And from Hashem is an intelligent wife."
+
+Therefore, it seems highly likely to me that you are not engaging in this as our Sages, of blessed memory, instructed: "like a person searching for their lost object." Instead, when proposals are made, your attitude is one of "why should I bother?" or "what is my obligation? I will do it, and that is all." Consequently, it is no wonder that when the *is'harusa d'lesata* (arousal from below) is in such a manner, there are no practical results. It is unnecessary to elaborate on a matter that is understood and simple—that "it is not good for man to be alone," etc., as explained in many places. May it be the will of Hashem that, at the very least, from this point forward—meaning, immediately upon receiving this letter—you will act in the aforementioned matter as is proper, and may it be with success.
+
+With blessings for good tidings in all the above, speedily.
+
+## 313
+
+B"H, 29 Shevat, 5715
+Brooklyn
+
+To the esteemed and distinguished, etc., R’ Yirmiyah, may he live.
+
+Greetings and blessings!
+
+In response to your letter of 22 Shevat (in which I still do not find a reason for the long hiatus in hearing from you), I was pleased to read that your livelihood matters have been settled and that you are currently involved in communal work. Beyond all this, it is my strong hope that you will utilize every opportunity and possibility to strengthen and disseminate Yiddishkeit, and the point of Yiddishkeit in everything, wherever your influence reaches. May this be permeated with Chassidic warmth and vitality, and may it also prepare those you influence to receive the teachings of Chassidus and its guidance—not only regarding the fulfillment of mitzvos, but even in daily life and in matters of permission. You are certainly familiar with the adage we heard many times from my father-in-law, the Rebbe, of blessed memory: "What is forbidden, one must not do; and what is permitted, one does not need to do." This is contrary to the common misconception that people today are not capable of accepting this principle. On the contrary, especially in recent years, many of the Children of Israel have become disillusioned with the false idols known in the secular tongue as "secular ideals," and they are searching for the truth and the living—not in the cemetery, but in the shuls and beis medrash. Sometimes, only a little assistance is needed, or even a hint, for them to enter within the four cubits of tefillah and the four cubits of Torah, and to bring their families along with them. The promise of the Ribono shel Olam is already well known: "Open for Me an opening the size of a needle’s eye, and I will open for you an opening the size of a hall."
+
+It is somewhat surprising that in the shiurim you teach in public, you do not mention a shiur for learning the halachos required for daily life (aside from *Chayei Adam* on the laws of Shabbos, which is, of course, not sufficient at all). After all, the deed is the essential thing, as it is written: "Fear G-d and keep His mitzvos, for this is the whole man." I have already written to many places, and have also conveyed orally, regarding the **great** necessity to publicize the laws of *brachos hanehenin*, interruptions during tefillah, *muktzah*, etc., as the ignorance among the people regarding these matters is alarming. If in previous generations they urged this (see *Hilchos Talmud Torah* by the Alter Rebbe, and the introductions to the *Shulchan Aruch* of the Alter Rebbe, etc.), how much more so in our days, which have seen a breakdown and confusion of the mind—especially among the younger generation, who do not see proper conduct in these matters either on the street or at home. It is therefore necessary to teach even the simplest matters in school and in the beis medrash, especially regarding the aforementioned. Regarding such things it is said, "An error in learning is considered intentional." I am certain you will endeavor, at the very least from now on, to have these laws publicized through study and in appropriate ways, etc., and may the desire of Hashem succeed in your hand.
+
+...It is surprising that you do not mention the day of the hilula, 10 Shevat. Even though it has already passed, and a prayer regarding this is a prayer of... [the past], may it be His will that this was merely an omission in writing, but not in practice.
+
+I am interested to know about the welfare of Anash in your country, with whom you are surely in contact through letters or even face-to-face. I would appreciate it if you would write about them in your next letter.
+
+With blessings for good tidings.
+
+## 314
+
+B”H, 29 Shevat, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+Your letter, along with its enclosure, has just been received. When I was at the holy gravesite of my father-in-law, the Rebbe, of blessed memory, today—the eve of Rosh Chodesh, when we increase in joy—I mentioned all those listed in your note. May it be the will of Hashem that each one of them be blessed with what they need, in both body and soul.
+
+Regarding what you wrote concerning the kosher mikveh: the importance of this matter is understood, so there is no need for elaboration. Any effort required for this is certainly worthwhile. Consequently, I have strong hope that you will proceed with this with energy and alacrity—the sooner, the better. It would be worthwhile to correspond again with Rabbi Deutsch, may he live, of Cleveland, and urge him once more to find a way to reduce the expenses.
+
+Regarding what you wrote about the kindergarten—that in your opinion there is still no visible sign that it could develop into a yeshiva ketana—we do not know what the future holds. We are obligated to do everything possible; it has already been said, "Abraham was one, yet he inherited the land." Based on this, I am not comfortable with what you wrote, that they are already worried about staying in their current location for a long time due to the needs of their children, may they live. This apprehension in the present cannot help but weaken the energy for the holy work entrusted to you in your camp. Even if this concern were justified, and even if it were certain that they would move from this city, the saying of my father-in-law, the Rebbe, is well known: that the construction of the Mishkan involved every detail and precision, even in those stations and journeys where they stayed for only a day or a night (and this is understood and simple based on what is written in Tanya, end of Chapter 25, that this unification above is eternal; see there). Especially since one must be strong in the trait of bitachon, it is certainly possible that in the near future the situation will change for the better, and you will merit and succeed in building proper and holy education in your camp.
+
+I was pleased to read at the end of your letter that your brother-in-law’s business has developed and he is now finding the blessings with which they were blessed. It is surely superfluous to remind you that you must draw their attention to the fact that when one sees the blessings of Hashem in what one needs, one must understand the hint to also increase the channels and vessels for this, which are the matters of Torah and mitzvos. See also the maamar "Katonti" in Iggeres HaKodesh by our Rebbe, the Alter Rebbe.
+
+With blessings for success and for good news in all of the above.
+
+P.S.
+Certainly, if there are good results from your correspondence with Rabbi Deutsch, may he live, please inform me in advance.
+
+#### 314
+
+**The construction of the Mishkan:** See also above, letter 367.
+
+## 350
+
+B"H, Rosh Chodesh Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+Your *pidyon nefesh* (P"N), as well as the four P"Ns of your children, have been received and were read at a time of favor at the holy gravesite of my father-in-law, the Rebbe, of blessed memory.
+
+Regarding your question as to whether you should daven with a *tzibbur* on Shabbos and return home together with your entire family, or whether you should prolong your davening: It is surprising that there is any doubt about this. This matter has already been addressed in a letter from the Rebbe (Rashab), of blessed memory, printed in the third supplement to *Kuntres Eitz Chaim*, section 4. And if this was the case in days of light and in the Diaspora, how much more so is it true in the double and redoubled darkness of our generation, and here in the King’s palace.
+
+With blessings.
+
+## 3,716
+
+B"H, Rosh Chodesh Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of the 4th, in which you write about the various events during your travels, the delays, and the encounters you had as a result.
+
+It is already a well-known saying that "every delay is for the good." Even though I have not yet found its source, since it is common on the lips of the Jewish people, if they are not prophets, they are at least the children of prophets.
+
+Regarding what you wrote—that upon arriving at your destination you found other *shadarim* (emissaries) there—you are already accustomed to this. Nevertheless, Hashem grants success, and I am certain that this time, too, it will be so.
+
+I believe I have already mentioned to you what is stated in the holy *Zohar*, Vol. 2, 182b: that when a person below is in a state of *nehiru d’anpin* (a shining countenance) and joy, he draws down the same from Above as well; see there. According to this, the well-known saying of our holy Rebbes—*tracht gut, vet zein gut* (think good, and it will be good)—is even better understood. May Hashem grant you success in bringing good tidings, both regarding the "sowing" of spirituality and the "gathering" of material matters.
+
+With blessings.
+
+## 315
+
+B"H, Erev Rosh Chodesh Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your two letters from the 25th of Shevat, as well as the one preceding them.
+
+Regarding all that you write concerning [name]—it is analogous to a situation where it is difficult to reproach a sick person for why his fever is not normal, for that is the very nature of his illness. The advice is to find a remedy and bring it to him, since because of the fever he cannot leave his four cubits, and afterwards to seek out the methods and approaches appropriate to the patient’s condition so that the remedy may penetrate internally and take effect.
+
+It is understood that this is also the case when, for one of Bnei Yisrael, the warmth of his *neshamah elokis* is replaced by the warmth of the *sitra achra*. At the time, it is impossible to reason with him, as our Sages have said: "A person does not sin unless a spirit of folly enters him," and consequently, he is not a vessel to receive intellectual rebuke. Rather, in such a case, the advice is to find a remedy that is suited to him (and this has already been discussed in *sifrei mussar*, and specifically in *sifrei chassidus*).
+
+And considering that one of the consequences of his illness is that he does not leave the "four cubits" of the "old and foolish king," there is no other choice, out of *ahavas yisrael*, but to bring the remedy into that domain and seek a way for it to enter the patient’s inner self. Then it will certainly take effect, for if a little light pushes away much darkness, how much more so does a great deal of light. And if it is impossible otherwise, one does not reveal to the patient that the intention is to provide him with something to cure his illness. It is possible that he will imagine that one wishes to give him various sweets according to his present senses. The analogy is understood, and for one such as yourself, it certainly requires no explanation.
+
+It is understood that after all the above, those who are on the receiving end of the patient’s behavior are to be pitied greatly, but they will not be saved by leaving their *mashpia* in his current state... May Hashem grant you the merit and success to be a *shaliach* to bring good tidings in all of the above, and thank you in advance.
+
+With blessings.
+
+## 318
+
+B"H, 1st of Rosh Chodesh Adar, 5715
+Brooklyn, N.Y.
+
+To the esteemed, G-d-fearing, learned, and distinguished scholar, a man of many accomplishments, a man of knowledge, scion of a noble lineage, etc., R. Gad, may he live, Jerusalem, Tizku L'shanim Rabos.
+
+Greetings and blessings!
+
+I was pleased to receive your letter dated the 24th of Teves (the yahrtzeit of our holy Rebbe, the Baal HaTanya and Shulchan Aruch) as well as your book, "Derech Shofet B'Yerushalayim." Thank you very much for this gift.
+
+I believe I have already written to you regarding how important and precious it is to record the memories of days gone by. This is especially true in our generation, in which there is a movement that claims our history begins only now—though some say this regarding every detail, and others say it regarding a significant portion of our lives. The common denominator between them is the notion that one need not reckon with the past; on the contrary, it is a burden, and the sooner one liberates oneself from it, the better. It is difficult to dwell at length on such a distressing matter, and it is certainly unnecessary for one of your stature.
+
+Regarding your comment about my beginning my letter to you with the title "Mechutanim" (in-laws), I rely on the precedent of my father-in-law, the Rebbe, of blessed memory, who, if I recall correctly, also wrote in this manner. Based on the book by Mr. Slonim, may he live, regarding the family, there are individuals from the Frumkin family mentioned there, and perhaps that is the connection.
+
+Last but not least, regarding your news that your grandson, Alon Yaakov, may he live, has entered the age of mitzvos: May it be the will of Hashem that his parents, may they live, raise him to Torah, the chuppah, and good deeds, and may you see and derive from him true nachas—nachas of a Yid in the spirit of the traditions of our ancestors.
+
+Especially since, as you write, his son-in-law is the State Attorney, whose role, on the face of it, is to fulfill the mitzvah of "you shall purge the evil from your midst." However, the explanation of this in the spirit of our ancestors is through the refinement of the intellect, so that people do not come to commit a crime, iniquity, or sin. This is similar to the concept of "all the diseases... I will not place upon you [in the first place], for I am Hashem, your Healer." This is a preventative form of healing, and the same applies to the healing of the soul, as the Rambam elaborates in his "Eight Chapters."
+
+Our Sages have already explained their perspective in Tanna D'bei Eliyahu Rabbah, that the true avodah of the Sanhedrin is not to wait for the sinner and transgressor to be brought to them to be judged according to the Torah. Rather, "they should have gone and tied iron ropes around their waists, hitched up their garments above their knees, and traveled through all the cities of Israel—one day to Lachish, one day to Beis El, one day to Chevron, one day to Yerushalayim, and likewise in all the places of Israel—and taught the people of Israel... so that the Name of the Holy One, Blessed be He, would be magnified and sanctified in all the worlds He created, from one end of the world to the other" (Chapter 11). Therefore, the Mishnah states (Makkos, end of Chapter 1) that a Sanhedrin that executes one person in seven years—and Rabbi Elazar ben Azariah says even one in seventy years—is called destructive, even though it refers to a qualified Sanhedrin. My father-in-law, the Rebbe, has already elaborated on this in his sicha of 5690, printed in Likkutei Dibburim, section 18.
+
+With respect and blessings,
+Looking forward to hearing good news.
+
+Enclosed is the Kuntres published in connection with the yahrtzeit of my father-in-law, the Rebbe, on the 10th of Shevat—a new edition, which I am sure will interest you.
+
+## 319
+
+B"H, 1st day of Rosh Chodesh Adar, 5715
+Brooklyn, N.Y.
+
+To the Honorable Rabbi, the famous Gaon, wise in Torah and secrets of the Torah,
+Arranger and sharp debater,
+God-fearing, a man of noble character, a man of many talents, etc.,
+Rabbi Y.A. HaLevi, Shlita, Chief Rabbi
+
+Greetings and blessings!
+
+Following the hiatus in our correspondence, it is pleasant for me to receive a letter from your honor. I would gladly fulfill your request, but regarding the matters I happen to deal with concerning the Book of Bereishis—and it seems this is what your honor intends regarding the so-called scientific contradictions—the discussions are usually held orally. Unfortunately, I do not have sufficient time to put them into writing, or even to record the main points. In one exceptional case, due to specific circumstances, I did provide a written response, and a copy is enclosed, although it is not clear to me from your letter if this is the type of subject matter you had in mind.
+
+Since your honor is occupied with these problems, I would be grateful if you could provide me with copies of whatever you have in writing on this subject...
+
+And last but not least: I have just learned that your honor has been re-elected to the position of Chief Rabbi. I wish to express my best wishes for the renewal of your tenure, that it may be in a good and auspicious hour, and that you may succeed in raising the horn (on which depends the appearance of the creature that is like a human being [Shabbos 77b; Bereishis Rabbah 21:5; and as in the other side, the appearance of eyes like human eyes on the horn [Daniel 7:8]]) of Yisrael Sabba (who was brought into exile in order to redeem his children before his eyes [Rashi, Taanis 5b]) in the land of his father’s sojournings (singular form; Yitzchak—certainly [Midrash HaGadol, ibid.]), by issuing a *monitin* (currency—that which the Sages of the community have minted) that a young man and a young woman are one with an old man and an old woman, and from the land upon which the eyes of Hashem your G-d are, the Holy One, Blessed be He, shows them with His eyes (Shabbos 89b), eyes that are not bribed, for even though he was a lover of Israel (Menachos 65a)—His judgments with Israel, the judgment is for G-d, without compromise or settlement (Sanhedrin 6b), until we merit, through our avodah during the night of the exile when we have not seen with our own eyes, the fulfillment of the prophecy, "Eye to eye they shall see" (Zohar Vol. III, 130a; Likutei Torah by our Rebbe the Alter Rebbe, Parshas Re'eh, s.v. "Ki Tishma"; Ohr HaTorah by the Tzemach Tzedek, end of Parshas Vayeira).
+
+With appreciation, honor, and blessings.
+
+***
+
+**Rabbi Y.A.:** Herzog. Additional letters to him—see above, Vol. 5, letter 1520, and the references in the notes there.
+
+**I did provide a written response:** See above, Vol. 7, letter 1996.
+
+## 3220
+
+B"H, Erev Rosh Chodesh Adar, 5715
+Brooklyn
+
+To the esteemed and distinguished chossid, who engages in communal needs, Moreinu Harav Moshe Hakohen, may he live:
+
+Greetings and blessings!
+
+It has been a long time since I received any letters from you, so I was pleased to at least receive news of how you and your household are faring through the esteemed and distinguished chossid, who engages in communal needs, Moreinu Harav Yosef Fleier, as well as news of your participation in the farbrengen on the day of the hillula of my father-in-law, the Rebbe, Nasi Yisroel.
+
+It is already well known that on the day of the hillula, the soul of the one being commemorated ascends from a lofty world to a world even loftier. As our Sages of blessed memory taught, "They have no rest, for they go from strength to strength." Consequently, all those who are connected to him are also drawn into this ascent, provided that they prepare the vessels for this ascent and strive for it to be manifest in thought, speech, and action—and most importantly in action, for that is the essential thing: "Today to do them."
+
+This is especially true as we are approaching the years of which you will say, "I have no desire in them"—these are the days of Moshiach (Shabbos 151b; see Rashi there; Rambam, Hilchos Teshuvah 8:9 and the end of Hilchos Melachim; Avodas Hakodesh, Part 2, Ch. 38; Iggeres HaKodesh, end of Ch. 26, and elsewhere, though this is not the place to elaborate).
+
+May Hashem grant you the merit to share good news regarding all of the above.
+
+It is understood and simple that all these matters apply to every single one of anash who has the capacity to act, for in this generation of ours in particular, this is a personal obligation.
+
+With blessings,
+
+**M. Schneerson**
+
+***
+
+**Moreinu Harav Moshe:** Shayeovitch. Additional letters to him appear above in Vol. 9, 3173, and in the references noted in the footnotes there.
+
+**It is already well known:** See also letter 3189 above.
+
+## Gimmel-Shin-Kaf-Alef
+
+Gimmel-Shin-Kaf-Alef
+
+B"H, 1 Adar, 5715
+Brooklyn
+
+The Administration of Agudas Chabad in the Holy Land, may it be rebuilt and established,
+May they live,
+
+Peace and Blessing!
+
+I hereby acknowledge receipt of your letter dated 23 Shevat. Surely, in the meantime, you have received my letter responding to your previous correspondence.
+
+...Two days ago, Mr. Yitzchak Karen, one of the primary directors of the Tnuat HaMoshavim, visited me. He spoke of the assistance he has provided in the past regarding the affairs of the village, and he also promised to assist in the future to the best of his ability. It would be appropriate for you to meet with him upon his return to the Holy Land, may it be rebuilt and established. During the conversation, there will surely be an opportunity for him to reiterate his promises, which will naturally make it easier to utilize them when the need arises.
+
+8) This coming Motzaei Shabbos, the Chairman of the Rabbinical Council of America, Rabbi David Hollander, and Rabbi Zvi Schachter will be flying from here to the Holy Land, may it be rebuilt and established, as representatives of the Rabbinical Council here (which is an association of Orthodox rabbis, most of whom are young, American-born, and numbering over five hundred members). According to their estimation, they will stay in the Holy Land for about two weeks in order to examine the state of religious affairs, to bring hearts closer together, and so on. This is similar to the visit made last year by the Chairman (of the aforementioned Rabbinical Council). It would be most appropriate—and they have also requested this of me—that they visit the Yeshiva in Lod, the village, and similar matters concerning Lubavitch. I suspect that, even though I have not spoken to them about this specifically, the vocational school—especially since it is currently almost the only one of its kind in the Holy Land—will be very well received by them.
+
+Furthermore, since they wish to meet with representatives of various parties and ministries, and this will influence their attitude toward several matters and their general closeness to Lubavitch, it is good that you introduce them to Mr. Shazar (although I am writing to him separately regarding this). To the extent possible, they should also be introduced to the extreme circles on the right. It is understood that they have permission to say that this is being done at my request: "Although I do not wish to influence their stance on the issues they will discuss with these circles, for several reasons it is good and necessary that they receive them cordially. In time, I have a strong hope that this will lead to good results, both regarding religious matters in the Holy Land and regarding religious matters in the United States." By these circles, I mean even the Neturei Karta, Rabbi Soloveitchik shlita, and the like.
+
+9) The aforementioned individuals have noted the address of Agudas Chabad in Tel Aviv. It is not worthwhile to wait until they seek you out. Since it will surely be easy to find out where they are staying, it is worthwhile to establish contact with them as soon as possible. I look forward to hearing good news, and also details regarding all of the above. Thank you in advance.
+
+With blessings for success,
+
+**M. Schneerson**
+
+## 322
+
+B"H, 1 Adar, 5715
+Brooklyn.
+
+To the esteemed Rabbi, the G-d-fearing, Torah-learned, and meticulous in his communal work,
+Rabbi Yehuda Zev, may he live.
+
+Peace and blessing!
+
+After a long interval, I was pleased to receive your letter from Erev Shabbos Parshas Mishpatim, in which you write that matters in the yeshivah are proceeding successfully. Surely, for one such as yourself, it is unnecessary to point out and emphasize that since our Sages have already ruled, "If one says, 'I have labored and not found,' do not believe him," it is understood through simple logic that the "finding" is commensurate with the "labor." Success is not something one relies upon; rather, success comes to add many times over what is due according to the measure of one's labor.
+
+May it be the will of Hashem that this success be manifest in the three pillars: in the performance of mitzvos, in Torah study (preceded by the blessing over the Torah, and in accordance with what is explained by Rabbeinu Yonah and elaborated upon by the Bach in Tur Orach Chaim, siman 47, that this is essential), and in the avodah of tefillah. This also includes engaging in hisbonenus from time to time on matters that lead to the ahavah and yirah of the Giver of the Torah, as explained in Tanya, end of chapter 41, as well as in the middle of the day, etc. This is similar to the concept of a get (the line of "turn from evil") and a Sefer Torah (the line of "do good"), etc., at every hour at the very least—see there. The merit of the many depends on you and your assistants, to guide the students in this path of life...
+
+With blessings of Mazal Tov, Mazal Tov.
+
+***
+
+**322**
+
+**Rabbi Yehuda Zev:** Segal. Additional letters to him appear above in Vol. 9, 2736, and in the references noted in the footnotes there.
+
+*) See Ran, Nedarim 81a.
+
+## 3223
+
+3223
+B"H, 1 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from the 2nd of Terumah: It is astonishing to read your phrasing that they decided not to hire you for a position, and that the primary reason is that you have a beard.
+
+It is understood that this cannot be the case. After all, Hashem is the Ribono shel Olam in the literal sense—meaning that the United States is included in this as well. Since He has revealed His will in His holy Torah—the Torah of the world and the Torah of life—that the beard represents the thirteen *tikkunei dikna* (rectifications of the beard), the vessels of mercy that influence all matters and transcend nature (see *Perush HaMilos* by the Tzemach Tzedek on the verse "And He is merciful," also printed in the supplement to the complete *Tehillim Ohel Yosef Yitzchak*), it is impossible that an increase in blessing could be the cause for the withholding of *parnassah*, *chas v'shalom*.
+
+Rather, we do not know the reason why a suitable position has not appeared for you or for your family, *sheyichyu*. In truth, there is no practical difference in knowing this. Since Hashem, who oversees you with *hashgacha pratis*, has orchestrated the circumstances so that you would not go to live there, it is certainly not suitable for you at all. May the Ribono shel Olam grant you merit and success so that you may see the good, in a revealed and manifest way, without concealments or hiddenness, and without giving any opening to the enticements of the *sitra achra*.
+
+With blessings for *parnassah* and success in all your affairs.
+
+## 324
+
+B"H, 2 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...Regarding what you write about your study of Chassidus—that you have not found time for it because you have several other seforim you wish to study—this is a matter of great wonder and astonishment. For it is well-known in the holy Zohar, in many places, that the inner dimension of Torah—which is the study of Chassidus in its entirety—is the *neshamah* of the revealed dimension of Torah, which is called the *gufi Torah* (the body of Torah). Consequently, the response that one has no time for the *neshamah* and the vitality because one wishes to increase the *guf* (the body) is, as is understood, not acceptable at all.
+
+With blessings for *mazal tov*.
+
+## G-sh-k-h
+
+B"H, 2 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+Surely you have retained copies of the letters you write to me. Consequently, you should compare what was written in your earlier letters—the distraction and worry regarding the matter of...—with the opposite tone in your most recent letter. May it be Hashem’s will that this serve as a decisive proof, at the very least from here on out, that one should not be affected if a certain matter is not accomplished immediately, as it appears to the physical eye, but rather takes a few days longer. Aside from the fact that this resolution is essential for spiritual health, it is also highly beneficial for physical health.
+
+With blessings for success in all the above and in your personal affairs, and awaiting good news.
+
+## 3260
+
+B"H, 2 Adar, 5715
+Brooklyn, N.Y.
+
+Greetings and blessings!
+
+In response to your letter in which you write regarding the marriage proposals you had prior to your marriage to your husband: it is not clear from your letter whether there were actual *tenaim* (formal engagement conditions) that were subsequently broken, or if it was merely talk and nothing more. It would be best if you clarify the details of this to the Rav in your community; he will then be able to decide if there is any room for a request for forgiveness, along the lines of what I wrote in my previous letter.
+
+Regarding what you write—that for several months you have not been going to the mikveh and are not living as a husband and wife among the Jewish people—this is not a good thing. You must be strong in your trust in Hashem, may He be blessed and exalted, that if you only observe the laws and statutes of *taharas hamishpachah* as instructed by our Torah, the Torah of life, this will also continue and increase the peace in your home. Through this peace, blessing and success will also be added, and this will also strengthen the health of your children, may they live and be well.
+
+In particular, regarding what you write about your son, may he live and be well: it is surprising to me, because in recent times several treatments have been found for epilepsy—Heaven forbid—which, although they heal slowly, nevertheless show noticeable improvement in the near term, which then continues to grow. Therefore, you should speak once again with a specialist doctor—who is surely aware of the doctors and treatments discovered in recent years for this—so that he may try once more. And may Hashem, may He be blessed, grant him the correct insight on how to heal your son, may he live and be well.
+
+Awaiting good news,
+
+On behalf of the Rebbe, shlita
+
+## G-267
+
+B"H, 3 Adar, 5715
+Brooklyn.
+
+To the esteemed and distinguished, etc.,
+R' Yaakov Yitzchak Isaac, may he live,
+
+Peace and blessing!
+
+...Thank you for transcribing the story regarding the Rebbe Maharash, may his soul be in Eden, from the book *Chevel Binyamin*, Part Two. It seems to me that there is an inaccuracy therein, for his daughter-in-law was the granddaughter of the Chasam Sofer, not of the Malbim.
+
+#### ***G-267***
+
+**R' Yaakov Yitzchak Isaac:** Perkovitz.
+
+## 3268
+
+B”H, 3 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter from the day of the Hillula of my revered father-in-law, the Rebbe, of blessed memory, which I read at his holy resting place.
+
+I was pleased to read that you are diligent in your studies, both in the study of the revealed Torah and in the study of Chassidus. You will surely fulfill through this the ruling of our Sages that we elevate in matters of holiness.
+
+Furthermore, you are surely aware of what I wrote to the administration of Toras Emes, that the avreichim (and also a portion of the bochurim) must utilize their talents to influence others through teaching and personal conduct. Beyond the fact that this is essential for the *siyata d’shmaya* that everyone requires—as is known from what the Alter Rebbe wrote at the beginning of his sefer Torah Or on the verse "And charity elevates a nation"—in our times, this often also proves helpful for one’s livelihood over time. I am certain that you do this willingly and that you influence your friends in this regard as well.
+
+With blessings for good tidings in all the above, and also regarding what you wrote in your *pidyon nefesh*.
+
+## 3259
+
+B"H, 3 Adar, 5715
+Brooklyn.
+
+To the esteemed and distinguished individual, who engages in communal needs, Rabbi Chaim, may he live and be well,
+
+Greetings and blessings!
+
+I received your letter of 26 Teves—which took longer than usual to arrive—and I was pleased to read about your work in the development of Yeshivas Oholei Yosef Yitzchok in Melbourne. Certainly, you will continue to do so in the future and will add strength, for with the help of Hashem, it is to be hoped that the aforementioned Yeshiva will succeed in changing fundamental matters in the conduct of the city and even the state. According to the saying of our holy Rebbeim, "As one sets oneself up, so it goes," the beginning—at the very inception of its founding—is of the utmost importance. Fortunate is the portion of each and every one who does all in their power regarding this, and surely the ruling of the Alter Rebbe at the beginning of his sefer Torah Or will be fulfilled in each and every one of them, in his interpretation of the verse, "And tzedakah exalts a nation," which applies both materially and spiritually.
+
+With blessings for success in all of the above.
+
+***
+
+**Rabbi Chaim, may he live and be well:** Serbranski, Melbourne.
+
+**Saying of our holy Rebbeim:** See also above, letter 2984, and the references in the notes there.
+
+## 350
+
+B"H, 3 Adar, 5715
+Brooklyn.
+
+To the Avreich, Aharon, may he live,
+
+Peace and Blessing!
+
+In response to your letter of 20 Shevat, it gave me pleasure to read about your avodah at the Yeshivas Oholei Yosef Yitzchok Lubavitch in Melbourne. Surely, going forward, you will strengthen yourself in this and add to it as much as you are able—especially since it can be said that the avreichim and bochurim who come to study in the yeshivah will, before long, reach the level and category of "moist enough to moisten others." Consequently, every effort invested in them will bear fruit in those whom these avreichim and bochurim influence after a short time; that is to say, the good of one will be multiplied many times over after a while.
+
+May it be the will of Hashem that the concealments and hesterim be diminished more and more, and that the toil will not be so much in the matter of pushing away the darkness, but rather primarily in the line of increasing light. All of the above will surely bring great success in your personal matters as well.
+
+With blessing.
+
+#### ***350***
+
+**To the Avreich, Aharon, may he live:** Sarbranski. Another letter to him—above, 327.
+
+## 3131
+
+B"H, 6 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+...Regarding what you wrote concerning the farbrengens of 19 Kislev and the yahrtzeit of 10 Shevat: it seems from the description of the second farbrengen that there is still insufficient effort being made to draw in those who are, for the time being, outside the guidance and conduct of the teachings of Chassidus and its study. And although there is room to defend this by saying that the path of holiness is "little by little I will drive them out from before you" (Shemos 23:30), even according to this, the matter should already have seen greater development. May it be Hashem’s will that from here on, there will be an increase in this as much as is necessary.
+
+Regarding what you wrote about the shul—that if the shiur is held in one shul on Shabbos, it will cause the cancellation of the shiur in the other, and if the opposite is done, you do not know if a minyan will be maintained: surely a way must be found to ensure (baavaren) both matters, since the day of Shabbos is more than 24 hours long, and there is enough time for both matters together. May it be Hashem’s will that, as should be the case in matters of holiness, one matter will actually add to the other.
+
+Regarding what you wrote about the customs during the eleven months and throughout the year: most, if not all, of them have been printed in the kuntreisim for 2 Nissan and 10 Shevat of recent years.
+
+And regarding the thought of practicing *perishus* (asceticism), and whether I would agree to this, etc.: my opinion is not favorable toward this. Aside from the fact that in the vast majority of cases, the resignation is not wholehearted, it requires great study whether *perishus* in such a manner adds purity and cleanses the thought, or the opposite, Heaven forbid. It is already known that "he who has bread in his basket is not hungry," etc. And since everything follows the thought of the heart, in my opinion, the aforementioned is not the path to the goal for which you strive. You should also examine *Torah Or*, *Megillas Esther*, page 92, end of column 4 ("It is not so, for it is a great thing, and it is also a great thing Above," etc.).
+
+With blessings for good tidings in all the above,
+
+**M. Schneerson**
+
+## 332
+
+B"H, 7 Adar, 5715
+Brooklyn.
+
+To the esteemed and distinguished Rabbi, engaged in the needs of the community, R' Chaim Nach, may he live, known as Dr. Danburg.
+
+Shalom u'Bracha!
+
+I received your letter of 27 Shevat with pleasure, and subsequently the copy of your book on the final simanim of Shulchan Aruch Yoreh Deah, in which you translate the Shulchan Aruch and the Kitzur Minchas Chinuch into the vernacular. May it be the will of Hashem that, in accordance with the role of a Rabbi in all generations—and especially in this orphaned generation, where many of the generation, to our sorrow and pain, say to their father and mother (and to their tradition) "I have not seen them," because they (the father and mother) "guarded Your word and kept Your covenant"—you will succeed in instilling a spirit of yiras shamayim into the daily lives of the men and women of your congregation. This is a yiras shamayim that is expressed in actual deed, and not merely in beautiful rhetoric regarding the emotions of the heart and the like.
+
+May you proceed from the end to the beginning: from the laws of mourning for the dead, G-d forbid, may He grant them life with the words of the living G-d, to the laws of visiting the sick and medicine, etc., until they arrive at a way of life for people who are healthy, both physically and spiritually—which is achieved through "I have set Hashem before me always" (Shulchan Aruch Orach Chaim, at the beginning).
+
+Surely you are not satisfied with printed words alone, but are seeking all manners and ways to act in the aforementioned direction, through a "living word"—without compromises or half-measures, but rather through the path of life paved for us by our Torah, the Torah of life.
+
+With blessings.
+
+## 333
+
+B"H, 8 Adar, 5715
+Brooklyn
+
+To the esteemed Chossid, G-d-fearing, and distinguished, involved in communal needs,
+R' Yehoshua [Schneur Zalman] may he live,
+
+Peace and blessing!
+
+In response to your letter of 25 Shevat and those preceding it. Your *pidyon nefesh* and that of your family, may they live, were also received. I was pleased to read that they, too, see the development of the yeshiva. Surely you will increase your efforts in this regard moving forward, and consequently, the development and the results will increase many times over.
+
+Regarding what you write, that there is a lack of a *mashpia* as is fitting, etc., etc. — if one were to dwell on the things that are lacking, I doubt anyone would ever approach the work, for there is no perfection except Above, etc.
+
+I have already written many times that since Divine Providence has brought you to a certain place, you have certainly been given the strengths necessary for that place and that time, provided that you utilize this capacity to its fullest (for then it is possible that your capacity will also increase. This is similar to what is brought regarding *talmud Torah*: that after one exerts himself and learns as much as is humanly possible, sometimes that very exertion adds to his capacity, etc.). This is in accordance with the ruling of our Mishnah: even though you are not obligated to complete the work, you are not free to desist from it.
+
+Especially since the time is short, for "behold, He stands behind our wall," and the work is great. But it is understood and simple that you must mobilize (*mobiliziren*) all of *anash* in your camp, so that not only does each individual need to participate in the matter of the yeshiva, but one must add to this from time to time, for a matter of holiness is always growing...
+
+You will surely continue with the matter of the books as you write, and thank you in advance.
+
+With blessings of *mazel tov* on the birth of your grandson, may he live and be well. And with blessings for success in your holy work, with proper health and joy — fitting for this month of increased joy,
+
+**M. Schneerson**
+
+***
+
+**333**
+Printed in *Likkutei Sichos*, Vol. 23, p. 478, and completed based on a photocopy of the letter.
+
+**R' Yehoshua Schneur Zalman, may he live:** Serbranski. Additional letters to him appear above, 393, and in the references in the notes there.
+
+**The yeshiva:** In Melbourne, Australia. See above, letter 2,900, and the references in the notes there.
+
+## 334
+
+9 Adar, 5715
+Brooklyn, N.Y.
+
+To the esteemed and distinguished individual, who engages in communal needs, etc.,
+R' Chaim Zalman, may he live, known as Chazak,
+
+Peace and Blessing!
+
+I was pleased to receive the news regarding the Melaveh Malkah being arranged in your honor, on the occasion of your many years of activity on behalf of Agudas Chassidei Chabad and for the Lubavitcher Yeshiva.
+
+Such a gathering is important because it demonstrates that the importance of the work and the great purpose is recognized and appreciated. It is to be hoped that this sentiment will continue to influence the leaders, organizers, and participants of the Melaveh Malkah, and will be expressed in actual deeds, in increased and expanded work by everyone, in general and in particular.
+
+Since the Melaveh Malkah is taking place this coming Motzaei Shabbos Kodesh, Parshas Zachor—a few days before Purim—this time has a significant connection to the event, in accordance with how Chassidim understand the expression that "one must live with the times." One of the most important points that the Megillah teaches us is that the Jews of that time, in the face of the great danger of annihilation, Heaven forbid, which threatened our people—men, women, and children—throughout the entire year, did not rely on the great connections they had with the monarchy through Esther HaMalkah and Mordechai HaYoshev B'Shaar HaMelech. Rather, they understood that the salvation of the Jewish people lies in the salvation of the Jewish children. For this reason, Mordechai HaYehudi gathered the Jewish children in masses and taught them Torah and mitzvos, as is recounted in detail in the Gemara and Midrash.
+
+It goes without saying that in the present time, this is true even more so. Being in a free country where saving Jewish children does not require the same degree of mesiras nefesh as it did in the past, and where the possibilities are great, one must certainly remember that the children are the future and the salvation of our people—not only in a spiritual sense, but also in a simple, physical, and material sense.
+
+Today, 9 Adar, when this letter is being written, is the day that my father-in-law, the Rebbe, of blessed memory, arrived in America. He emphasized the aforementioned point to American Jewry by the fact that immediately upon his arrival here—even before he had rested or settled himself in even the most elementary way—he founded the Lubavitcher Yeshiva and other institutions for proper and pure chinuch.
+
+On this occasion, I wish to mention that you, R' Chaim Zalman, and your esteemed brothers, may they live, have stood from the very first moment in the front ranks to assist in this work throughout the entire time. I wish you the ability to celebrate many more jubilees of fruitful work, *mosif v'holech* (increasing and continuing), which creates the channels and vessels for the blessings of Hashem, both materially and spiritually.
+
+With blessing.
+
+## 3375
+
+B"H, 9 Adar, 5715
+Brooklyn, N.Y.
+
+To the esteemed President, Gabba'im, and congregants of Congregation Nusach Ari, and to the chairpersons and participants in the 50th Anniversary Jubilee,
+May they live,
+
+Shalom u'Bracha!
+
+I was pleased to receive the news regarding the celebration of the 50th anniversary of your esteemed Congregation Nusach Ari, which will take place on the upcoming 12th of Adar.
+
+This celebration is especially significant because it demonstrates that the leaders and members appreciate the importance of the shul—particularly a shul that bears the name of the Ari z"l, who illuminated the path of avodas Hashem, avodah with simcha and mesiras nefesh, with Chassidic warmth and heart.
+
+Since the celebration takes place the day before we read the Megillah, this timing has a significant connection to the event, in accordance with how Chassidim understand the expression that "one must live with the times." One of the most important points that Purim teaches us is that the Jews of that time, in the face of the great danger of annihilation—G-d forbid—which threatened the Jewish people, men, women, and children, throughout the entire year, did not rely on the great connections they had with the monarchy through Esther HaMalkah and Mordechai HaYehudi, who sat at the king's gate. Rather, they understood that the salvation of the Jewish people lay in the salvation of the Jewish children. For this reason, Mordechai gathered the Jewish children in masses and taught them Torah and mitzvos, as is recounted in detail in the Gemara and Midrash.
+
+It goes without saying that today it is the same, and even more so, especially in a free country where the opportunities to save Jewish children—spiritually—are great, and where everyone has the opportunity to have a share in this great work of salvation, upon which depends the future of the Jewish people, not only spiritually but also the physical existence of our people wherever they may be.
+
+Therefore, I am especially pleased that one of the primary activities of your shul is proper chinuch for the children under the leadership of your dedicated and energetic Rav, Rabbi Shalom Rivkin. Surely, this vital chinuch work will continue to be conducted in the spirit of Mordechai HaYehudi, illuminated and permeated with the teachings of the Ari z"l, Chassidic doctrine, Chassidic warmth, and mesiras nefesh—for only in this way can the great name of your shul, Nusach Ari z"l, be justified and expressed in life.
+
+With blessings for success,
+
+**M. Schneerson**
+
+## 330
+
+B"H, 9 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter from Erev Shabbos Kodesh, and the news received via telephone.
+
+It is my considered opinion that one of the best remedies for matters of health in general, and for your state of health in particular, is *hesach hadaas* (distraction). Since a person’s thoughts are always wandering, the way to achieve *hesach hadaas* is by focusing on a different thought, in accordance with the command to "serve Hashem with joy." Since *avodas Hashem* must be constant (as it is written, "I have set Hashem before me always," and this concept is the beginning of the four sections of the *Tur* and *Shulchan Aruch*), one must contemplate matters that lead to joy. This is also true in the literal sense, as it is the starting point of a person’s contemplation each and every day—as phrased by the Alter Rebbe in his *Siddur*, that immediately upon waking one says "Modeh Ani," etc. And is there any greater joy for a person than the joy of realizing that he stands before the King of Kings, the Holy One, Blessed be He, whose faithfulness is great, etc.?
+
+May the Ribono shel Olam surely strengthen your health for long, good years. And as per the saying of my father-in-law, the Rebbe, *zatzukal-lah-h, navgam, zya*, [may you have] "good years" in every sense of the term. May you study your *shiurim* in *nigleh* and your *shiurim* in *Chassidus*, and disseminate in your surroundings the guidance and customs of the "Light of the Torah," which is the teachings of *Chassidus*.
+
+With blessings for health and for *harchavas hadaas*.
+
+## 3,137
+
+B"H, 10 Adar, 5715
+Brooklyn
+
+Greetings and blessings!
+
+In response to your letter from Motzaei Shabbos, in which you ask how to conduct the Bar Mitzvah of your son, may he live, this coming month of Iyar—whether privately or publicly—though you do not specify the reasons for either approach.
+
+On the face of it, when a Jewish person reaches the age of Mitzvos, it is difficult to understand why this should be done privately, even in days of old. This is especially true in our impoverished generation, where every matter of Torah and Mitzvos must be strengthened and etched into the memory of all those involved, to the greatest extent possible. It is understood that I do not mean this in terms of squandering money, but rather that it should be a Torah-true, Chassidishe gathering, where the participants wish for your son that he grow up to be a Yirei Shamayim, a Chassid, and a Lamdan. It is already a well-known saying of our Rebbes: "What a Chassidishe farbrengen can accomplish, the Angel Michael cannot accomplish" (printed in Kuntres Kovetz Tehillim). You should also look into Zohar Chadash, Bereishis (10c, 15d) regarding the significance of a Bar Mitzvah celebration.
+
+Regarding your question as to whether your son, may he live, should travel here to study at Yeshivas Tomchei Temimim: my opinion on such matters has long been known—it is better to arrange for him to study at Yeshivas Tomchei Temimim in Lod.
+
+Once you decide on the approximate timing of his trip here, we will send him the appropriate invitation from here.
+
+With blessings for success in all your endeavors, from which one draws joy for the entire month and, subsequently, for the entire year.
+
+## 3138
+
+B"H, 12 Adar, 5715
+Brooklyn.
+
+To the esteemed Rabbi, the G-d-fearing man, who occupies himself with the needs of the community,
+Rabbi Nechemya, may he live.
+
+Peace and blessing!
+
+...Regarding your question on the *Prisha* to *Choshen Mishpat* 390:3, where he explains that the *shinui* (change) in the case of a lion that mauled and ate is that it mauled, but the subsequent eating is its normal behavior—while to your mind the opposite seems more logical.
+
+Although the language of Rashi (*Bava Kamma* 16b, s.v. *v'hachtiv*) implies somewhat that the *shinui* is in the eating, **nevertheless**, since the Gemara there answers that it had a change of mind and ate it, if the *shinui* were in the eating, what would the fact that it changed its mind accomplish?
+
+Furthermore, the reasoning supports the view of the *Prisha*, for a lion mauls for the sake of its cubs and its lair and eats them afterward—meaning, it eats carcasses—except that when it is hungry, it does not wait until the animal dies, for it is the king of the beasts, etc., as written in the *Prisha*. And if we see that it waits, **this** is contrary to its normal behavior.
+
+The *Shach* also writes in accordance with the *Prisha*.
+
+#### ***3138***
+
+**Rabbi Nechemya:** Malin, Washington.
+
+## 339
+
+[12 Adar, 5715]
+
+...Regarding your question concerning the practice of borrowing a friend’s tefillin to daven with, and the report you heard in the name of the Avnei Nezer.
+
+In his Responsa, Avnei Nezer (Orach Chayim 183, at the end), it is written: "To put on the head tefillin of another is not done properly, since the owner will subsequently adjust the knot to his own head, and it turns out that it was not a 'permanent knot' [kesher shel kayama], and the first person did not fulfill his obligation; it is a mitzvah to publicize this," end quote. However, the custom of the world is already otherwise.
+
+A strong proof for the custom is what is stated plainly in Orach Chayim, section 14, paragraph 4—which is also transcribed in the Shulchan Aruch of our Rebbe [the Alter Rebbe], paragraph 12—that it is permitted to put on a friend’s tefillin, etc. This is cited by many Acharonim, and nowhere is it explained that this only applies when the head size matches—which, in truth, only happens rarely. Their questions on the Avnei Nezer have already been raised there in sections 184 and 185. In Kli Chemdah on the Torah, Parshas Vayeilech, he defends the custom of the world: a) that tefillin require a "permanent knot" according to the Ramban, and b) that since one ties it for the duration of the mitzvah, it is considered a "permanent knot." See there, where he explains why this seemingly does not appear to be the case in [the tractate] Eizehu Mekoman...
+
+#### 339
+
+Printed in Likutei Sichos, Vol. 9, p. 256.
+
+## 3540
+
+B"H, 13 Adar, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and meticulous in his communal work,
+R' Avraham Dov, may he live.
+
+Greetings and blessings!
+
+In response to the note you enclosed with the letter from Mr. [Name], may he live.
+
+In my opinion, it would have been appropriate: a) To make every possible effort, in a diplomatic manner, for Mr. [Name] to move away from the place where the young woman is located, just as we pray, "And do not bring us into the hands of a trial." b) To explain to the aforementioned individual that while he writes that it pained him to read the letter he received from you, but "what can be done, the law is the law," etc.—on the contrary, he should be happy that he learned the law in time. For our holy Torah is called "Torah of life," even in its literal sense—meaning the life of this world—and "Torah" comes from the word *hora'ah* (instruction). This means that if one does not act, Heaven forbid, according to these instructions, it is the opposite of happiness and the opposite of life as it should be for all parties involved, both for the young man and for the young woman. By refraining from this step, he has saved both himself and the young woman from a situation that could have, Heaven forbid, brought catastrophe upon them both, etc. And in these days of Purim, when they drew down for all generations "light, gladness, and honor" for the Jews—may Hashem illuminate the eyes of each and every one to see the truth, even in this time and in this place.
+
+With blessings,
+
+**M. Schneerson**
+
+#### ***3540***
+
+**R' Avraham Dov, may he live:** Hecht. Additional letters to him appear above in Vol. 4, 924, and in the references noted there.
+
+## Gimmel-Shin-Mem
+
+B"H, 13 Adar, 5715
+Brooklyn
+
+Greetings and blessings!
+
+In response to your letter of the 8th of Adar—the month in which we increase in joy—in which you write regarding the state of your health: As you requested, I will mention you at the holy resting place of my father-in-law, the Rebbe, of blessed memory, for an improvement in your health and for good tidings in your other affairs as well. It is surely unnecessary to remind you that the more you increase in Torah and mitzvos in general, and in the consistency of your study of Chassidus—consistency in your soul and consistency in time, in particular—the more Hashem will increase His blessings in all that you require, both materially and spiritually.
+
+As you requested, I will mention your sister, may she live, at the holy resting place for a complete and speedy recovery. I am certain that she conducts herself according to the law of Moshe and Yisrael, as is the custom of virtuous Jewish women. May Hashem grant her success.
+
+As you requested, I will mention your brother at the holy resting place for all that he requires, both materially and spiritually.
+
+You are surely aware of the three daily study portions established by my father-in-law, the Rebbe, for every Jewish soul: 1) Reciting the daily portion of Tehillim—as Tehillim is divided according to the days of the month—following Shacharis each day. 2) Studying the Chumash portion with Rashi’s commentary for the weekly parsha—on Sunday, from the beginning of the parsha until the second aliyah; on Monday, from the second aliyah until the third, and so on. 3) Studying the daily portion of Tanya as it is divided for the days of the year, and keeping up with them. Furthermore, you should inform those in your surroundings about these—may it be Hashem’s will that the merit of the many will depend upon you, as you enable them to participate in this.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+A. Quint
+Secretary
+
+## 3242
+
+B"H, 13 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...Regarding your question as to why I did not mention the books *Chovos HaLevavos* and *Kuzari* in connection with the education of girls: it is because the content in those books, if presented to the girls of our generation exactly as written, is difficult for them to grasp. It depends on the manner of explanation, to the point that often the manner of explanation is the main thing, and this depends more on the teacher than on the books from which the material is taken, as is understood...
+
+With blessings.
+
+#### ***3242***
+
+**I did not mention:** See above, letter 2994.
+
+## 3443
+
+B”H, 15 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 11 Shevat, which was sent via regular mail and has just been received, in which you write regarding the question of when the *ketz ha’pela’os*—the coming of *Moshiach Tzidkeinu*—will be, and that you had a vision regarding this.
+
+This is an age-old question. The holy Baal Shem Tov informed us that he asked this during his *aliyas neshamah* on Rosh Hashanah; he asked *Moshiach Tzidkeinu* himself, “When will the Master come?” and he replied, “You will know this when your teachings are publicized and revealed in the world, and your *ma’ayanos* spread outward.” Therefore, anyone who wishes to hasten the *ketz ha’geulah*—which, due to our many sins, we have not yet even merited the beginning of—must strive with all his energy and ability, and even more than that, to spread the *ma’ayanos* of the Baal Shem Tov, which is the Torah of Chassidus, its guidance, and its customs, both in his immediate surroundings and in his distant surroundings as well—as per the precision of *Moshiach Tzidkeinu*’s answer, “outward.” Every single action brings the *ketz ha’geulah* closer in actuality; there is no need to seek new paths. May Hashem grant you success so that you may fulfill everything incumbent upon you in this regard with the appropriate energy.
+
+With blessings,
+
+On behalf of the Rebbe, *shlita*,
+Secretary
+
+P.S.
+Surely you are aware of the three *shiurim* that are appropriate for every person, established by the Rebbe, *ztzukulalleh, navgam, ze’e*: 
+
+1) Reciting the *shiur* of Tehillim—according to the division of Tehillim for the days of the month—every day after *davening* Shacharis. 
+
+2) Studying the *parsha* of Chumash with the commentary of Rashi from the weekly *sedra*—on Sunday from the beginning of the *sedra* until *Sheni*, on Monday from the *parsha* of *Sheni* until *Shlishi*, and so on. 
+
+3) Studying a *shiur* of Tanya every day, according to the division of Tanya for the days of the year. 
+
+I trust you keep them; in any event, you should keep them from here on out, and may Hashem grant you success.
+
+## 344
+
+B"H, 15 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+In response to your letter, in which you ask for my opinion regarding two paths before you: whether to accept a position as a doctor, which would keep you occupied with matters of livelihood without sufficient free time for scientific research, or to endeavor to arrange your life in a way that allows you to advance in scientific research, in which you seemingly have good prospects for success.
+
+It is understood that the second path is better, for a person must take into account not only the coming weeks and months, but—and this is the main thing—their future in the years to come. It is worthwhile to live with *tzimtzum* for a short time in order to attain spiritual satisfaction, as well as an improvement in one’s material situation for many years. However, it is also understood that this applies only if you are able to arrange your livelihood—at least in a limited fashion—even while dedicating the majority of your energy and a significant portion of your time to scientific research. For otherwise, the preoccupation with livelihood will cause distraction during your research, making it difficult to make progress.
+
+It is surely unnecessary to remind you that the true happiness of every Jewish man and woman—not only in spiritual matters but in material ones as well—depends on conducting their lives in accordance with the instructions of our holy Torah, the *Torah* of life. The closer this connection is, the greater the possibility for improving one’s life in both the material and spiritual realms; and there is nothing that can stand before the will.
+
+With blessings,
+
+On behalf of the Rebbe, shlita
+
+## 355
+
+B"H, 15 Adar, 5715
+Brooklyn.
+
+To the students of Oholei Yosef Yitzchak in the Holy Land, may it be rebuilt and established,
+
+Blessings and peace!
+
+The *pidyonos* written for the *yom hilula* of my father-in-law, the Rebbe, of blessed memory, have been received. I will mention you at his *tziyun* at a time of favor, for success in your studies—the study of Torah with *yiras shamayim*.
+
+My father-in-law, the Rebbe, the *Nasi* of Israel, after whom the institution where you study is named, must serve as an example for you to strive and exert yourselves to walk in his ways. Surely, you are aware of several details from the history of his life. Following the excerpt from his diary that was sent to you last year, enclosed is a record from his diary describing his second imprisonment.
+
+May it be the will of Hashem that each and every one of you strives with all her might, with diligence and perseverance in her studies and in good conduct, both within the walls of the school and outside of them. Then, Hashem will surely grant success to each and every one of you, both in *gashmius* and in *ruchnius*.
+
+I await good news regarding your success in studies and in good conduct, especially in honoring parents and teachers.
+
+With blessings.
+
+#### ***355***
+
+**To the students of Oholei Yosef Yitzchak in the Holy Land, may it be rebuilt and established:** Sent to several branches.
+
+## Gimmel-Shmu
+
+B”H, 16 Adar, 5715
+Brooklyn, N.Y.
+
+To the chairmen, activists, and participants in the 13th annual campaign for Yeshivas Tomchei Temimim Lubavitch in Montreal,
+May Hashem grant them life,
+
+Shalom u’Bracha!
+
+I have received with pleasure the news regarding the campaign beginning this coming week to generate the necessary financial support for Yeshivas Tomchei Temimim Lubavitch in Montreal. With this, I express my heartfelt greetings to everyone, collectively and individually, who is taking part in this annual endeavor, and I send my sincere wish that Hashem grant you great success.
+
+In every undertaking, and especially when it concerns the future of such a vital institution as the Lubavitcher Yeshiva in Montreal, it is worthwhile to reflect on what this institution signifies—not only for the hundreds of students, may they increase, but also for the Jewish community of Montreal and Canada at large.
+
+If in times past a yeshiva was not merely a *beis-ulpena* for the study of Torah, but also an educational institution where the student becomes imbued with the spirit of Torah, in our times it is even more vital that, in addition to knowledge of Torah and Yiddishkeit, the student should become saturated with the light of *Toras-Chaim*, *ner mitzvah v’Torah ohr*, and with a sense of *mesiras nefesh* and responsibility for the spiritual heritage of our people. This is the inner character of the Lubavitcher Yeshiva Tomchei Temimim, and its students distinguish themselves by the fact that upon leaving the four walls of the yeshiva, they know they must be "lamps to illuminate," to spread the light of Torah and *mitzvos* in the daily life around them.
+
+Great is the *zechus* of the activists, the *anshei maaseh*, and all the participants in this campaign for the Lubavitcher Yeshiva in Montreal. It is not enough to help the yeshiva maintain its existence; one must also give it the possibility to grow and develop, as with every living thing, where the sign of life is seen in growth and development.
+
+I hope that everyone will act with the appropriate dedication and energy; consequently, it will surely be successful, and will bring blessing and success to each and every one and their families, may they live, in whatever they need, both *b’gashmius* and *b’ruchnius*.
+
+With blessings,
+
+**M. Schneerson**
+
+## Gimmel-Shin-Mem-Zayin
+
+B"H, 16 Adar, 5715
+Brooklyn, N.Y.
+
+Greetings and Blessings!
+
+I was pleased to receive the news that your daughter, Mrs. ... tichyeh, has become a kallah. May the Ribono shel Olam help that it should be in a good and auspicious hour, and that the young couple should build a *binyan adei ad*—a home built upon the foundations of Torah and mitzvos, illuminated and permeated with the light and spirit of Toras HaChassidus.
+
+The expression *binyan adei ad* in the context of a shidduch, as our Chazal have precisely noted, is not merely a poetic phrase; it carries a deep significance. A building relies upon its foundations, and the entire structure holds firm only when those foundations are solid and unwavering. The external appearance and luster of the foundations are not what is important; what is important is the material, which must be firm, strong, and durable under all circumstances.
+
+So too, and even more so, is it with the spiritual—and consequently the physical—home that a young couple is about to build. A happy life together, a satisfied Yiddishe home, both in gashmius and in ruchnius, can exist only when that home is built upon the strong and time-tested foundations of Torah and mitzvos. And here, too, one need not be concerned with how it appears in the eyes of those who do not understand this.
+
+I wish for the young couple that they should accept the resolution to build their home upon the aforementioned foundations of Torah and mitzvos, with the good middos and customs of a Chassidishe home, Chassidishe parents, and grandparents. May they carry this out in their lives, and may you and your wife, tichyeh, as well as your esteemed parents, shlita, derive from them true Yiddishe and Chassidishe nachas.
+
+With blessings of Mazal Tov, Mazal Tov.
+
+## Gimmel-Shin-Mem-Chet
+
+B"H, 16 Adar, 5715
+Brooklyn.
+
+To the G-d-fearing, honorable, and distinguished, etc., R' Pesach Ephraim, may he live,
+Shochet u'Bodek.
+
+Greetings and blessings!
+
+In response to your letter of the 8th of Adar: It is surprising that you do not mention anything regarding the day of the Hilula of the 10th of Shevat, in which you surely conducted yourselves with an increase in matters of Torah, and especially in the study of Chassidus, in matters of tefillah and tzedakah, etc. You will surely fill this in at the next opportunity...
+
+Regarding what you wrote concerning your conduct regarding the second day of Yom Tov in the Diaspora: You must conduct yourself according to what is brought in the Shulchan Aruch. And what is written in Shaar HaKollel is regarding publicizing the matter, that all such actions should be done only in private...
+
+With blessings for a kosher and happy Pesach, and regards to all his colleagues, may they live.
+
+***
+
+**R' Pesach Ephraim, may he live:** River.
+
+**His conduct regarding Yom Tov:** Since he traveled from Eretz Yisrael for the work of shechitah in Dzyabitsy, while his family remained in Eretz Yisrael. See also above, Vol. 4, Letter 973.
+
+**In Shaar HaKollel:** At the beginning.
+
+## 349
+
+B"H, 16 Adar, 5715
+Brooklyn
+
+To the esteemed, G-d-fearing, learned, and distinguished, who engages in communal needs, R' Yitzchak Neta, may he live:
+
+Shalom u’vrachah!
+
+After such a long silence, it was a pleasure to receive your letter of 27 Shevat along with the enclosure. It was doubly pleasing to read in your letter of the successful farbrengen on the auspicious day of 19 Kislev, the day of our redemption and the liberation of our souls. It is surprising, however, that you make no mention of the yahrtzeit of 10 Shevat, regarding which you surely explained to those you know and are acquainted with the significance of the one whose yahrtzeit it is — my revered father-in-law, the Rebbe, of blessed memory — his activities, his mesiras nefesh, and so on. If for some reason it was not possible to arrange this on the day of the yahrtzeit, you will surely seek a suitable opportunity to rectify this omission, and may Hashem grant you success.
+
+... It is self-understood that it is extremely necessary to arrange a study of Tanya at least once a week as a start. Since the most suitable time for this is on Shabbos, I hope that the time is also appropriate for you to prepare yourself to explain the concepts. It is already well-known what is explained in the letter of my revered father-in-law, the Rebbe, regarding Tanya (printed in *Kitzurim VeHe'arot LeTanya*), that Tanya is called the "Written Torah of Chassidus." Just as this applies to the Written Torah of the Torah as a whole, so too with the study of the Tanya: the greatest of the great cannot reach the ultimate depth of the matters, yet even the simplest of the simple can understand the concepts explained therein (see the aforementioned letter at length). The magnitude of the merit in spreading this study to the masses cannot be adequately described.
+
+Many thanks, especially for the two stories you transcribed from the will of your father, of blessed memory, and in particular for the story from the year 5679, which concerns my father, of blessed memory. I thank you in advance if you would favor me with copies of the rest of the stories and matters mentioned therein.
+
+With blessings for a kosher and happy Pesach. Please convey my regards and this blessing of mine to all those who signed the general letter you enclosed with your letter.
+
+***
+
+**R' Yitzchak Neta:** Niv. Another letter to him — above, 337.
+
+**The story from the year 5679, which concerns my father, of blessed memory:** That the Rebbe Rashab told him that the Baal Shem Tov passed away on the first day of Yom Tov of Sukkos, and King David, peace be upon him, on the second day, which was Shabbos, 7 Sivan (see regarding this *Likkutei Sichos*, Vol. 4, p. 1031, note 29; Vol. 5, p. 21 and onwards).
+
+## Gimmel Shin Nun
+
+B"H, 16 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+It has been a very long time since I have received any letters from you, even though from time to time I receive news from other sources. It is understood that this is not sufficient, and you will surely rectify this at the earliest opportunity. The merit of having utilized the opportunity provided by Hashgacha Pratis to influence those in your surroundings, drawing them closer to Chassidus, its guidance, and its customs, will surely assist you in your own avodah along the three lines of Torah, avodah, and gemilas chasadim.
+
+Regarding what you wrote—that engagement in avodah shebalev, which is tefillah, hinders or even contradicts the second line, the line of Torah—it is astonishing. How could it even enter one’s mind that one mitzvah of Hashem could contradict another mitzvah, especially regarding general mitzvos such as these? On the contrary, we find in the prayer of Abba Binyamin that his tefillah should be adjacent to his bed, for the study of Torah that follows tefillah is with greater intensity and strength than Torah study without this preparation. This is also explained in many places in Chassidus regarding the concept that the halacha follows Beis Hillel because they were gentle and humble, even though Beis Shamai were sharper. After all, halacha comes from the depth of **understanding**, and is not merely a matter of decree. It is understood that this is in addition to what is explained in Kuntres Eitz Chaim regarding the great damage caused by the separation of Eitz Hachaim from Eitz Hadaas, etc.—see there.
+
+Regarding the third line, the line of tzedakah and gemilas chasadim, it is explained in the beginning of Sefer Torah Or that one’s mind and heart become refined a thousand times over. It is understood from the Tzemach Tzedek’s gloss there, which is printed in Likutei Torah at the beginning of the three parshiyos, that "a thousand" is not an exaggeration or a figure of speech, but literally a thousand. It is understood that there is no contradiction to all the above from the fact that we see clearly that there are those who have a knack for the study of Nigleh, and those who have a knack for the study of Chassidus, etc. For this is similar to what is brought in Tikkunei Zohar (and explained in Iggeres HaKodesh) that there are "masters of Torah" and "masters of good deeds." See also the explanation of our Sages' statement, "Whoever says 'I have no Torah'..." in Kuntres Eitz Chaim, the note there, and in Iggeres HaKodesh, Epistle 9.
+
+With blessings for success in all the above and to hear good news soon.
+
+## Gimmel-Shin-Nun
+
+B"H, 17 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I was pleased to receive regards from you through the esteemed Chossid, the G-d-fearing man, who occupies himself with communal needs, Rabbi Shlomo Zalman Hecht. In accordance with your request, I will mention you and all your family members on the holy gravesite of my father-in-law, the Rebbe, of blessed memory, for good health and livelihood.
+
+It is surely unnecessary to point out that even throughout the entire year, Hashem demands, "Serve Hashem with joy." This means that one must be joyful that one is of the children of Avraham, Yitzchak, and Yaakov, and that "You are children to Hashem your G-d," and that one is privileged to have the Ribono shel Olam watching over each and every one of us with Hashgacha Pratis at every time and in every place. If being privileged with the honor of being with a mortal king in his innermost chambers would bring about a sense of elevation and joy, then how much more so—many times over—should the closeness with the King of Kings, the Holy One, blessed be He, evoke exaltation and joy, as is explained at length in Tanya, Chapter 46.
+
+A second thought on this matter is that when one finds oneself together with the King of Kings, the Holy One, blessed be He—and one remembers this—it is certain that there cannot be any negative thing. For no one has any control in that place except for Hashem Himself. Therefore, if an issue ever arises where one does not understand the inner good that is contained within it, it is only because one has not contemplated enough to discover it; and in the end, one will see that "everything the Merciful One does, He does for the good."
+
+I hope that the above lines will be sufficient to awaken this contemplation in you, and that you will immediately arrive at the proper bitachon in Hashem Yisbarach. Every Yid must be strong in bitachon—and possesses it, at least in a hidden state—and consequently, one should also be in a state of true joy.
+
+With blessings for good tidings in all the above.
+
+## Gimmel-Shin-Nun-Beis
+
+B"H, 17 Adar, 5715
+Brooklyn, N.Y.
+
+To all friends of Torah and proper chinuch, and to the participants in the annual celebration of "Beis Rivkah" in particular,
+May Hashem preserve them and keep them alive.
+
+Peace and blessing!
+
+The annual celebration of the Beis Rivkah institutions, which will take place this coming Sunday, 19 Adar, must be viewed with special attention and seriousness.
+
+It must be emphasized, again and again, that the Jewish daughter—the future mistress of the home, the **akeres habayis** of the Jewish home—is the one in whose hands, to a great extent, the upbringing of the children lies. She is the one who, to a great extent, creates and shapes the body and soul of the Jewish home, bringing in the light of Torah and mitzvos, Shabbos and Yom Tov, good character traits, and beautiful Jewish customs—all the things that create a kosher, pure, and happy Jewish home.
+
+In the Beis Rivkah institutions, Jewish daughters are educated and prepared for their great life mission. Therefore, the Beis Rivkah institutions are a life necessity.
+
+Regrettably, despite the aforementioned, they are struggling with difficult financial problems that hinder their development and growth.
+
+I turn with a heartfelt call to everyone to whom Torah and Yiddishkeit on the basis of purity is close and dear, to help provide tangible assistance to the Beis Rivkah institutions, and also to influence their friends and acquaintances to do the same.
+
+And the merit of strengthening the chinuch of the daughters of Israel in the spirit of our ancestors will surely stand by the supporters and helpers, that Hashem should help them in everything they need, both materially and spiritually.
+
+With blessings for all the best,
+
+**M. Schneerson**
+
+## 353
+
+*[17 Adar, 5715]*
+
+...Everyone agrees on one opinion: that each of them absolutely requires an awakening—that one must prod them, stroke them, and plead with them—and even then, perhaps, they might do a favor for the Rebbeim, and through them, for the Ribono shel Olam and His entourage. Only then will they begin to contemplate how to spread the wellsprings outward, and how much time they can afford to set aside and dedicate to this purpose. Only afterwards will their study and discussion take place at the next gathering, and in doing so, they will have fulfilled their duty as required.
+
+When they read their aforementioned letter again, along with the report for the period of 22 Kislev through 21 Teves—which, as they wrote in their letter, is a period more auspicious for activity than other times of the year—and then contemplate what they have actually accomplished... all this at a time when Mashiach Tzidkeinu is standing behind our wall, and the holy Nesi'im are bestowing and pouring down success upon even the slightest of efforts. Yet, instead of utilizing this success, they search for all sorts of *am-tla* (which can be interpreted as *emes-lo*—"not truth"), all to avoid fulfilling their soul’s mission (and I believe I have already written about the situation in our times). This is similar to what is brought in Iggeres HaKodesh, Epistle 24: "And when it arose in His will to be revealed to all," etc.—see there.
+
+May it be the will of Hashem that there be a fundamental change from what is stated above, and may this be for long days and years.
+
+## 354
+
+B"H, 17 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter—which lacks a date—in which you write about what you have been going through, the inner content of which is that in your battle with the *yetzer hara* that exists within every Jew, you have not yet succeeded and have stumbled in several matters.
+
+It is clear that every Jew has been given sufficient *kochos* to be victorious in this aforementioned battle. Although at times—as is the way in physical warfare—one falls and another rises, and sometimes the reverse occurs, ultimately, victory is certain. As it is written, "that no one banished from him be an outcast" (*Shmuel II 14:14*). Feelings of despondency and despair are merely tactics of the *yetzer hara* to ensnare a person in its domain and its net. Therefore, you should **establish** a set time for the study of *nigleh* and *pnimiyus haTorah*, and be meticulous in the performance of *mitzvos*. It is understood that this will be much easier for you if you are in the *yeshiva* and fulfill the directives of the *yeshiva* administration with true *kabbalas ol*. Then, eventually, you will emerge from the mire and mud and see light in your life.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+#### ***354***
+
+Published in *Likkutei Sichos*, Vol. 21, p. 523.
+
+## Gimmel-Shin-Nun-Heh
+
+B"H, 17 Adar, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing and refined, occupied with communal needs, R' Shlomo, may he live:
+
+Peace and blessing!
+
+... It would be a kindness to inform me regarding books of **Sephardic** names, if they exist (similar to the books of names for Gittin used by Ashkenazim), as well as a list of authors and books (similar to *Sifsei Yesheinim*) specific to Morocco, Africa, and the like. If possible, please acquire them and send them here. Thank you in advance for the trouble involved in all this.
+
+The package with the books sent on 3 Teves has been received, and thank you for this.
+
+#### ***Gimmel-Shin-Nun-Heh***
+
+**R' Shlomo, may he live:** Matossov. Additional letters to him appear above in Gimmel-Yud, and in the notes referenced there.
+
+**The package with the books:** See also above, letter 2,965, and the notes referenced there.
+
+## 350
+
+*[18 Adar, 5715]*
+
+...Regarding what you wrote about wearing a gartel during davening: Although it is the custom of anash to begin this only after marriage, if you have already been accustomed to doing so until now, it is unclear why you should discontinue your custom. Even though it is necessary, as mentioned, that this should not be done in a conspicuous manner—especially so that you do not appear different from other anash—you can simply wear the gartel underneath your outer garment. And if you have already discontinued your custom in the past, you would at any rate need to perform hataras nedarim (annulment of a vow) before three people, as is the case with any good custom that one has practiced three times.*
+
+As for your question regarding the reason for beginning to wear a gartel for davening only after marriage: Although I have not found this explicitly stated, it may be suggested that since this is a custom of Chassidim (see the discussion at length in Shulchan Aruch Orach Chayim, section 91, and its commentaries), and its purpose is to "prepare to meet your G-d, O Israel," which is similar to the wrapping of the tallis—a *perisa d’mitzvah* (a covering of a mitzvah) to draw upon oneself His sovereignty (see Tanya, beginning of chapter 41)—it is because of the common denominator between them that it is customary to begin both at the same time. This is after marriage, as is hinted at regarding the tallis in Kiddushin 29b. There may be other reasons for this as well, but this is not the place to elaborate.
+
+It should be noted that in many places in Poland, it was customary to wear a gartel even before marriage, and the custom of wearing two belts is also cited (in the book Menachem Tzion; it is also transcribed in the book Taamei Haminhagim, part three; see also Shabbos, chapter 16, mishnah 4**). However, anash do not follow these two customs.
+
+I am certain that you will utilize the upcoming days of Purim in an appropriate manner and in matters of Chassidus, and the connection to this is understood according to what is explained in many places in Chassidic discourse regarding the concept of Purim.
+
+***
+
+* See Shaar HaKollel, chapter 48 (Erev Rosh Hashanah), subsection 3.
+
+** From there is also the source for the Chassidic custom of wearing a yarmulke under the hat. Note also Chullin 138a: "A yarmulke, etc."
+
+## Gimmel-Shin-Nun-Zayin
+
+B"H, 19 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter from the days of Purim. It is surprising that you do not mention your good resolutions and good deeds from these days, from which one draws joy for the entire month and subsequently for the entire year.
+
+Regarding what you wrote about the content of my letter to you concerning conduct during a farbrengen, I wrote in the aforementioned that I am writing to other members of anash about this matter, and therefore it is not understood why you are so agitated by it. Either way, if your own conduct contains something of what was written in the letter, then surely there is no reason to be agitated; and if your conduct contains nothing of it, neither in whole nor in part, then you should be happy that you are being appointed as a mashgiach for anash to ensure appropriate conduct during a farbrengen. May Hashem grant you success with peace of mind and expanded livelihood, and I look forward to hearing good news regarding everything you wrote in your letter.
+
+With blessings.
+
+#### ***Gimmel-Shin-Nun-Zayin***
+
+Printed in Likutei Sichos, Vol. 21, p. 384.
+
+**My letter to him:** See above, Gimmel-Reish-Pei.
+
+## 3,558
+
+B"H, 19 Adar, 5715
+Brooklyn.
+
+To the esteemed and distinguished, G-d-fearing and learned, etc., R' Chaim Zusia, may he live.
+
+Peace and blessing!
+
+In response to your letter of 9 Adar, I await further updates regarding the matters you mentioned, especially concerning the *hafatzas ha-maayanos*.
+
+Regarding the *reshet* — it is understood that preparation is necessary well in advance, through consultation and **calm deliberation** as is fitting, regarding its expansion for the upcoming school term. Surely the time for registration has also arrived.
+
+I was pleased to read in your letter that there is a noticeable movement in the distribution of *sefarim*. May it be the will of Hashem that this becomes a tangible movement.
+
+At the very least, it should be to some extent and in some measure as is possible and necessary according to the demands of the hour, and the success granted from Above. May Hashem merit you to be the conduit and *shaliach* in this.
+
+With blessings for good tidings in all the above.
+
+***
+
+3,558
+
+Published in the book *HaPartizan*, p. 82.
+
+**R' Chaim Zusia:** Vilimovsky. Additional letters to him — above, 3,551, and in the references noted there.
+
+**In the distribution of sefarim:** See above, ibid.
+
+## G-shant
+
+B"H, 19 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+...Regarding what you wrote, that it pains you greatly to see the suffering of your son, *sheyichyeh*: while it is difficult for me to cause you distress, I must tell you what appears to me to be the truth. This is based on what is written in the *Zohar*, and cited by the *Tzemach Tzedek* in several places, that the growing of a beard is a special *segulah* for *parnassah* through the kindness of *Hashem*, and for the removal of *he'lem* and *hester* in this regard. 
+
+I only wish that those who pressured your son, *sheyichyeh*, regarding the growing of his beard had not done so. Beyond the fact that his peace of mind would have been much stronger, he would already be settled in his *parnassah*. This is especially true because the time when he was not growing a beard is not comparable to the removal of the beard after the period when it had already grown—and it had grown with joy and without any coercion. 
+
+To my great sorrow, even in this, the verse "the hands of compassionate women have boiled..." was fulfilled, at least for a brief moment. May it be the will of the *Kel Harachaman*, the source of mercy and kindness, that He say "enough" to the difficulties caused by the aforementioned. From here on, may your son’s, *sheyichyeh*, situation—even in material matters—go from good to even better, as per the well-known saying of the *Admur*, "from good to even better" (*fun gut tzu noch besser*)...
+
+With blessings for a kosher and happy *Pesach*.
+
+## 360
+
+B"H, 19 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter of 10 Adar, with the *pan* enclosed therein: You write that you observe your *avodah* is characterized by ups and downs, and consequently, your mind is confused, etc.
+
+The matter of ups and downs is an extremely common occurrence, except for the select few. A person must transform the "down" and make it a necessity for a greater "up" that follows. *Lefum gamla shichna* — surely, everyone is given the strengths appropriate to their own essence.
+
+Regarding what you wrote, that until about halfway through *davening* you pray with *hisorerus*, and afterwards you feel a heaviness in your head: In such a case, one should rest in the middle (it is understood that the rest must be in a manner permitted according to *Shulchan Aruch* and appropriate according to the *Chassidishe Shulchan Aruch*). For a person must guard their health, as per the Baal Shem Tov’s interpretation of *azov ta’azov* — [help] **with him**, together with the body. For this, the body must be healthy according to *Torah*.
+
+In general, regarding all of the above: although everyone must stand guard against the schemes and plots of the *yetzer hara*, excessive digging and over-analyzing is also unnecessary and excessive. You should certainly consult with your *mashpia* and act according to their instruction. May the *Ribono shel Olam* grant you success so that there will be strength of the *neshamah* through the strength of the body, and may you share good news regarding your success in the study of *Torah Nigleh* and *Toras HaChassidus*, and in the fulfillment of *mitzvos*, and primarily and fundamentally, in the *avodah* of *tefillah*.
+
+With blessings,
+
+On behalf of the Rebbe, *shlita*
+
+## 3651
+
+B"H, 20 Adar, 5715
+Brooklyn.
+
+To the esteemed Chossid, man of many accomplishments, R' Aharon Chanoch, may he live.
+
+Shalom u’Bracha!
+
+In response to your letter (which did not indicate the date of writing) in which you write regarding the newspapers in which [articles] were printed in connection with the day of the Hillula: I thank you for all that you have done in this regard, and may you have strength for the future as well. Do not be satisfied with the success achieved thus far; on the contrary, and all the more so—given the inspiration that has already been generated by the aforementioned—it follows that when you increase the inspiration and the effort, the results will grow many times over. And things that are well-known require no proof.
+
+Regarding what you wrote about printing a sicha: I have already written to you that under certain conditions—namely, that it be a transcription in a flowing style, with the omission of repetitions (which are necessary during the course of a sicha due to the arrival of new people and the like), and with a note stating that this is a free transcription and has not been proofread—it is worthwhile and appropriate. May Hashem grant you success to do more and more in spreading the wellsprings outward, which will surely bring additional blessing and success in your personal affairs.
+
+With blessings for success in all of the above, and for good tidings.
+
+P.S.
+
+Enclosed is what was sent to me recently, which will surely be of benefit for what was written above. In accordance with the letter of 24 Teves, surely you will send the weekly publication [name] and the sefer Yechidei Segulah here. I have already mentioned several times that it is worthwhile to explain to authors and publishers of all types the benefit of having everything they publish available in our library here.
+
+## 362
+
+B"H, 20 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I received your letter in due time, in which you write that you have arranged a schedule for studying Chassidus from 6:00 to 7:00 in the morning. While it is brought in many places that there is a special merit to studying the inner dimension of Torah before davening, it is nevertheless understood that one should not be satisfied with this study alone, and there must be additional study of the inner dimension of Torah at night as well. In general, just as with the study of the revealed Torah, it is appropriate that there be some shiurim for the sake of covering ground (migras) and some shiurim for in-depth study (iyuna) in the areas where your heart desires. May Hashem grant you the merit and success to study the inner dimension of Torah—the soul of the Torah—with ease, which will add vitality to your study of the revealed Torah and to your fulfillment of the mitzvos.
+
+With blessings for success in all of the above,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 363
+
+B"H, 20 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter from Motzaei Shabbos Terumah, I was pleased to read that you are visiting the esteemed, G-d-fearing, and accomplished [Name]... may he live. It is already known that our Sages (Sotah 14a) state, "Follow after Hashem your G-d... visit the sick," etc. (see there), which, according to the *Baal Halachos Gedolos*, is a mitzvah *d'oraisa*. See also the first root in the *Sefer HaMitzvos* of the Rambam and the commentaries there. Furthermore, based on the verse, "And do not hide yourself from your own flesh," it is certainly, and all the more so, a duty to also visit one's own "sickness," as our Sages say (Yerushalmi, Shabbos, Chapter 14, Halacha 3), "This sickness is the *yetzer hara*."
+
+The attribute of the *Ribono shel Olam* is measure for measure; just as by visiting the sick one alleviates the illness of his fellow, so too will *siyata d'shmaya* be increased in visiting one's own "sickness," as our Sages say that Hashem helps him. It would be appropriate for him to study the *maamar* of Chai Elul 5653 (printed in the *Kuntres Chai Elul* 5703), which I am certain the *avreich*... may he live, will be able to provide for him.
+
+Likewise, I am sure the aforementioned will explain to him the matter of the three daily *shiurim* that are equal for every soul, established by my revered father-in-law, the Rebbe, *ztzukulalleh, nishmaso b'eden, zechuso yagein aleinu*. He should, at the very least, observe them from this point forward: the well-known *shiurim* in *Chumash*, *Tehillim*, and *Tanya*.
+
+With blessings,
+
+On behalf of the Rebbe, *shlita*,
+
+Secretary
+
+#### ***363***
+
+**See also:** See also above, Vol. 2, Letter 170.
+
+## 364
+
+B"H, 20 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+In response to your letter from the 3rd of Adar—the month in which we increase in joy—in which you write that you are planning to travel to Switzerland, but do not specify the reasons for doing so. Surely there are yeshivos that are satisfactory in every respect in Eretz Yisrael (may it be built and established), and what is the benefit in the exhaustion of travel, the distraction of the soul, and so on? Furthermore, is leaving the Holy Land for the Diaspora not a significant matter in itself?
+
+Regarding what you wrote about the concept found in various places in Chassidus that there is a time of spiritual redemption during davening, and you raise a difficulty based on what is explained in many places—including the Rambam—that spiritual redemption is dependent upon the coming of Moshiach Tzidkeinu:
+
+It is understood that these matters do not contradict one another, for there are many levels of spiritual redemption, just as there are many levels of physical redemption. Just as a person removes himself from his involvement in worldly matters—and it is understood that we are not speaking of the wicked, but rather of involvement that is permissible according to Torah—and arranges the praises of the Makom in his davening and subsequently requests his needs, he is thereby redeeming his soul from worldly matters and connecting it to the Creator of the worlds. When one transitions from the days of the week to the day of Shabbos, this is an additional redemption (which is one of the reasons the Baal Shem Tov instituted the recitation of the chapter of Tehillim 107, "Give thanks to Hashem... let the redeemed of Hashem say so," at Mincha on Erev Shabbos). Similarly, when one transitions from the conduct of the time of Galus to the conduct of the days of Moshiach, this is a higher level of redemption, as is understood. This is in addition to the fundamental distinction between the redemption of the individual for a temporary time, and the redemption of the collective for a long duration or permanently. See the Iggeres HaKodesh of our Rebbe HaZaken, Epistle 4, and likewise the statement of our Sages (Berachos 8a): "Whoever engages in Torah and acts of kindness and davens with the congregation is considered as if he has **redeemed** Me and My children from among the nations of the world."
+
+Surely you are aware of the three daily study portions established for every soul by my revered father-in-law, the Rebbe, of blessed memory—the Chumash, Tehillim, and Tanya—and you keep them, or at the very least, will keep them from this point forward. May Hashem grant you success.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+## 366
+
+B"H, 21 Adar, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, and distinguished, who engages in communal needs, R' Dovid, may he live:
+
+Peace and blessing!
+
+...I was pleased to hear that efforts are being made to publish what has been written by the students of the Reshet, for this provides great encouragement to the writers and their peers, and furthermore, "the jealousy of scribes increases wisdom," in addition to the publicity among the readers of the publications. It would be appropriate to urge all the schools of the Reshet to tell their students about this, and to suggest that they do the same...
+
+With blessings for success in your holy work and in your personal affairs, and may you celebrate the upcoming festival of Pesach in a kosher and joyous manner with your family, may they live.
+
+#### ***366***
+
+**R' Dovid, may he live:** Chanzin. Additional letters to him appear above in 366 [sic], and in the references noted in the footnotes there.
+
+## 3660
+
+B"H, 22 Adar, 5715
+Brooklyn
+
+Rabbi, G-d-fearing, illustrious, and distinguished, Moreinu HaRav Avraham Abba, may he live:
+
+Peace and blessing!
+
+In response to your letter of 19 Adar, in which you write regarding the manner of avodah concerning the dissemination of seforim and matters of yiras shamayim, strengthening Yiddishkeit, and the like.
+
+While you are correct that this work of dissemination must be carried out in the greatest possible manner and within the widest circles, nevertheless, as with any new endeavor—and as is known from the statement of our Sages, "all beginnings are difficult"—when one begins with a broad or even a moderate plan, one encounters many difficulties in the vast majority of cases. This results in discouragement, which in turn leaves an undesirable impression on those involved and the workers, and the result is a loss rather than a gain, as the work gradually diminishes. In such matters, one must take into account what is possible, not only what is desirable. As is known from the precision of the Baal Shem Tov regarding the verse, "Though your beginning was small, yet your latter end shall greatly increase" (and specifically through such a beginning), the committee established for this purpose in Detroit should have begun its work from the easy to the difficult, and from matters that are certain and free of complications, rather than from doubtful matters—namely, seforim whose content may seemingly be appropriate, but whose author raises great doubt (and I wrote "seemingly" because it is inevitable that the pen of a questionable author will introduce doubts into the sefer as well). In the course of time, as the committee members become accustomed to this work, the work itself will show them what needs to be changed from the manner in which they began, and it will be easy to make those changes, provided the beginning is not on a large and broad scale. Little by little, they will expand the work, both regarding the circles and types of people with whom they engage, and regarding the seforim and pamphlets they disseminate. While the ruling of the Rambam in Hilchos Deios is already known, that the middle path in such matters is the straight and good path, and while the times demand and necessitate engaging in the work of dissemination without delay, on the other hand, the beginning must be in a moderate manner, as mentioned above.
+
+For the aforementioned reason, a detailed publication in the press regarding the names of seforim, etc., is also premature for the time being. Aside from the reason that it involves unnecessary expenses, by compiling any list, one takes upon oneself the responsibility for all the seforim included in that list. Furthermore, by excluding certain seforim from the list, one effectively categorizes them as outside the category of kosher seforim, or at the very least, outside the category of first-rate seforim, which will certainly arouse opposition—something that, at the beginning of the work, should be avoided as much as possible.
+
+My hope is strong that if you begin as mentioned above, in a manner of work based on the points above but with appropriate energy—especially in the days before the Chag and the days of Chol HaMoed, which are auspicious for such work—you will certainly see success in this.
+
+With blessings for success in the above and for a kosher and happy Chag HaMatzos.
+
+## 3657
+
+B"H, 23 Adar, 5715
+Brooklyn
+
+To the esteemed Rabbi, G-d-fearing, of noble lineage, our teacher Rabbi Matisyahu Yechezkel, may he live:
+
+Greetings and blessings!
+
+I hereby acknowledge receipt of the book *Aggados Talmud Yerushalmi* with a brief commentary. Many thanks for this gift. May Hashem grant you success in increasing and glorifying Torah, with health, livelihood, and peace of mind.
+
+The book *Torah Or* in its new edition with additions was sent to you some time ago, and I trust you will confirm its receipt.
+
+As the festival of Pesach is approaching, I will conclude with wishes that you celebrate it in a kosher and joyous manner.
+
+With holiday blessings,
+
+P.S.
+I was pleased to see that at the end of your book there is an index of topics arranged by page order. I am sure that in future books there will also be an alphabetical index; it is easy to compile since the index has already been created.
+
+As is well known from our Sages, of blessed memory, regarding those who "make handles for the basket."
+
+***3657***
+
+**Rabbi Matisyahu Yechezkel:** Gutman. Additional letters to him appear above in Vol. 9, 2954, and in the references noted in the footnotes there.
+
+## 3668
+
+B”H, 23 Adar, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chassid, G-d-fearing and distinguished, etc.,
+Rabbi Sh. Y. [Zevin] shlita,
+
+Shalom u’Bracha!
+
+... Thank you, thank you for the sixth volume of the *Talmudic Encyclopedia* that was received these past few days, from Rabbi Hutner shlita. May it be His will that you go from strength to strength, etc., etc.
+
+Regarding the matter of *tzachus* (witticism), and indeed, *simana milta hi* (a sign is a significant thing) — from the letter *dalet* to the letter *hei*, etc. — this is accomplished through the act of *tzedakah* in *ruchniyus* and *gashmiyus*, which draws His unity, may He be blessed, down to the very lowest levels in this physical world. This is hinted at in *Maseches Shabbos* 104a: *Gimel, Dalet, Hei, Vav* — *Gomel Dalim* (He who rewards the poor) — is the Name of the Holy One, Blessed be He. See also *Taamei HaMitzvos* in *Likutei Torah* by the Arizal, *Parshas Re’eh*, and it is explained at length in the *maamar* of 13 Shevat 5710 by my revered father-in-law, the Rebbe. And the reward for it is at its side, as the continuation in the *Shas* there states: *Zayin, Ches*, etc., and if you do so, the Holy One, Blessed be He, sustains you, etc., etc., until the letter *tav* — *Emes* (Truth) is the seal of the Holy One, Blessed be He.
+
+Enclosed is what I have written recently, which will surely be of interest to you.
+
+As we approach the days of the festival of Pesach, which are drawing near, I will conclude with wishes that you celebrate it with kashrus and joy, in good health.
+
+With blessings, and awaiting good news,
+
+**M. Schneerson**
+
+## 357
+
+B"H, 26 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+Following your long silence, I received your letter in which you write regarding your birthday. As you requested, I will mention you and your wife, may they live, for a year of success both in material and spiritual matters. For if, regarding the entire world, one is dependent upon the other, how much more so is this true regarding the sons and daughters of Yisrael. And since our Torah—a Torah of life and a Torah of the world—demands health in spiritual matters, this very demand surely provides strength and blessing regarding health in material matters. This is especially true according to the teaching of the Baal Shem Tov regarding "you shall surely help him" (*azov ta'azov*), meaning with the body (and not through fasts and self-afflictions), and according to what is explained in the teachings of Chassidus Chabad, that "there is nothing else, for everything is a unity"—then it is certainly and surely so. Furthermore, the language of the Rambam in *Hilchos De'os*, beginning of Chapter 4, is already well-known: that maintaining a healthy and sound body is among the ways of Hashem.
+
+I will conclude with wishes for a kosher and happy Pesach for you and your wife, may they live, and may the *michla d'asvusa* (food of healing) and *michla d'heimanusa* (food of faith) effect their complete influence upon each of you, both in material and spiritual matters.
+
+## 375
+
+B"H, 27 Adar, 5715
+Brooklyn.
+
+To the esteemed Rabbi and Chossid, G-d-fearing and learned, engaged in communal needs,
+Rabbi Ephraim Eliezer HaKohen, may he live and be well,
+
+Peace and blessing!
+
+I have received your letter from Erev Shabbos Parshas HaChodesh. Regarding your observation concerning the difference in phrasing at the end of Chapter 11 and the end of Chapter 35 in Tanya Kadisha, please refer to the *Luach HaTikun* there, based on the early printings, where the version at the end of Chapter 11 is *achil bei asarah* (eats with ten). See also Tanya 136a, Torah Or 54c.
+
+Enclosed is what has been published recently, which will surely interest you, and you will undoubtedly merit to share its contents with the public. This is both the privilege and the obligation of a *mara d’asra* (local communal leader), according to the explanation of Rabbeinu HaZaken that this means, quite literally, the "master of the house" over all matters in that place. Since one is granted this status, the strength to fulfill the role is certainly provided from above; it depends only on bringing it from potential into action and from concealment into revelation.
+
+To conclude with a thought related to the opening: It is known from the Yerushalmi in Megillah (Chapter 3, Halacha 6) that one should not interrupt between Parshas Parah and Parshas HaChodesh. Based on the sign that this corresponds to the third and fourth cups of the Seder night—the time of our freedom—it is understood that there is a certain prohibition involved. It was mentioned at the farbrengen this Shabbos that this may be based on the words of our Sages (Sanhedrin 97b), "If Yisrael does teshuvah, they are redeemed." Further explanation and interpretation were added regarding the Rambam (Hilchos Teshuvah, Chapter 7, Halacha 5), that they are redeemed **immediately**. This was cited by Rabbeinu HaZaken, the author of the Tanya (who decides the *nistar*—the hidden aspects of Torah) and the Shulchan Aruch (who decides the *nigleh*—the revealed aspects of Torah), in his Iggeres HaTeshuvah, Chapter 11: they are redeemed **immediately**.
+
+With blessing.
+
+## 371
+
+371
+
+B"H, 27 Adar, 5715
+Brooklyn.
+
+To the esteemed and distinguished, etc., R' Moshe, may he live.
+
+Shalom and blessing!
+
+In response to your letter of 22 Adar, as you requested, I will mention you and all those you wrote about at the holy gravesite of my revered father-in-law, the Rebbe, of blessed memory. Surely you are aware of the three daily portions—accessible to every person—established by my revered father-in-law, the Rebbe: Chumash, Tehillim, and Tanya. Please observe them, at the very least from this point forward.
+
+As we approach the festival of Pesach, which is coming upon us and all of Israel for good, may you celebrate it with your family, may they live, in purity and joy.
+
+With blessing,
+
+On behalf of the Rebbe, shlita,
+Secretary
+
+P.S.
+
+Regarding what you wrote about the six thousand years of the world’s existence corresponding to the six *middos*—and that since each *middah* is comprised of all others, you conclude that each millennium should be divided into seven parts:
+
+It is indeed true that the six millennia correspond to the six *middos* (Zohar I, 116b and elsewhere). However, even though in many contexts each *middah* is comprised of seven *middos*—such as in *Sefiras HaOmer*, the *Yovel* cycle, the *Ana B’Koach* prayer, and elsewhere—this is because the *mochin* are in a state of concealment. The division of the millennium is generally either into ten (each comprised of ten, totaling one hundred) or into twelve hours (Pirkei D’Rabbi Eliezer, ch. 7 and 48; see also *Sefer HaLikutim* to *Shemos* 1, 14).
+
+#### ***371***
+
+**R' Moshe:** Yemini.
+
+## 3,772
+
+B"H, 27 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I hereby acknowledge receipt of your letter from Erev Shabbos Parshas Beshalach. As you requested, I will mention all those you wrote about at the holy resting place of my father-in-law, the Rebbe, of blessed memory.
+
+... I will also mention Mrs. [Name]—may she live and be well—regarding the tikkun she is requesting. In addition to the good conduct you described, she should delay her meals by ten or fifteen minutes (except on days when fasting is prohibited), and during those minutes, she should occupy herself with a matter of mitzvah. May Hashem fulfill her heart’s request for good, and may she be able to increase in mitzvos with proper health for long, good years.
+
+With blessings.
+
+#### ***3,772***
+
+**The tikkun she is requesting:** When she fled from Poland to Russia, she ate during the freezing cold and desecrated Shabbos; now, every penny she saves, she gives to tzedakah.
+
+## 373
+
+B"H, 27 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+It has been a very long time since I have received any direct news from you, even though several details have been conveyed by those traveling from there to here. We have already spoken a number of times about the fact that it would be appropriate for you to hold a meeting at certain intervals, and to send a copy of the details of everything from that meeting here as well. We see tangibly that when people know that on a certain day they will have to report to another place regarding what is being done **in your location**, it awakens additional strength for actual, practical activities as far as possible.
+
+I am writing regarding a specific point: although I have asked several people who have come here regarding changes in the Yeshiva's procedures, I have not received information from any of them that anything has been done to ensure that students in the higher classes continue their studies at Yeshivas Tomchei Temimim even after they finish school, and even after high school. Since not one of the travelers has any information regarding this, it is surely a sign that in practice, nothing has yet been done in this regard. The magnitude of the damage caused by this certainly requires no explanation, especially since you have seen it during the years the Yeshiva has existed—that due to the lack of engagement in this matter, only a few students remained in your midst. A hint is sufficient for the wise.
+
+It is understood that this effort, while necessary even in the highest class—for one must not give up on it—will be more successful if you prepare for this in the classes preceding it. You must ready them for the idea that their true benefit, not only in spirituality but also in physicality, is to remain in the Yeshiva even afterwards, etc. It is already known from the ruling of our Rebbes that there is a *chazakah* (presumption) that *ta'amulah* (propaganda/outreach) does not return empty. If these results are not being achieved, it is clear proof that there was no *ta'amulah*.
+
+My hope is that these few lines will suffice for you to immediately consult with the appropriate attention regarding all of the above, and to begin actual, tangible activities in your location. May the blessing of its founder, my father-in-law, the Rebbe, of blessed memory, rest upon this endeavor and upon all those who will merit to lead it with *mesiras nefesh* and diligence, as if it were their own.
+
+With blessings, and awaiting good news.
+
+## 374
+
+B”H, 27 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I was pleased to receive your letter of 21 Adar... The logic of moving some items into the new apartment before Pesach is sound, and as is well known, the month of Nissan is the month of freedom in every respect—including freedom from worries, limitations, and the like. Before you bring anything else into the apartment, you should first bring in a Siddur, Chumash, Tehillim, and Tanya.
+
+With blessings for a Mazal Tov and a kosher and happy Pesach for you and all your household, may they live.
+
+P.S. Regarding your question: because of various matters, it turns out that you are only sleeping 4–5 hours. Aside from exceptional cases, from the perspective of physical health, this is insufficient. A Yid needs to have a healthy body to serve Hashem without distractions and with peace of mind, as the language of our holy Rebbe in Tanya, beginning of Chapter 7, states: "in order to serve Hashem with his body." Therefore, you must arrange your schedule so that the body is rested, and it can perform its part in the mission of man: *la'asos lo yisbarach dirah betachtonim* (to make for Him, may He be blessed, a dwelling place in the lower worlds).
+
+***
+
+**Moving... before Pesach:** So as not to begin moving into the house during the days of Sefirah.
+
+**Siddur... and Tanya:** See also above, Letter 361, and the references noted in the footnotes there.
+
+## 3,191
+
+B"H, 28 Adar, 5715
+Brooklyn.
+
+To the esteemed Chossid, G-d-fearing, refined, etc., who engages in communal needs,
+Moreinu HaRav Sholom, may he live.
+
+Peace and blessing!
+
+I hereby acknowledge receipt of your letter from the 24th of Adar, along with the enclosure. You should certainly continue writing in detail regarding the matters you mentioned in that letter.
+
+Regarding the printing of the *Likutei Dibburim* concerning the imprisonment, it is understood that there is a need for the photograph, as well as all other aspects of the publication, to be of high quality. This is especially true since it is certain that copies of the printed work will be taken to other countries, particularly to Eretz Yisrael, may it be rebuilt and established.
+
+It is already known what is brought in the Rambam regarding the statement, "All fat is for Hashem," and as it is written, "This is my G-d and I will glorify Him"—beautify yourself before Him in the performance of mitzvos, etc.
+
+As we approach the *Chag HaMatzos* that is coming upon us and upon all of Israel for good, may he, his household—may they live—and those who join them, celebrate it with *kashrus* and joy.
+
+With blessings for success,
+
+**M. Schneerson**
+
+#### ***3,191***
+
+**Moreinu HaRav Sholom, may he live:** Matossov. Additional letters to him appear above in 3,103, and in the notes indicated there.
+
+**Regarding the printing of the *Likutei Dibburim* concerning the imprisonment:** See letter 3,183 above.
+
+## 375
+
+B"H, 29 Adar, 5715
+Brooklyn
+
+To the esteemed, G-d-fearing, learned, and distinguished R' Mordechai, may he live:
+
+Greetings and blessings!
+
+I was pleased to receive news about you through the esteemed R' Yosef Yehuda Chen, who is involved in communal affairs. He also wrote to me regarding your active participation in preparing the Purim evening program, which was presented by the students of Beis Rivkah, may they live. If it is said that in all places and at all times, "it is a mitzvah to publicize those who perform a mitzvah," and that we should utilize the concept that "jealousy among scholars increases wisdom," then how much more so in our lowly and orphaned generation must we adopt every means to strengthen and spread Yiddishkeit in the spirit of our ancestors, in ever-widening circles. This is especially true regarding utilizing *zmanei ratzon* (times of favor) for this purpose, as at such times, everything connected with Torah and mitzvos has a special success—these being the times of Shabbos, Yomim Tovim, Chanukah, Purim, and so on.
+
+This is particularly true in these recent years, when upon each of us, the *She'eris Hapleitah* (the surviving remnant), there is placed the additional work that until now was performed by those who were killed *al kiddush Hashem*, may Hashem avenge their blood.
+
+In addition to all this, when it comes to children, it is an absolute necessity to instill in them the strength to stand up against all the undesirable winds that blow from the street and seek to penetrate even the homes of Jewish children. Especially great is the danger of the winds of compromise, which claim that it does not matter if one is not as zealous as people were in times past. In a short time, they are already saying that it does not matter if one is not as "Jewish" as in the past, and in the end, one does not know where to stop.
+
+Therefore, a Lubavitcher *chinuch*—which connects the generation with the past and explains to them that they are the sons and daughters of Avraham, Yitzchak, Yaakov, Sarah, Rivkah, Rachel, and Leah—is essential. Consequently, they too must follow in these ways, as we have been commanded in our Torah, *Toras Chaim*. Only then can one be certain that a *dor yesharim yevorach* (a generation of the upright will be blessed) will grow up.
+
+May the merit of all those who assist in this—each in their own way and with all their capabilities—stand by each of them in whatever they need for themselves and their families, may they live.
+
+With blessings for a kosher and happy Pesach,
+
+On behalf of the Rebbe, shlita,
+Secretary
+
+## 3,567
+
+B"H, 29 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+The esteemed Chossid, G-d-fearing, and distinguished individual, who engages in communal needs with great accomplishment, R' Chaim Avraham, may he live, delivered your note to me. As per your request, I will mention you and your family, may they live, as well as those you wrote about, at the holy resting place of my father-in-law, the Rebbe, of blessed memory. Certainly, on your part, you will create the channels and vessels to draw down and receive the blessings that the Rebbe arouses on their behalf.
+
+Based on the words of our Sages regarding the verse, "Behold, G-d is mighty and does not despise" (Berachos 8a), it is surprising that you rely on your own strengths and are not present at Chassidishe farbrengens. If, regarding a single friend, the Mitteler Rebbe said that it is "two animal souls against one animal soul," how much more so is this true of a Chassidishe farbrengen, where "ten are gathered," etc. When one is in isolation—meaning, without anyone to offer words of open rebuke born of hidden love—and as is the custom in this country, where one simply pats the other on the shoulder and engages in excessive praise and flattery, the results of such an approach are understood.
+
+May Hashem grant you the merit to increase your study of Chassidus in abundance, and this will assist you in going from strength to strength, in accordance with the hopes of our Rebbes, the Nesi'im, for those who have merited to be within their four cubits.
+
+With blessings,
+
+On behalf of the Rebbe, shlita,
+
+Secretary
+
+#### ***3,567***
+
+**The Mitteler Rebbe said:** See also above, Vol. 8, Letter 2,393, and the references noted in the footnotes there.
+
+## Gimmel-Shin-Ayin-Ches
+
+B"H, 29 Adar, 5715
+Brooklyn.
+
+Greetings and blessings!
+
+I hereby acknowledge receipt of your letter, in which you write that your spirits have improved. According to the well-known adage that a little light dispels a great deal of darkness, you are surely utilizing this to dispel the darkness that exists outside.
+
+As our Torah—Torah of life—demands, it is not only a person’s obligation but also their privilege that there be light not only within their own four cubits, but also in their portion of the world. This serves as preparation for the fulfillment of the prophecy that the entire world will be filled with light. This is also learned from the statement of our Sages—brief, yet encompassing complete Torah and instruction—that at the birth of the savior of Yisrael, Moshe Rabbeinu, the first and final redeemer, the entire house was filled with light. This is especially true during these days of the month of Nissan, regarding which our Sages said that even one who **goes out** during the days of Nissan and sees trees blossoming should bless the King of the world, who has created good creatures and good trees in His world.
+
+As the approaching festival of Pesach draws near, I hereby express my wishes for a kosher and joyous Pesach for everyone.
+
+With regards and blessings.
+
+P.S.
+Regarding what you write about Agudas N'shei U'Bnos Chabad, you may contact my relative, Rabbi Slonim *shichyeh* (1 Tzafania, Jerusalem), who will surely provide you with all the information.
+
+## 379
+
+B"H, 29 Adar, 5715
+Brooklyn.
+
+Greetings and Blessings!
+
+I received your registered letter from the 17th and 18th of Adar. Regarding what you write concerning the various anxieties you have regarding the fact that you happened to use a certain hospital and a certain conduct, etc.—you should divert your mind from all of this and increase your courage in spreading the teachings of Chassidus, its guidance, and its customs, for this is the whole of man. All matters that distract from this, including anxieties such as those you mentioned, are—according to the instruction of our holy Nasi, and specifically my revered father-in-law, the Rebbe (as brought in *Hayom Yom* for 23 Sivan)—from an undesirable source, and consequently, one must nullify them. Since the mind is always wandering, the way to nullify an undesirable thought is through a good thought regarding good matters. And true good is "good for Heaven and good for people," which is one of the foundations of the teachings of Chassidus, which states that love of Israel and love of Hashem are one and the same, through the love of Torah which unites the children of Rome and the children of Sura, as is explained in many places in Chassidic discourse.
+
+I was pleased with what you wrote, at least in general terms, describing the *farbrengen* during the days of favor in […]. However, the manner of striving to increase the *farbrengen* in both quantity and quality is not yet explained, for we must always "ascend in holiness." It is also well known what we heard many times from my revered father-in-law, the Rebbe, that in our time, it is like climbing a very steep mountain where it is impossible to stand still or pause in place; if one is not climbing higher, then automatically, etc. This is especially true when one sees this tangibly and in the finest detail when located in a country where the spreading of the *maayanos* began only recently. Surely, elaborating on this is superfluous.
+
+Enclosed is what was published recently, which I am sure you will merit to use to benefit the many.
+
+With blessings for a kosher and happy Pesach, and may the promise of the Arizal be fulfilled, that being careful in this [the laws of Pesach] is beneficial for the entire year.
+
+***
+
+**What we heard:** See also above, Vol. 8, Letter 2228, and the references in the notes there.
+
+**The promise of the Arizal:** See *Aruch HaShulchan*, beginning of Siman 447.
+
+## 3,590
+
+B"H, Erev Rosh Chodesh Nissan, 5715
+Brooklyn, N.Y.
+
+Mr. Moshe Kol,
+
+Shalom u'Bracha,
+
+I received your letter in due time, and thank you for your thoughtfulness in writing about the celebration in Kfar Chabad in which you participated. For if in all times one yearns for joyful news, how much more so in these days of ours.
+
+It was pleasant for me to read in your letter about the progress in the construction of the building for the youth absorption institution in the Kfar.
+
+And although for the time being and in the near future, it seems it will not be possible for me to visit our Holy Land, may it be rebuilt and established, despite the benefit in doing so, as you write in your letter, I am certain that the progress of the buildings will not be delayed, G-d forbid—on the contrary. And certainly, you, on your part, will do everything in your power to hasten the completion of the buildings in all their stages; it is a pity that so much time has passed until now. It is surely unnecessary to express thanks to you for your assistance, for the matter itself expresses thanks, and as our Sages of blessed memory said, the reward of a mitzvah is the mitzvah itself.
+
+In connection with the upcoming festival of Pesach, the time of our freedom, I will express my wishes that each and every one of us should merit true freedom—freedom from servitude in the physical and servitude in the spiritual. For only then can a person utilize his talents to their fullest, for his own good and for the good of others, to help them as well to become free men from all matters that conceal and prevent a person from being complete, both physically and spiritually.
+
+With respect and holiday blessings.
+
+#### ***3,590***
+
+**Mr. Moshe Kol:** Another letter to him—above, Vol. 7, 1,985.

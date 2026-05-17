@@ -1,0 +1,74 @@
+<!DOCTYPE html>
+<html lang="en" data-dark="0" data-fs="md">
+<head>
+<meta charset="UTF-8">
+<meta name="viewport" content="width=device-width,initial-scale=1.0,viewport-fit=cover">
+<meta name="theme-color" content="#262320">
+<title>Reader — Chassidus Library</title>
+<link rel="preconnect" href="https://fonts.googleapis.com">
+<link rel="preconnect" href="https://fonts.gstatic.com" crossorigin>
+<link href="https://fonts.googleapis.com/css2?family=Frank+Ruhl+Libre:wght@400;700&family=EB+Garamond:ital,wght@0,400;0,600;1,400&family=Inter:wght@400;500;600&display=swap" rel="stylesheet">
+<link rel="stylesheet" href="./assets/design.css">
+</head>
+<body>
+
+<div class="ab">
+  <button class="ab-btn" id="btn-back" aria-label="Back">
+    <svg viewBox="0 0 24 24"><polyline points="15 18 9 12 15 6"/></svg>
+  </button>
+  <div class="ab-title" id="abtitle">Loading…</div>
+  <button class="ab-btn" id="btn-share" aria-label="Share">
+    <svg viewBox="0 0 24 24"><circle cx="18" cy="5" r="3"/><circle cx="6" cy="12" r="3"/><circle cx="18" cy="19" r="3"/><line x1="8.59" y1="13.51" x2="15.42" y2="17.49"/><line x1="15.41" y1="6.51" x2="8.59" y2="10.49"/></svg>
+  </button>
+  <button class="ab-btn" id="btn-set" aria-label="Settings">
+    <svg viewBox="0 0 24 24"><circle cx="12" cy="12" r="3"/><path d="M19.4 15a1.65 1.65 0 0 0 .33 1.82l.06.06a2 2 0 0 1-2.83 2.83l-.06-.06a1.65 1.65 0 0 0-1.82-.33 1.65 1.65 0 0 0-1 1.51V21a2 2 0 0 1-4 0v-.09A1.65 1.65 0 0 0 9 19.4a1.65 1.65 0 0 0-1.82.33l-.06.06a2 2 0 0 1-2.83-2.83l.06-.06A1.65 1.65 0 0 0 4.68 15a1.65 1.65 0 0 0-1.51-1H3a2 2 0 0 1 0-4h.09A1.65 1.65 0 0 0 4.6 9a1.65 1.65 0 0 0-.33-1.82l-.06-.06a2 2 0 0 1 2.83-2.83l.06.06A1.65 1.65 0 0 0 9 4.68a1.65 1.65 0 0 0 1-1.51V3a2 2 0 0 1 4 0v.09a1.65 1.65 0 0 0 1 1.51 1.65 1.65 0 0 0 1.82-.33l.06-.06a2 2 0 0 1 2.83 2.83l-.06.06A1.65 1.65 0 0 0 19.4 9a1.65 1.65 0 0 0 1.51 1H21a2 2 0 0 1 0 4h-.09a1.65 1.65 0 0 0-1.51 1z"/></svg>
+  </button>
+</div>
+
+<div class="pbar"><div class="pfill" id="pfill"></div></div>
+
+<div class="tbar">
+  <div class="vtoggle">
+    <button class="seg-btn" data-m="he">עברית</button>
+    <button class="seg-btn on" data-m="both">Bilingual</button>
+    <button class="seg-btn" data-m="en">English</button>
+  </div>
+</div>
+
+<div class="rsbar">
+  <input id="sinp" type="search" placeholder="Search in this book…" autocomplete="off">
+</div>
+<div class="rs-hits" id="rs-hits" style="display:none"></div>
+
+<div class="cscroll">
+  <div class="cinner" id="content">
+    <div class="loading"><div class="spinner"></div></div>
+  </div>
+</div>
+
+<!-- Settings sheet -->
+<div id="ssheet">
+  <div class="sbdrop"></div>
+  <div class="spanel">
+    <div class="shandle"></div>
+    <div class="stitle">Reading Settings</div>
+    <div class="srow">
+      <div class="slbl">Dark mode<small>Comfortable in low light</small></div>
+      <button class="tswitch" id="dark-tog" aria-label="Dark mode"></button>
+    </div>
+    <div class="srow">
+      <div class="slbl">Text size</div>
+      <div class="fsctrl">
+        <button class="fsbtn" data-fs="sm">A</button>
+        <button class="fsbtn on" data-fs="md">A</button>
+        <button class="fsbtn" data-fs="lg">A</button>
+      </div>
+    </div>
+  </div>
+</div>
+
+<div id="toast"></div>
+
+<script src="./assets/reader.js"></script>
+</body>
+</html>
