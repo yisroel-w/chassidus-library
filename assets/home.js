@@ -50,12 +50,15 @@
       const cards = list.map(b => {
         const last = JSON.parse(localStorage.getItem(`cl:last:${b.id}`) || 'null');
         const pct = last && last.total ? Math.round((last.pairIdx + 1) / last.total * 100) : 0;
-        return `<a class="bcard" href="./reader.html?book=${encodeURIComponent(b.id)}">
+        return `<div class="bcard" data-book="${encodeURIComponent(b.id)}" tabindex="0" role="link">
+          <span class="toc-link" data-toc="1" aria-label="Browse contents" title="Browse contents">
+            <svg viewBox="0 0 24 24"><line x1="8" y1="6" x2="21" y2="6"/><line x1="8" y1="12" x2="21" y2="12"/><line x1="8" y1="18" x2="21" y2="18"/><circle cx="4" cy="6" r="1"/><circle cx="4" cy="12" r="1"/><circle cx="4" cy="18" r="1"/></svg>
+          </span>
           ${b.vol ? `<div class="vol">Volume ${b.vol}</div>` : `<div class="vol">${escapeHtml(b.series_en)}</div>`}
           <div class="he">${escapeHtml(b.title_he)}</div>
           <div class="en">${escapeHtml(b.title_en)}</div>
           <div class="pfill-mini" style="width:${pct}%"></div>
-        </a>`;
+        </div>`;
       }).join('');
       return `<section class="series" data-series="${key}">
         <div class="series-hd">
@@ -71,6 +74,22 @@
   function escapeHtml(s) {
     return String(s).replace(/[&<>"']/g, c => ({ '&':'&amp;','<':'&lt;','>':'&gt;','"':'&quot;',"'":'&#39;' })[c]);
   }
+
+  // bcard click — go to reader; click on .toc-link → reader with ?toc=1
+  document.addEventListener('click', e => {
+    const card = e.target.closest('.bcard');
+    if (!card) return;
+    const id = card.dataset.book;
+    if (!id) return;
+    const wantToc = !!e.target.closest('.toc-link');
+    location.href = `./reader.html?book=${id}${wantToc ? '&toc=1' : ''}`;
+  });
+  document.addEventListener('keydown', e => {
+    if (e.key !== 'Enter') return;
+    const card = e.target.closest('.bcard');
+    if (!card) return;
+    location.href = `./reader.html?book=${card.dataset.book}`;
+  });
 
   // random
   $('#rand-btn').addEventListener('click', () => {

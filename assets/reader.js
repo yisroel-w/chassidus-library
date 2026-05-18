@@ -152,6 +152,9 @@
     buildSearchIndex(sections);
     buildTOC();
     restoreLast();
+    if (params.get('toc') === '1' && !$('#toc-btn').hidden) {
+      setTimeout(() => $('#tocsheet').classList.add('open'), 200);
+    }
   }
 
   function applyMode() {
@@ -256,32 +259,112 @@
   }
 
   // ─── TOC ───
+  // For series like Igros Kodesh / Likkutei Sichos / Toras Menachem / Maamarim,
+  // the deepest level (usually 2 or 3) is a numbered item — render as grid.
+  let tocView = 'list';     // 'grid' | 'list'
+  let tocFilter = '';
+  let tocLeafLevel = null;  // level whose items become grid chips
+
   function buildTOC() {
     const list = $('#toc-list');
     if (!TOC.length) { $('#toc-btn').hidden = true; return; }
     $('#toc-btn').hidden = false;
-    list.innerHTML = TOC.map((t, i) => `
-      <a class="toc-item lvl-${t.level}" data-toc="${i}" data-pi="${t.pairIdx}">
-        ${t.he ? `<div class="he">${escapeHtml(t.he)}</div>` : ''}
-        ${t.en ? `<div class="en">${escapeHtml(t.en)}</div>` : ''}
-      </a>`).join('');
-    list.addEventListener('click', e => {
-      const it = e.target.closest('.toc-item');
-      if (!it) return;
-      $('#tocsheet').classList.remove('open');
-      const pi = +it.dataset.pi;
-      setTimeout(() => scrollToPair(pi), 280);
-    });
+
+    // book metadata in header
+    $('#toc-title').textContent = book.title_en;
+    const leaves = pickLeafLevel();
+    tocLeafLevel = leaves.level;
+    const itemNoun = leafNoun();
+    $('#toc-meta').textContent = leaves.list.length
+      ? `${leaves.list.length} ${itemNoun}`
+      : `${TOC.length} sections`;
+
+    // grid view only makes sense for short labels (numeric letters, sicha #s)
+    const gridEligible = leaves.list.length >= 6 && leaves.list.every(t => isShortLabel(t.he) || isShortLabel(t.en));
+    const mode = $('#toc-mode');
+    if (gridEligible) {
+      mode.hidden = false;
+      tocView = 'grid';
+    } else {
+      mode.hidden = true;
+      tocView = 'list';
+    }
+    $$('#toc-mode button').forEach(b => b.classList.toggle('on', b.dataset.tv === tocView));
+    renderTOC();
   }
+
+  function leafNoun() {
+    const k = book.series_key;
+    if (k === 'Igros_Kodesh') return 'letters';
+    if (k === 'Likkutei_Sichos') return 'sichos';
+    if (k === 'Toras_Menachem') return 'sichos';
+    if (k === 'Maamarim_Melukatim') return 'maamarim';
+    if (k === 'Hayom_Yom') return 'entries';
+    return 'sections';
+  }
+
+  function pickLeafLevel() {
+    // Find the deepest level present. Hayom Yom uses ## for dates; Igros Kodesh uses ## for letter numbers.
+    let maxLevel = 0;
+    for (const t of TOC) if (t.level > maxLevel) maxLevel = t.level;
+    // Prefer leaf level if it has > a handful of items
+    for (let l = maxLevel; l >= 2; l--) {
+      const list = TOC.filter(t => t.level === l);
+      if (list.length >= 3) return { level: l, list };
+    }
+    return { level: maxLevel || 2, list: TOC.filter(t => t.level === maxLevel) };
+  }
+
+  function isShortLabel(s) {
+    if (!s) return false;
+    const t = s.replace(/\*+/g, '').trim();
+    return t.length > 0 && t.length <= 14;
+  }
+
+  function renderTOC() {
+    const list = $('#toc-list');
+    list.className = 'toc-list';
+
+    let items = TOC.slice();
+    if (tocFilter) {
+      const q = tocFilter.toLowerCase();
+      items = items.filter(t =>
+        (t.he && t.he.toLowerCase().includes(q)) ||
+        (t.en && t.en.toLowerCase().includes(q)));
+    }
+
+    if (tocView === 'grid') {
+      const leaves = items.filter(t => t.level === tocLeafLevel);
+      list.innerHTML = `<div class="toc-grid">${leaves.map(t => {
+        const label = (t.he || t.en || '').replace(/\*+/g, '').trim();
+        const sub = t.en && t.en !== label ? `<span class="en">${escapeHtml(t.en).slice(0,18)}</span>` : '';
+        return `<a class="toc-chip" data-pi="${t.pairIdx}">${escapeHtml(label)}${sub}</a>`;
+      }).join('')}</div>`;
+    } else {
+      list.innerHTML = items.map(t => `
+        <a class="toc-item lvl-${t.level}" data-pi="${t.pairIdx}">
+          ${t.he ? `<div class="he">${escapeHtml(t.he)}</div>` : ''}
+          ${t.en ? `<div class="en">${escapeHtml(t.en)}</div>` : ''}
+        </a>`).join('');
+    }
+    updateCurrentTOC(currentPairIdx);
+  }
+
   function escapeHtml(s) {
     return String(s).replace(/[&<>"']/g, c => ({ '&':'&amp;','<':'&lt;','>':'&gt;','"':'&quot;',"'":'&#39;' })[c]);
   }
+
+  let currentPairIdx = 0;
   function updateCurrentTOC(pairIdx) {
+    currentPairIdx = pairIdx;
     let cur = -1;
     for (let i = 0; i < TOC.length; i++) {
       if (TOC[i].pairIdx <= pairIdx) cur = i; else break;
     }
-    $$('.toc-item').forEach((el, i) => el.classList.toggle('current', i === cur));
+    const curEntry = cur >= 0 ? TOC[cur] : null;
+    $$('.toc-item, .toc-chip').forEach(el => {
+      el.classList.toggle('current', curEntry && +el.dataset.pi === curEntry.pairIdx);
+    });
   }
 
   // ─── in-book search ───
@@ -364,6 +447,22 @@
   $('#toc-close').addEventListener('click', () => $('#tocsheet').classList.remove('open'));
   $('#tocsheet').addEventListener('click', e => {
     if (e.target.classList.contains('sbdrop')) $('#tocsheet').classList.remove('open');
+    const item = e.target.closest('.toc-item, .toc-chip');
+    if (item) {
+      const pi = +item.dataset.pi;
+      $('#tocsheet').classList.remove('open');
+      setTimeout(() => { scrollToPair(pi); flashPair(pi); }, 280);
+    }
+    const mb = e.target.closest('#toc-mode button');
+    if (mb) {
+      tocView = mb.dataset.tv;
+      $$('#toc-mode button').forEach(b => b.classList.toggle('on', b === mb));
+      renderTOC();
+    }
+  });
+  $('#toc-q').addEventListener('input', e => {
+    tocFilter = e.target.value.trim();
+    renderTOC();
   });
 
   $$('.fsbtn').forEach(b => b.addEventListener('click', () => {
