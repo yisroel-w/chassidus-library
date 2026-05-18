@@ -30,22 +30,31 @@
     for (const raw of blocks) {
       const b = raw.trim();
       if (!b) continue;
-      // Split into Hebrew / English halves
       const heM = b.match(/\*\*Hebrew:\*\*\s*\n([\s\S]*?)(?=\n\*\*English:\*\*|$)/);
       const enM = b.match(/\*\*English:\*\*\s*\n([\s\S]*)$/);
       let he = heM ? heM[1].trim() : '';
       let en = enM ? enM[1].trim() : '';
-      // Detect heading on either side
-      const heHead = he.match(/^(#{1,6})\s+(.*)$/m);
-      const enHead = en.match(/^(#{1,6})\s+(.*)$/m);
-      if ((heHead || enHead) && stripInline(he).split('\n').length <= 3 && stripInline(en).split('\n').length <= 3) {
-        const level = (heHead?.[1].length || enHead?.[1].length || 2);
-        const heT = heHead ? cleanHeading(heHead[2]) : cleanHeading(he);
-        const enT = enHead ? cleanHeading(enHead[2]) : cleanHeading(en);
+
+      // Peel off a leading heading on either side (#, ##, ###...)
+      // The heading must be the very first non-empty line.
+      const headRe = /^\s*(#{1,6})[ \t]+([^\n]+)/;
+      const heHead = he.match(headRe);
+      const enHead = en.match(headRe);
+      if (heHead || enHead) {
+        let level = (heHead?.[1].length || enHead?.[1].length || 2);
+        const innerHe = (heHead?.[2] || '').match(/<h([1-6])>/i);
+        const innerEn = (enHead?.[2] || '').match(/<h([1-6])>/i);
+        if (innerHe) level = parseInt(innerHe[1], 10);
+        else if (innerEn) level = parseInt(innerEn[1], 10);
+        const heT = heHead ? cleanHeading(heHead[2]) : '';
+        const enT = enHead ? cleanHeading(enHead[2]) : '';
         sections.push({ level, he: heT, en: enT });
-      } else {
-        sections.push({ level: 0, he, en });
+        if (heHead) he = he.slice(heHead[0].length).trim();
+        if (enHead) en = en.slice(enHead[0].length).trim();
       }
+
+      // Whatever remains is content
+      if (he || en) sections.push({ level: 0, he, en });
     }
     return sections;
   }
@@ -304,15 +313,17 @@
   }
 
   function pickLeafLevel() {
-    // Find the deepest level present. Hayom Yom uses ## for dates; Igros Kodesh uses ## for letter numbers.
-    let maxLevel = 0;
-    for (const t of TOC) if (t.level > maxLevel) maxLevel = t.level;
-    // Prefer leaf level if it has > a handful of items
-    for (let l = maxLevel; l >= 2; l--) {
-      const list = TOC.filter(t => t.level === l);
-      if (list.length >= 3) return { level: l, list };
+    // Cap at level 3 — deeper headings are typically footnote/annotation markers.
+    // Among levels 1–3, pick the one with the most items (the real "chapter list").
+    const counts = { 1: 0, 2: 0, 3: 0 };
+    for (const t of TOC) {
+      if (t.level >= 1 && t.level <= 3) counts[t.level]++;
     }
-    return { level: maxLevel || 2, list: TOC.filter(t => t.level === maxLevel) };
+    let best = 2, bestCount = 0;
+    for (const lvl of [2, 3, 1]) {
+      if (counts[lvl] > bestCount) { bestCount = counts[lvl]; best = lvl; }
+    }
+    return { level: best, list: TOC.filter(t => t.level === best) };
   }
 
   function isShortLabel(s) {
